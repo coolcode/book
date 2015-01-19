@@ -5,15 +5,15 @@
 # Site
 title: LightBooks
 subtitle: Welcome to LightBooks
-description:
+description: LightBooks is a website that can help you learning English
 author: Bruce Lee
 email: coolcode@live.com
 language:
 
 # URL
 ## If your site is put in a subdirectory, set url as 'http://yoursite.com/child' and root as '/child/'
-url: http://coolcode.github.io
-root: /book
+url: http://lightbooks.github.io
+root: /
 permalink: :year/:month/:day/:title/
 tag_dir: tags
 archive_dir: archives
@@ -28,9 +28,9 @@ public_dir: public
 # Writing
 new_post_name: :title.md # File name of new posts
 default_layout: post
-titlecase: false # Transform title into titlecase
+titlecase: true # Transform title into titlecase
 external_link: true # Open external links in new tab
-filename_case: 0
+filename_case: 1
 render_drafts: false
 post_asset_folder: false
 relative_link: false
@@ -91,6 +91,6 @@ feed:
 ## Docs: http://hexo.io/docs/deployment.html
 deploy:
     type: github
-    repo: https://github.com/coolcode/book.git
+    repo: https://github.com/lightbooks/lightbooks.github.io.git
     branch:
     message:

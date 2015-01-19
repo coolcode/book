@@ -26,7 +26,8 @@
     <link rel="alternative" href="<%- theme.rss %>" title="<%= config.title %>" type="application/atom+xml">
   <% } %>
   <% if (theme.favicon){ %>
-    <link rel="icon" href="<%- config.root %><%- theme.favicon %>">
+    <link rel="shortcut icon" href="<%- config.root %><%- theme.favicon %>">
+    <link rel="apple-touch-icon-precomposed" href="<%- config.root %><%- theme.favicon %>">
   <% } %>
   <%- css('css/style') %>
   <%- partial('google-analytics') %>

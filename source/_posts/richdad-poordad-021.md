@@ -1,5 +1,5 @@
 title: RichDad PoorDad 021
-date: 2015-01-18 13:13:27
+date: 2015-01-19 06:46:42
 tags: richdad-poordad
 ---
 

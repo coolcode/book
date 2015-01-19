@@ -46,7 +46,7 @@ function readLines(input, func) {
 
   input.on('data', function(data) {
     remaining += data;
-    var index = remaining.indexOf('\n');
+    var index = remaining.replace(/`/g,"").indexOf('\n');
     var last  = 0;
     var lines = 0;
 
