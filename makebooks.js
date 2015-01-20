@@ -46,7 +46,9 @@ function readLines(input, func) {
 
   input.on('data', function(data) {
     remaining += data;
-    var index = remaining.replace(/`/g,"").indexOf('\n');
+	remaining = remaining.replace(/`/g,"");
+    //fs.writeFileSync("test.txt", text);
+    var index = remaining.indexOf('\n');
     var last  = 0;
     var lines = 0;
 

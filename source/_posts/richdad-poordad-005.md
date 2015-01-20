@@ -1,5 +1,5 @@
 title: RichDad PoorDad 005
-date: 2015-01-19 06:46:58
+date: 2015-01-20 09:26:31
 tags: richdad-poordad
 ---
 
@@ -25,7 +25,7 @@ I nodded my head quickly, but with a little intimidation. He had a lot of power 
 "OK, here's my offer. I'll teach you, but I won't do it classroom-style. You work for me, I'll teach you. You don't work for me, I won't teach you. I can teach you faster if you work, and I'm wasting my time if you just want to sit and listen, like you do in school. That's my offer. Take it or leave it."
 "Ah... may I ask a question first?" I asked.
 "No. Take it or leave it. I've got too much work to do to waste my time. If you can't make up you mind decisively, then you'll never learn to make money anyway. Opportunities come and go. Being able to know when to make quick decisions is an important skill. You have an opportunity that you asked for. School is beginning or it's over in ten seconds," Mike's dad said with a teasing smile.
-"Take it," I said.  `
+"Take it," I said.  
 "Take it," said Mike.
 "Good," said Mike's dad. "Mrs. Martin will be by in ten minutes. After I'm through with her, you ride with her to my superette and you can begin working. I'll pay you 10 cents an hour and you will work for three hours every Saturday."
 "But I have a softball game today," I said.
@@ -73,7 +73,7 @@ We have child labor laws, you know. My dad works for the government, you know."
 "Well, you've never talked to me. I've worked for three weeks, and you have not taught me anything," I said with a pout.
 "Does teaching mean talking or a lecture?" rich dad asked.
 "Well, yes," I replied.
-"That's how they teach you in school," he said smiling. "But that is not how life teaches you, and I would say that life is the best teacher of all. Most of the time, life does not talk to you. It just sort of pushes you around. Each push is life saying, `Wake up. There's something I want you to learn.' "
+"That's how they teach you in school," he said smiling. "But that is not how life teaches you, and I would say that life is the best teacher of all. Most of the time, life does not talk to you. It just sort of pushes you around. Each push is life saying, Wake up. There's something I want you to learn.' "
 "What is this man talking about?" I asked myself silently. "Life pushing me around was life talking to me?" Now I knew I had to quit my job. I was talking to someone who needed to be locked up.
 "If you learn life's lessons, you will do well. If not, life will just continue to push you around. People do two things. Some just let life push them around. Others get angry and push back. But they push back against their boss, or their job, or their husband or wife. They do not know it's life that's pushing."
 I had no idea what he was talking about.

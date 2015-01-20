@@ -1,5 +1,5 @@
 title: RichDad PoorDad 007
-date: 2015-01-19 06:46:56
+date: 2015-01-20 09:26:29
 tags: richdad-poordad
 ---
 
@@ -11,19 +11,19 @@ tags: richdad-poordad
 "No, I don't think so," replied rich dad. "The avoidance of money is just as psychotic as being attached to money."
 As if on cue, the town derelict went past our table, stopping by the large rubbish can and rummaging around in it. The three of us watched him with great interest, when before we probably would have just ignored him.
 Rich dad pulled a dollar out of his wallet and gestured to the older man. Seeing the money, the derelict came over immediately, took the bill, thanked rich dad profusely and hurried off ecstatic with his good fortune.
-"He's not much different from most of my employees," said rich dad. "I've met so many people who say, `Oh, I'm not interested in money.' Yet they'll work at a job for eight hours a day. That's a denial of truth. If they weren't interested in money, then why are they working? That kind of thinking is probably more psychotic than a person who hoards money."
+"He's not much different from most of my employees," said rich dad. "I've met so many people who say, Oh, I'm not interested in money.' Yet they'll work at a job for eight hours a day. That's a denial of truth. If they weren't interested in money, then why are they working? That kind of thinking is probably more psychotic than a person who hoards money."
 As I sat there listening to my rich dad, my mind was flashing back to the countless times my own dad said, "I'm not interested in money." He said those words often. He also covered himself by always saying, "I work because I love my job."
 "So what do we do?" I asked. "Not work for money until all traces of fear and greed are gone?"
-"No, that would be a waste of time," said rich dad. "Emotions are what make us human. Make us real. The word `emotion' stands for energy in motion. Be truthful about your emotions, and use your mind and emotions in your favor, not against yourself."
+"No, that would be a waste of time," said rich dad. "Emotions are what make us human. Make us real. The word emotion' stands for energy in motion. Be truthful about your emotions, and use your mind and emotions in your favor, not against yourself."
 "Whoa!" said Mike.
 "Don't worry about what I just said. It will make more sense in years to come. just be an observer, not a reactor, to your emotions. Most people do not know that it's their emotions that are doing the thinking. Your emotions are your emotions, but you have got to learn to do your own thinking."
 "Can you give me an example?" I asked.
-"Sure," replied rich dad. "When a person says, `I need to find a job,' it's most likely an emotion doing the thinking. Fear of not having money generates that thought."
+"Sure," replied rich dad. "When a person says, I need to find a job,' it's most likely an emotion doing the thinking. Fear of not having money generates that thought."
 "But people do need money if they have bills to pay," I said.
 "Sure they do," smiled rich dad. "All I'm saying is that it's fear that is all too often doing the thinking."
 "I don't understand," said Mike.
-"For example," said rich dad. "If the fear of not having enough money arises, instead of immediately running out to get a job so they can earn a few bucks to kill the fear, they instead might ask themselves this question. `Will a job be the best solution to this fear over the long run?' In my opinion, the answer is `no.' Especially when you look over a person's lifetime. A job is really a short-term solution to a long-term problem."
-"But my dad is always saying, `Stay in school, get good grades, so you can find a safe, secure job.' I spoke out, somewhat confused.
+"For example," said rich dad. "If the fear of not having enough money arises, instead of immediately running out to get a job so they can earn a few bucks to kill the fear, they instead might ask themselves this question. Will a job be the best solution to this fear over the long run?' In my opinion, the answer is no.' Especially when you look over a person's lifetime. A job is really a short-term solution to a long-term problem."
+"But my dad is always saying, Stay in school, get good grades, so you can find a safe, secure job.' I spoke out, somewhat confused.
 "Yes, I understand he says that," said rich dad, smiling. "Most people recommend that, and it's a good idea for most people. But people make that recommendation primarily out of fear."
 "You mean my dad says that because he's afraid?"
 "Yes," said rich dad. "He's terrified that you won't be able to earn money and won't fit into society. Don't get me wrong. He loves you and wants the best for you. And I think his fear is justified. An education and a job are important. But it won't handle the fear. You see, that same fear that makes him get up in the morning to earn a few bucks is the fear that is causing him to be so fanatical about you going to school."

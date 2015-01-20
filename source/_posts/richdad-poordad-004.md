@@ -1,10 +1,10 @@
 title: RichDad PoorDad 004
-date: 2015-01-19 06:46:59
+date: 2015-01-20 09:26:32
 tags: richdad-poordad
 ---
 
 My dad put down the evening paper. "Why do you want to get rich, son?"
-"Because today Jimmy's mom drove up in their new Cadillac, and they were going to their beach house for the weekend. He took three of his friends, but Mike and I weren't invited. They told us we weren't invited because we were `poor kids'."
+"Because today Jimmy's mom drove up in their new Cadillac, and they were going to their beach house for the weekend. He took three of his friends, but Mike and I weren't invited. They told us we weren't invited because we were poor kids'."
 "They did?" my dad asked incredulously.
 "Yeah, they did." I replied in a hurt tone.
 My dad silently shook his head, pushed his glasses up the bridge of his nose and went back to reading the paper. I stood waiting for an answer.

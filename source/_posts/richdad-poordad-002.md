@@ -1,10 +1,10 @@
 title: RichDad PoorDad 002
-date: 2015-01-19 06:47:01
+date: 2015-01-20 09:26:34
 tags: richdad-poordad
 ---
 
 The computer programmer was also unimpressed by the game: "I can buy software to teach me this."
-The banker, however, was moved. "I studied this in school-the accounting part, that is-but I never knew how to apply it to real life. Now I know. I need to get myself out of the `Rat Race.' "
+The banker, however, was moved. "I studied this in school-the accounting part, that is-but I never knew how to apply it to real life. Now I know. I need to get myself out of the Rat Race.' "
 But it was my daughter's comments that most touched me. "I had fun learning," she said. "I learned a lot about how money really works and how to invest."
 Then she added: "Now I know I can choose a profession for the work I want to perform and not because of job security, benefits or howmuch I get paid. If I learn what this game teaches, I'm free to do and study what my heart wants to study. . .rather than study something because businesses are looking for certain job skills. If I learn this, I won't have to worry about job security and Social Security the way most of my classmates already do."
 I was not able to stay and talk with Robert after we had played the game, but we agreed to meet later to further discuss his project. I knew he wanted to use the game to help others become more financially savvy, and I was eager to hear more about his plans.
@@ -12,7 +12,7 @@ My husband and I set up a dinner meeting with Robert and his wife within the nex
 We found out we had a lot in common. We covered the gamut, from sports and plays to restaurants and socio-economic issues. We talked about the changing world. We spent a lot of time discussing how most Americans have little or nothing saved for retirement, as well as the almost bankrupt state of Social Security and Medicare. Would my children be required to pay for the retirement of 75 million baby boomers? We wondered if people realize how risky it is to depend on a
 pension plan.
 Robert's primary concern was the growing gap between the haves and have nots, in America and around the world. A self-taught, self-made entrepreneur who traveled the world putting investments together, Robert was able to retire at the age of 47. He came out of retirement because he shares the same concern I have for my own children. He knows that the world has changed, but education has not changed with it. According to Robert, children spend years in an antiquated educational system, studying subjects they will never use, preparing for a world that no longer exists.
-"Today, the most dangerous advice you can give a child is `Go to school, get good grades and look for a safe secure job,' " he likes to say. "That is old advice, and it's bad advice. If you could see what is happening in Asia, Europe, South America, you would be as concerned as I am."
+"Today, the most dangerous advice you can give a child is Go to school, get good grades and look for a safe secure job,' " he likes to say. "That is old advice, and it's bad advice. If you could see what is happening in Asia, Europe, South America, you would be as concerned as I am."
 It's bad advice, he believes, "because if you want your child to have a financially secure future, they can't play by the old set of rules. It's just too risky."
 I asked him what he meant by "old rules?" .
 "People like me play by a different set of rules from what you play by," he said. "What happens when a corporation announces a downsizing?"
@@ -23,8 +23,8 @@ up."
 "That's right," he said. "And when stock prices go up, people like me, the shareholders, get richer. That is what I mean by a different set of rules. Employees lose; owners and investors win."
 Robert was describing not only the difference between an employee and employer, but also the difference between controlling your own destiny and giving up that control to someone else.
 "But it's hard for most people to understand why that happens," I said. "They just think it's not fair."
-"That's why it is foolish to simply say to a child, `Get a good education,' " he said. "It is foolish to assume that the education the school system provides will prepare your children for the world they will face upon graduation. Each child needs more education. Different education. And they need to know the rules. The different sets of rules."
-"There are rules of money that the rich play by, and there are the rules that the other 95 percent of the population plays by," he said. "And the 95 percent learns those rules at home and in school. That is why it's risky today to simply say to a child, `Study hard and look for a job.' A child today needs a more sophisticated education, and the current system is not delivering the goods. I don't care how many computers they put in the classroom or how much money schools spend. How can the education system teach a subject that it does not know?"
+"That's why it is foolish to simply say to a child, Get a good education,' " he said. "It is foolish to assume that the education the school system provides will prepare your children for the world they will face upon graduation. Each child needs more education. Different education. And they need to know the rules. The different sets of rules."
+"There are rules of money that the rich play by, and there are the rules that the other 95 percent of the population plays by," he said. "And the 95 percent learns those rules at home and in school. That is why it's risky today to simply say to a child, Study hard and look for a job.' A child today needs a more sophisticated education, and the current system is not delivering the goods. I don't care how many computers they put in the classroom or how much money schools spend. How can the education system teach a subject that it does not know?"
 So how does a parent teach their children, what the school does not? How do you teach accounting to a child? Won't they get bored? And how do you teach investing when as a parent you yourself are risk averse? Instead of teaching my children to simply play it safe, I decided it was best to teach them to play it smart.
 "So how would you teach a child about money and all the things we've talked about?" I asked Robert. "How can we make it easy for parents especially when they don't understand it themselves?"
 "I wrote a book on the subject, " he said.
