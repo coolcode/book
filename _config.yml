@@ -92,5 +92,5 @@ feed:
 deploy:
     type: github
     repo: https://github.com/lightbooks/lightbooks.github.io.git
-    branch:
+    branch: master
     message:
