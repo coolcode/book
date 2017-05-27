@@ -1,1 +1,2 @@
-Hi, guys. I am an English learner like you. And at the same time I am a geeker so I try to make a simple blog to post some English essays and novels. Essays or novels being posted on this website would be broken up into sections with about 2000 words as same as the essay on IELTS test exam.
+Hi, guys. I made a simple blog to post some English essays and novels for learning English. 
+All essays or novels on this website would be splitted into posts and the total words of each post are about 2000 as short posts can be easily read in a spare time.
