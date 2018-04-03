@@ -1,87 +1,73 @@
 title: House of Cards 007
-date: 2015-01-24 15:44:27
+date: 2015-01-25 03:46:09
 tags: house-of-cards
 ---
 
-Samuel watched unenthusiastically as Urquhart and his wife were forced by the crush of people towards him. 'Good evening, Francis. Miranda.' Samuel forced his practised smile. 'Congratulations. A 17,000 majority. I know about 600 MPs who are going to be very jealous of you in the morning with a majority like that.'
+The Prime Minister's youthful political secretary was waiting at the end of the corridor which led away from the front door towards the Cabinet Room at the rear of the building. As Urquhart approached, he sensed that the young man was uneasy.
 
-'Michael! Well, I'm sure you managed to hypnotise the female voters of Surbiton once more. If only you could pick up their husbands' votes as well, you too could have a majority like mine!'
+The PM is expecting you, Chief Whip’ he said quite unnecessarily. 'He's in the study upstairs. I’ll let him know you have arrived,' and bounded off up the stairs.
 
-They laughed gently at the banter, accustomed in public to hiding the fact that they did not enjoy each other's company, but there was an embarrassed silence as neither of them could think of a suitable means of disengaging rapidly from the conversation.
+It was a full twelve minutes before he reappeared, leaving Urquhart to stare for the hundredth time at the portraits of previous Prime Ministers which adorned the famous staircase. He could never get over the feeling of how inconsequential so many of the recent holders of the office had been. Uninspiring and unfitted for the task. Times had changed, and for the worse. The likes of Lloyd George and Churchill had been magnificent natural leaders, but one had been promiscuous and the other arrogant and often drunk, and neither would have been tolerated by the modern media in the search for sensationalism. The media's prying and lack of charity had cast a blanket of mediocrity over most holders of the office since the war, stifling individualism and those with real inspiration. Collingridge, chosen largely for his television manner, typified how superficial much of modem politics had become, he thought. He yearned for the grand old days when politicians made their own rules rather than cowering before the rules laid down by the media.
 
-They were rescued by Williams, who had just put down the phone. 'Don't let me interrupt, but Henry will be here any minute.' I’ll come down with you,' volunteered Urquhart immediately.
+The return of the political secretary interrupted his thoughts. 'Sorry to keep you waiting, Chief Whip. He's ready for you now.'
 
-'And you, Michael?' asked Williams.
+As Urquhart entered the room traditionally used by modern Prime Ministers as their study he could see that, in spite of efforts to tidy up the desk, there had been much shuffling of paper and scribbling of notes in the previous hour and a half. An empty bottle of claret stared out of the waste paper bin, and plates covered with crumbs and a withered leaf of lettuce lurked on the windowsill. The Party Chairman sat to the right of the Prime Minister's desk, his notes spilled over the green leather top. Beside them stood a large pile of MPs' biographies supplied by party headquarters.
 
-I’ll wait here. There will be quite a rush when he arrives. I don't want to get trampled.'
+Urquhart brought up a chair and sat in front of the other two, who were silhouetted against the sun as it shone in through the windows overlooking Horse Guards Parade. He squinted into the light, balancing his own folder of notes uneasily on his knee.
 
-Urquhart wondered whether Samuel was having a gentle dig at him, but chose to ignore it and accompanied Williams down the stairs, which had become crowded with excited office staff as the word had spread of the Prime Minister's imminent arrival. The appearance of the Party Chairman and Chief Whip outside on the pavement galvanised the cheerleaders, who resumed their attempts to raise the spirits of the crowd. An organised cheer went up as the armoured black Daimler with its battalion of escorts swung around the square, to be greeted by the brilliance of the television lights and a thousand flaring flashguns as both professional and amateur cameramen tried to capture the scene.
+Without ceremony, Collingridge got straight down to business. 'Francis, you were kind enough to let me have some thoughts on the reshuffle. I am very grateful; you know how useful such suggestions are in stimulating my own thoughts, and you have obviously put a lot of work into them. Now before we get down to the specific details, I thought it would be sensible just to chat about the broad objectives first. You've suggested - well, what shall I call it? - a rather radical reshuffle with six new members being brought into the Cabinet and some extensive swapping of portfolios amongst the rest. Tell me why you would prefer an extensive reshuffle and what you think it would achieve.'
 
-As the car drew to a halt, Collingridge emerged from the rear seat and turned to wave to the crowd and the cameras. Urquhart tried just a little too hard to get to him to shake his hand, and instead managed to get in the way. He retreated apologetically while on the other side of the car Lord Williams, with the chivalry and familiarity which comes of many years, carefully assisted the Prime Minister's wife out of the car and planted an avuncular kiss on her cheek. A bouquet appeared from somewhere along with two dozen party officials and dignitaries who all wished to get in on the act, and the whole heaving throng somehow managed to squeeze through the swing doors and into the building.
+Urquhart did not care for this. He had expected some inevitable discussion of individual appointments, but he was being asked to justify the
 
-Similar scenes of confusion and congestion were repeated inside as the Prime Minister's party tried to push its way upstairs through the workers, pausing only for. a traditional word of thanks to the staff from the stairs, which had to be repeated because of the press photographers had not managed to assemble themselves quickly enough.
+￼strategy behind the reshuffle proposals before he had any chance to sniff out the Prime Minister's own views. He knew that it was not healthy for a Chief Whip to fail to read his Prime Minister's mind correctly, and he wondered whether he was being set up.
 
-Once upstairs in the relative safety of Lord Williams' suite, the signs of strain which had been so well hidden all evening began to appear for the first time on the Prime Minister's face. The television set in the comer was just announcing that the computer was predicting a still lower majority, and Collingridge let out a long, low sigh. His eyes wandered slowly round the room.
+As he peered into the sunlight streaming in from behind the Prime Minister, he could read nothing of the expression on Collingridge's face. He desperately wished now that he had not committed all his thoughts to paper instead of talking them through, but it was too late for regrets.
 
-'Has Charles been around this evening?' he asked quietly. Charles Collingridge was nowhere to be seen. The Prime Minister's eyes met those of the Chairman.
+'Of course, they are only suggestions, indications really of what you might be able to do. I thought in general that it might be better to undertake more rather than fewer changes, simply to indicate that you are firmly in charge of the Government and that you are expecting a lot of new ideas and new thinking from your Ministers. And a chance to retire just a few of our older colleagues; regrettable, but necessary if you are to bring in some new blood and bring on those Junior Ministers who have shown most promise.'
 
-Tm sorry,' the older man replied.
+Dammit, he thought suddenly, that was a stupid thing to say with that ancient bastard Williams sitting on the PM's right hand. He knew he should have been more careful, and now he had a knot in the pit of his stomach. Collingridge had never seemed to be a Prime Minister with grip, one who enjoyed making decisions, and Urquhart had felt sure that most if not all of his proposals would be favourably received. All of his suggested promotions were men of talent which few would deny. He hoped that even fewer would realise that most were also men who owed him.
 
-Sorry for what?’ thought Collingridge. The fact that my brother's a drunk? Sorry that I seem almost to have thrown away our parliamentary majority? Sorry that you will have to carry the can along with me? But anyway, thanks for caring.
+Ministers whom he had helped out of trouble, whose weaknesses he knew, whose sins he had covered up and whose wives and electors would never find out.
 
-He was suddenly feeling desperately tired as the adrenalin ceased to flow. After weeks of being hemmed in on all sides by people and without a single private moment to himself, he felt an overwhelming need to be on his own and he turned away to find somewhere a little quieter and a little more private. Instead he found his way blocked by Urquhart who was standing right by his shoulder. The Chief Whip was thrusting an envelope at him.
+Williams was staring at him with his old, cunning eyes. Did he know, had he figured it out? The room was silent as the Prime Minister tapped his pencil on the desk, clearly having trouble with the argument Urquhart had put forward.
 
-I've been giving some thought to the reshuffle’ he said. 'While this is hardly the time, I know you will be thinking about it over the weekend so I have prepared some suggestions. I know you prefer some positive ideas rather than a blank sheet of paper, so I hope you find this of use.'
+'We've been in power for longer than any Party since the war, which presents a new challenge. Boredom. We need to ensure we have a fresh image for the Government team,' Urquhart continued. 'We must guard against going stale.'
 
-Collingridge looked at the envelope and raised his exhausted eyes to Urquhart. ‘You're right. This is scarcely the time. Perhaps we should be thinking about securing our majority before we start sacking our colleagues’
+That's very interesting, Francis, and I agree with you to a large extent. Teddy and I have been discussing just that sort of problem. We must bring on a new generation of talent, find new impetus by putting new men in new places. And I find many of your suggestions for changes at the lower Ministerial levels below Cabinet very persuasive.'
 
-The sarcasm cut deep into Urquhart, deeper than the Prime Minister had intended, and he realised he had gone too far.
+'But they are not the ones that matter,' Urquhart muttered beneath his breath.
 
-I'm sorry, Francis. I'm afraid I am a little tired. Of course you're quite right to think ahead. Look, I would like you and Teddy to come round on Sunday afternoon to discuss it. Perhaps you would be kind enough to let Teddy have a copy of your letter now, and send one round to me at Downing Street tomorrow - rather, later this morning’
+The trouble is that too much change at the top can be very disruptive. It takes most Cabinet Ministers a year simply to find their feet in a new Department, and a year is a long time to struggle through without being able to show positive signs of progress. Rather than Cabinet changes helping to implement our new programme, Teddy's view is that on balance it would more likely delay the programme.'
 
-Urquhart stood rigid with embarrassment at the semi-public rebuke he had received. He realised that he had been all too anxious about the reshuffle, and cursed himself for his folly. His natural assurance seemed to desert him when it came to Collingridge, a grammar school product who in social terms would have had trouble gaining membership of his club. The role reversal in Government unnerved him, unsettled him, and he found himself acting out of character when he was in the other man's presence. He was frustrated with his inadequacy, and quietly loathed Collingridge
+What new programme?, Urquhart screamed inside his skull. We deliberately published the most flaccid and uncontroversial manifesto we could get away with! He calmed himself before responding.
 
-￼and all his kind for undermining his position. But now was not the time, and he retreated into affability. 'Of course, Prime Minister. I will let Teddy have a copy straight away.'
+‘Don't you think by cutting our majority the electorate was telling us of its desire for some degree of change?'
 
-'Better copy it yourself. Wouldn't do to have that list getting around here tonight,' smiled Collingridge as he tried to bring Urquhart back into the conspiracy of power which always hovers around Downing Street. In any event, I think it's time for me to depart. The BBC will want me bright and sparkling in four hours' time, so I shall wait for the rest of the results in Downing Street’
+'An interesting point. But as you yourself said, no Government in our lifetimes has been in office as long as we have: Without in any way being complacent, Francis, I don't think we could have rewritten the history books if die voters believed we had run out of steam. On balance, I think it suggests that they are content with what we offer, and there is no great sign of them demanding upheaval or change. There's another vital point’ he continued, lust because our majority has been cut, we must avoid giving the impression that we are panicking. That would send entirely the wrong signal to the Party and the country, and could bring about just that demand for change which you are so nervous of. Remember that Macmillan destroyed his own Government by panicking and sacking a third of his Cabinet. "The Night of the Long Knives" they called it, and he was out of office the following year. That was a mistake I am not anxious to repeat. So I'm thinking of a much more controlled approach myself.'
 
-He turned to Williams. 'By the way, what is the computer predicting now?'
+Collingridge slipped a piece of paper across the desk towards Urquhart, who picked it up. On it was printed a list of Cabinet positions, twenty-two in all, with names alongside them.
 
-It's been stuck on 24 for about half an hour now. I think that's it.' There was no sign of pleasure or sense of victory in his voice. He had just presided over the Party's worst election result in nearly two decades.
+'As you see, Francis, I am suggesting no Cabinet changes at all. I hope it will be seen as a sign of great determination and strength. We have a job to do, and I think we should show we want to get straight on with it'
 
-'Never mind, Teddy. A majority is a majority. And it will give the Chief Whip something to do instead of sitting idly around with a majority of over a hundred. Eh, Francis?' And with that he strode out of the room, leaving Urquhart clutching his envelope.
+Urquhart quickly replaced the paper onto the desk, anxious that the tremble in his hand might betray his inner feelings.
 
-With the Prime Minister's departure the crowds both inside and outside the building began perceptibly to melt, and Urquhart made his way to the back of the first floor where he knew the nearest photocopier could be found.
+If that is what you want, Prime Minister,' he said, slipping into a formal tone. ‘I have to say that I am not sure how the Parliamentary Party will react. I've not had sufficient chance to take soundings since the election.'
 
-Room 132A was not an office at all, but a windowless closet barely six feet across which was kept for supplies and confidential photocopying. As Urquhart opened the door the smell hit him before he had time to find the light switch. Slumped on the floor by the narrow metal storage shelves was Charles Collingridge, who had soiled his clothes even as he slept. There was no glass or bottle anywhere to be seen, but the smell of whisky was heavy in the air. He had crawled away to find the least embarrassing place to collapse.
+I'm sure they will accept it. After all, we are proposing a substantial number of changes below Cabinet level to keep them happy’ There was the slightest pause. 'And of course I assume I have your full support?' he asked quizzically.
 
-Urquhart coughed as his nostrils rebelled at the stench, and he reached for his handkerchief and held it to his face. He stepped over to the body and turned it on its back. A shake of the shoulders did little other than disrupt still further the fitful heavy breathing. A firmer shake gave nothing more, and a gentle slap across the cheeks produced equally little result.
+There was another pause, slightly longer this time, until Urquhart heard himself responding. 'Of course, Prime Minister’
 
-He gazed with disgust at what he saw. Suddenly Urquhart's body stiffened as his contempt mingled with the lingering humiliation he had suffered at the Prime Minister's hands and welded into a craving for revenge. He turned cold and the hairs on the nape of his neck tingled as he stood-over the stupefied body. Slowly, powerfully, Urquhart's hand swung down and began to slap Collingridge's face and, as his signet ring began to rake across the flesh of the cheeks, the whole head whipped from side to side until blood began to seep from the mouth and the body coughed and retched. Urquhart bent over the other man, staring closely as if to see that the body still breathed. He remained motionless for several minutes, like a cat at its prey, his muscles tense and expression contorted until he straightened with a start, towering over the drunk.
+His own voice sounded strangely distant. He knew he had no choice: it was either support or suicide through instant resignation. The words of acceptance came out automatically, but without conviction. He felt the Whips Office closing around him like the walls of the condemned cell. Once again Urquhart felt uneasy in Collingridge's presence, not knowing how to read him or how to respond to him. But he could not leave it there. His words faltered as he found his mouth suddenly dry.
 
-'And your brother's no damned better,' he hissed.
+‘I have to say that I... was rather looking for a change myself. A bit of new experience... a new challenge’
 
-He turned to the photocopier, took the letter out of his pocket, made one copy and left without looking back.
+￼'Francis’ the Prime Minister said in his most reassuring manner, 'if I move you, I have to move others. The whole pile of dominoes begins to fall over. And I need you where you are. You are an excellent Chief Whip. You have devoted yourself to burrowing right into the heart and soul of the Parliamentary Party. You know them so well, and we have to face it that with such a small majority there might be one or two sticky patches over the next few years. I need to have a Chief Whip who is strong enough to handle them. I need you, Francis. You are so good behind the scenes. We can leave it to others to do the job out front’
 
-￼SUNDAY 13th JUNE
+You appear to have made up your mind’ Urquhart said, hoping that it sounded like a statement of fact rather than the accusation which he felt. ‘I have’ replied the Prime Minister. 'And I am deeply grateful that I can rely on your understanding and support.'
 
-It was the Sunday after the election. At 3.50 p.m. Urquhart's official car turned from Whitehall into Downing Street to be greeted by a policeman's starched salute and a hundred exploding flashguns. The press were gathered behind the barriers which cordoned them off across the road from the world's most famous front door. It stood wide open as the car drew up - like a political black hole, Urquhart thought, into which new Prime Ministers disappeared and rarely if ever emerged without being surrounded and suffocated by the protective hordes of civil servants. Somehow the building seemed to suck all political vitality out of some leaders.
+Urquhart felt the cell door slam shut. He thanked them, cast a dark eye at the Party Chairman, and took his farewell. Williams hadn't uttered a single word.
 
-He had made sure to travel on the left-hand side of the car's rear seat that day in order that his exit in front of Number Ten would provide an unimpeded view of himself for the TV and press cameras, and as he climbed out and stretched himself to his full height he was greeted by a chorus of shouted questions from across the road, providing him with a good excuse to walk over for a few quick words amidst the jungle of notepads and microphones. He spotted Charles Goodman, the legendary Press Association figure, firmly planted under his battered trilby and conveniently wedged between ITN and BBC news camera crews.
+He left through the basement of Number Ten which led him past the ruins of the old Tudor tennis court to the Cabinet Office, which faces onto Whitehall. He was well out of sight of die waiting press. He couldn't face them. He had been with the Prime Minister less than half an hour, and he did not trust his face to back up the lies he would have to tell them. He got a security guard at the Cabinet Office to telephone for his car to be brought round.
 
-'Hello, Charles. Did you have any money on the result?' he enquired, but Goodman was already into his first question as his colleagues pressed around him.
-
-'Are you here to advise the Prime Minister with the reshuffle, Mr Urquhart, or has he called you to give you a new job?'
-
-'Well, I'm here to discuss a number of things, but I suppose the reshuffle might come into it’ Urquhart responded coyly.
-
-It's rumoured that you are expecting a major new post.'
-
-'Can't comment on rumours, Charles, and anyway you know that's one for the PM to decide. I'm here at this stage solely to give him some moral support.'
-
-‘You’ll be going to advise the PM along with Lord Williams, will you then?'
-
-'Lord Williams, has he arrived yet?' Urquhart tried to hide any suggestion of surprise. 'About 2.30. We were wondering whether someone else was going to turn up.'
-
-Urquhart hoped that they hadn't noticed the steel which he felt entering his eyes as he realised that the Prime Minister and Party Chairman had been working on the reshuffle without him for an hour and a half. Then I must go. Can't keep them waiting,' he smiled. He turned smartly and strode back across the road and over the threshold. He was annoyed, and it smothered the sense of excitement which he still felt whenever he passed that way.
+The battered BMW had been standing outside the house in Cambridge Street, Pimlico for almost a quarter of an hour. Amidst the chaos of discarded newspapers and granary bar wrappers which covered the vacant seats, Mattie Storin sat biting her lip. Ever since the reshuffle announcement from Downing Street late that afternoon, fevered discussions had been undertaken in editorial offices trying to decide whether the Prime Minister had been brilliant and audacious or simply lost his nerve,- they needed the views of the men who had helped shape the decisions. Williams had been persuasive and supportive as usual, but Urquhart's phone had only rung and rung.
 

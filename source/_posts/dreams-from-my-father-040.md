@@ -1,49 +1,107 @@
 title: Dreams from My Father 040
-date: 2015-01-24 15:43:55
+date: 2015-01-25 03:45:37
 tags: dreams-from-my-father
 ---
 
-“The only thing that saved me was Kenya High School. It was a girls’ school that had once been reserved for the British. Very strict, and still very racist-it was only when I was there, after most of the white students had left, that they allowed African teachers to lecture. But despite these things, I became active there. It was a boarding school, so during the school term I would stay there instead of with the Old Man. The school gave me some sense of order, you see. Something to hold on to.
+“So that’s what we’re dealing with here. Where I can, I try to fill the void. I expose students to African history, geography, artistic traditions. I try to give them a different values orientation-something to counteract the materialism and individualism and instant gratification that’s fed to them the other fifteen hours of their day. I teach them that Africans are a communal people. That Africans respect their elders. Some of my European colleagues feel threatened by this, but I tell them it’s not about denigrating other cultures. It’s about giving these young people a base for themselves. Unless they’re rooted in their own traditions, they won’t ever be able to appreciate what other cultures have to offer-”
 
-“One year, the Old Man couldn’t even pay my school fees, and I was sent home. I was so ashamed, I cried all night. I didn’t know what I would do. But I was lucky. One of the headmistresses heard about my situation and gave me a scholarship that let me stay on. It’s sad to say, but as much as I cared for the Old Man, and worried about him, I was glad not to have to live with him. I just left him to himself and never looked back.
+There was a knock on the door, and a gangly young man peeked into the office. Asante apologized; he had another appointment but would be happy to meet with us again to discuss possible youth programs for the area. Walking Johnnie and me to the door, Asante asked me about my name, and I told him about my background.
 
-“In my last two years in high school, the Old Man’s situation improved. Kenyatta died, and somehow the Old Man was able to work again in government. He got a job with the Ministry of Finance and started to have money again, and influence. But I think he never got over the bitterness of what had happened to him, seeing his other age-mates who had been more politically astute rise ahead of him. And it was too late to pick up the pieces of his family. For a long time he lived alone in a hotel room, even when he could afford again to buy a house. He would have different women for short spells-Europeans, Africans-but nothing ever lasted. I almost never saw him, and when I did, he didn’t know how to behave with me. We were like strangers, but you know, he still wanted to pretend that he was a model father and could tell me how to behave. I remember when I got my scholarship to study in Germany, I was afraid to tell him. I thought he might say I was too young to go and interfere with my student visa, which had to be approved by the government. So I just left without saying good-bye.
+“I thought so!” Asante smiled. “You know, that’s where I went for my first trip to the continent. Kenya. Fifteen years ago, but I remember that trip like it was yesterday. Changed my life forever. The people were so welcoming. And the land-I’d never seen anything so beautiful. It really felt like I had come home.” His face glowed with the memory. “When was the last time you were back?”
 
-“It was only in Germany that I began to let go of some of the anger I felt towards him. With distance, I could see what he had gone through, how even he had never really understood himself. Only at the end, after making such a mess of
+I hesitated. “Actually, I’ve never been there.”
 
-his life, do I think he was maybe beginning to change. The last time I saw him, he was on a business trip, representing Kenya at an international conference in Europe. I was apprehensive, because we hadn’t spoken for so long. But when he arrived in Germany he seemed really relaxed, almost peaceful. We had a really good time. You know, even when he was being completely unreasonable he could be so charming! He took me with him to London, and we stayed in a fancy hotel, and he introduced me to all his friends at a British club. He was pulling out chairs for me and making a great fuss, telling all his friends how proud he was of me. On the flight back from London, I noticed a little glass tumbler his whiskey was being served in, and I said I was going to filch it, and he said, ‘There’s no need for such things.’ He called the stewardess and asked her to bring me a whole set of the glasses, as if he owned the plane. When the stewardess handed them to me, I felt like a little girl again. Like his princess.
+Asante looked momentarily confused. “Well...” he said after a pause, “I’m sure that when you do make the trip, it’ll change your life, too.” With that, he shook our hands, waved in the young man waiting in the hall, and shut the door behind him.
 
-“On the last day of his visit, he took me to lunch, and we talked about the future. He asked me if I needed money and insisted that I take something. He told me that once I returned to Kenya, he would find me a proper husband. It was touching, you know, what he was trying to do...as if he could make up for all the lost time. By then, he had just fathered another son, George, with a young woman he was living with. So I told him, ‘Roy and myself, we’re already adults. We have our own ways, our own memories, and what has happened between all of us is hard to undo. But with George, the baby, he is a clean slate. You have a chance to really do right by him.’ And he just nodded, as if...as if...”
+Johnnie and I were quiet for most of the ride back to our office. We hit a patch of traffic, and Johnnie turned and said, “Can I ask you something, Barack?”
 
-For some time, Auma had been staring at our father’s photograph, soft-focused in the dim light. Now she stood up and went to the window, her back turned to me. She was clutching herself, her hands inching over her hunched shoulders. She began to shake violently, and I came up behind her and put my arms around her as she wept, the sorrow washing through her in slow, deep waves. “Do you see, Barack?” she said between sobs. “I was just starting to know him. It was just getting to the point where...where he might have explained himself. Sometimes I think he might have really turned the corner, found some inner peace. When he died, I felt so...so cheated. As cheated as you must have felt.”
+“Sure.”
 
-Outside, a car screeched around a corner; a solitary man crossed under the yellow circle of a streetlight. As if by force of will, Auma’s body suddenly straightened, her breath steadied, and she wiped her eyes with her shirtsleeve. “Ah, look at what you’ve made your sister do,” she said, and let out a fragile laugh. She turned to me. “You know, the Old Man used to talk about you so much! He would show off your picture to everybody and tell us how well you were doing in school. I guess your mum and him used to exchange letters. I think those letters really comforted him. During the really bad times, when everybody seemed to have turned against him, he would bring her letters into my room and start reading them out loud. He would wake me up and make me listen, and when he was finished, he would shake the letter in his hand and say how kind your mum had been. ‘You see!’ he would say. ‘At least there are people who truly care for me.’ He’d say this to himself over and over again....”
+“Why haven’t you ever gone to Kenya?”
 
-While Auma brushed her teeth, I prepared the convertible sofa for her. Soon she was curled up under a blanket, sound asleep. But I remained awake, propped up in a chair with the desk light on, looking at the stillness of her face, listening to the rhythm of her breathing, trying to make some sense out of all that she’d said. I felt as if my world had been turned on its head; as if I had woken up to find a blue sun in the yellow sky, or heard animals speaking like men. All my life, I had carried a single image of my father, one that I had sometimes rebelled against but had never questioned, one that I had later tried to take as my own. The brilliant scholar, the generous friend, the upstanding leader-my father had been all those things. All those things and more, because except for that one brief visit in Hawaii, he had never
+“I don’t know. Maybe I’m scared of what I’ll find out.”
 
-been present to foil the image, because I hadn’t seen what perhaps most men see at some point in their lives: their father’s body shrinking, their father’s best hopes dashed, their father’s face lined with grief and regret.
+“Huh.” Johnnie lit a cigarette and rolled down the window to let out the smoke. “It’s funny,” he said, “how listening
 
-Yes, I’d seen weakness in other men-Gramps and his disappointments, Lolo and his compromise. But these men had become object lessons for me, men I might love but never emulate, white men and brown men whose fates didn’t speak to my own. It was into my father’s image, the black man, son of Africa, that I’d packed all the attributes I sought in myself, the attributes of Martin and Malcolm, DuBois and Mandela. And if later I saw that the black men I knew-Frank or Ray or Will or Rafiq-fell short of such lofty standards; if I had learned to respect these men for the struggles they went through, recognizing them as my own-my father’s voice had nevertheless remained untainted, inspiring, rebuking, granting or withholding approval. You do not work hard enough, Barry. You must help in your people’s struggle. Wake up, black man!
+to Asante back there made me think about my old man. I mean, it’s not like my old man is real educated or nothing. He doesn’t know anything about Africa. After my mother died, he had to raise me and my brothers on his own. Drove a delivery truck for Spiegel’s for twenty years. They laid him off before his pension vested, so he’s still working-for another company, but doing the same thing every day. Lifting other people’s furniture.
 
-Now, as I sat in the glow of a single light bulb, rocking slightly on a hard-backed chair, that image had suddenly vanished. Replaced by...what? A bitter drunk? An abusive husband? A defeated, lonely bureaucrat? To think that all my life I had been wrestling with nothing more than a ghost! For a moment I felt giddy; if Auma hadn’t been in the room, I would have probably laughed out loud. The king is overthrown, I thought. The emerald curtain is pulled aside. The rabble of my head is free to run riot; I can do what I damn well please. For what man, if not my own father, has the power to tell me otherwise? Whatever I do, it seems, I won’t do much worse than he did.
+“Never seemed like he really enjoyed life, you know what I mean? On weekends, he’d just hang around the house, and some of my uncles would come over and they’d drink and listen to music. They’d complain about what their bosses had done to ’em this week. The Man did this. The Man did that. But if one of ’em actually started talking about doing something different, or had a new idea, the rest of ’em would just tear the guy up. ‘How’s some no-’count nigger like you gonna start himself a business?’ one of ’em’d say. And somebody else’d say, ‘Take that glass away from Jimmy-that wine done gone to his head.’ They’d all be laughing, but I could tell they weren’t laughing inside. Sometimes, if I was around, my uncles’d start talking about me. ‘Hey, boy, that sure is a knobby head you got.’ ‘Hey, boy, you starting to sound just like a white man, with all them big words.’”
 
-The night wore on; I tried to regain my balance, sensing that there was little satisfaction to be had from my newfound liberation. What stood in the way of my succumbing to the same defeat that had brought down the Old Man? Who might protect me from doubt or warn me against all the traps that seem laid in a black man’s soul? The fantasy of my father had at least kept me from despair. Now he was dead, truly. He could no longer tell me how to live.
+Johnnie blew a stream of smoke into the hazy air. “When I was in high school, I got to feeling ashamed of him. My old man, I mean. Working like a dog. Sitting there, getting drunk with his brothers. I swore I’d never end up like that. But you know, when I thought about it later, I realized my old man never laughed when I talked about wanting to go to college. I mean, he never said anything one way or the other, but he always made sure me and my brother got up for school, that we didn’t have to work, that we had a little walking-around money. The day I graduated, I remember he showed up in a jacket and tie, and he just shook my hand. That’s all...just shook my hand, then went back to work....”
 
-All he could tell me, perhaps, was what had happened to him. It occurred to me that for all the new information, I still didn’t know the man my father had been. What had happened to all his vigor, his promise? What had shaped his ambitions? I imagined once again the first and only time we’d met, the man I now knew must have been as apprehensive as I was, the man who had returned to Hawaii to sift through his past and perhaps try and reclaim that best part of him, the part that had been misplaced. He hadn’t been able to tell me his true feelings then, any more than I had been able to express my ten-year-old desires. We had been frozen by the sight of the other, unable to escape the suspicion that under examination our true selves would be found wanting. Now, fifteen years later, I looked into Auma’s sleeping face and saw the price we had paid for that silence.
+Johnnie stopped talking; the traffic cleared. I started thinking about those posters back in Asante’s office-posters of Nefertiti, regal and dark-hued in her golden throne; and Shaka Zulu, fierce and proud in his leopard-skin tunic-and then further back to that day years ago, before my father came for his visit to Hawaii, when I had gone to the library in search of my own magic kingdom, my own glorious birthright. I wondered how much difference those posters would make to the boy we had just left in Asante’s office. Probably not as much as Asante himself, I thought. A man willing to listen. A hand placed on a young man’s shoulders.
 
-Ten days later, Auma and I sat in the hard plastic seats of an airport terminal, looking out at the planes through the high wall of glass. I asked her what she was thinking about, and she smiled softly.
+“He was there,” I said to Johnnie.
 
-“I was thinking about Alego,” she said. “Home Square-our grandfather’s land, where Granny still lives. It’s the most beautiful place, Barack. When I’m in Germany, and it’s cold outside, and I’m feeling lonely, sometimes I close my eyes and imagine I’m there. Sitting in the compound, surrounded by big trees that our grandfather planted. Granny is talking, telling me something funny, and I can hear the cow swishing its tall behind us, and the chickens pecking at the edges of the field, and the smell of the fire from the cooking hut. And under the mango tree, near the cornfields, is the place where the Old Man is buried....”
+“Who?”
 
-Her flight was starting to board. We remained seated, and Auma closed her eyes, squeezing my hand. “We need to go home,” she said. “We need to go home, Barack, and see him there.”
+“Your father. He was there for you.”
 
-CHAPTER TWELVE
+Johnnie scratched his arm. “Yeah, Barack. I guess he was.” “You ever tell him that?”
 
-RAFIQ HAD DONE HIS best to spruce the place up. There was a new sign above the entrance, and the door had been propped open to let in the spring light. The floors were freshly scrubbed, the furniture rearranged. Rafiq wore a black suit and a black leather tie; his leather kufu was polished to a high gloss. For several minutes, he fussed over a long folding table set up on one side of the room, instructing a couple of his men on how to arrange the cookies and punch, fidgeting with the picture of Harold that hung from the wall.
+“Naw. We’re not real good at talking.” Johnnie looked out the window, then turned to me. “Maybe I should though, huh.”
 
-“That look straight to you?” he asked me.
+“Yeah, John,” I said, nodding. “Maybe you should.”
 
-“It’s straight, Rafiq.”
+Over the next two months, Asante and Dr. Collier helped us develop a proposal for a youth counseling network, something to provide at-risk teenagers with mentoring and tutorial services and to involve parents in a long-term planning process for reform. It was an exciting project, but my mind was elsewhere. When the proposal was finished, I told Johnnie that I’d be gone for a few days but that he should go ahead with some of the meetings we’d scheduled, to start lining up broader support.
 
-The mayor was coming to cut the ribbon for the new MET intake center opening in Roseland. It was considered a
+“Where’re you going?” he asked me. “To see my brother.”
+
+“I didn’t know you had a brother.” “I haven’t had one that long.”
+
+The next morning, I flew down to Washington, D.C., where my brother Roy now lived. We had first spoken to each other during Auma’s visit to Chicago; she had told me then that Roy had married an American Peace Corps worker and had moved to the States. One day we had called him up just to say hello. He had seemed happy to hear from us, his voice deep and unruffled, as if we had talked only yesterday. His job, his wife, his new life in America-everything was “lovely,” he said. The word rolled out of him slowly, the syllables drawn out. “Looove-leee.” A visit from me would be “fan-taaas-tic.” Staying with him and his wife would be “nooo prooob-lem.” After we got off the phone, I had told Auma that he sounded well. She looked at me doubtfully.
+
+“Yah, you never know with Roy,” she had said. “He doesn’t always show his true feelings. He’s like the Old Man in that way. In fact, although they didn’t get along, he really reminds me of the Old Man in many ways. At least that’s how he was in Nairobi. I haven’t seen him since David’s funeral, though, so maybe marriage has settled him down.”
+
+She didn’t say much more than that; I should get to know him for myself, she said. And so Roy and I had arranged a visit; I would fly to D.C. for the long weekend, we would see the sights, it would be a wonderful time. Only now, as I searched the emptying gate at National, Roy was nowhere to be found. I called his house and he answered, sounding apologetic.
+
+“Listen, brother-you think maybe you can stay in a hotel tonight?”
+
+“Why? Is something wrong?”
+
+“Nothing serious. It’s just, well, me and the wife, we had a little argument. So having you here tonight might not be so
+
+good, you understand?”
+
+“Sure. I-”
+
+“You call me when you find a hotel, okay? We’ll meet tonight and have dinner. I’ll pick you up at eight.”
+
+I checked into the cheapest room I could find and waited. At nine, I heard a knock. When I opened the door, I found a
+
+big man standing there with his hands in his pockets, an even-toothed grin breaking across his ebony face.
+
+“Hey, brother,” he said. “How’s life?”
+
+In the pictures I had of Roy, he was slender, dressed in African print, with an Afro, a goatee, a mustache. The man
+
+who embraced me now was much heavier, over two hundred pounds, I guessed, the flesh on his cheeks pressing out beneath a thick pair of glasses. The goatee was gone; the African shirt had been replaced by a gray sports coat, white shirt, and tie. Auma had been right, though; his resemblance to the Old Man was unnerving. Looking at my brother, I felt as if I were ten years old again.
+
+“You’ve gained some weight,” I said as we walked to his car.
+
+Roy looked down at his generous belly and gave it a pat. “Eh, it’s this fast food, man. It’s everywhere. McDonald’s. Burger King. You don’t even have to get out of the car to have these things. Two all-beef patties, special sauce, lettuce, cheese. The Double Whopper with cheese.” He shook his head. “They tell me I can have it right away. My way! Fantastic!”
+
+He threw back his head to laugh, a magical, inward sound that made his whole body shake, as if he couldn’t get over the wonders this new life had to offer. It was infectious, his laughter-although I wasn’t laughing as we made our way to dinner. His Toyota was too small for his bulk-he looked like a kid in a carnival bumper car-and it didn’t seem as if he’d yet mastered a stick shift or the rules of the road, including the speed limit. Twice we almost collided with oncoming cars; once, at a turn, we careened over a high curb.
+
+“You always drive this way?” I shouted over the music blasting out of his tape deck.
+
+Roy smiled, shifting into fifth. “I’m not so good, eh? Mary, my wife, she’s always complaining, too. Especially since the accident...”
+
+“What accident?”
+
+“Ah, it was nothing. You see I’m still here. Alive and breathing!” And again he laughed and shook his head, as if the car worked independently of him, as if our safe arrival would be yet one more example of God’s ample blessings.
+
+The restaurant was Mexican, beside a marina, and we chose a table with a view out over the water. I ordered a beer, Roy a margarita, and for a while we made small talk about my work and his accounting job at a large mortgage finance company. He ate with gusto, drank a second margarita; he laughed and joked about his adventures in America. But as the meal wore on, the effort he was making began to show. Eventually, I came around to asking him why his wife hadn’t joined us. His smile evaporated.
+
+“Ah, I think we’re getting divorced,” he said.
+
+“I’m sorry.”
+
+“She says she’s tired of me staying out late. She says I drink too much. She says I’m becoming just like the Old Man.” “What do you think?”
+
+“What do I think?” He lowered his head, then looked at me somberly, the flame of the tea candles dancing like tiny
+
+bonfires across the lenses of his glasses. “The truth is,” he said, leaning his weight forward, “I don’t think I really like myself. And I blame the Old Man for this.”
+
+For the next hour, he recounted all the hard times that Auma had spoken of-of being yanked away from his mother and everything familiar; the Old Man’s sudden descent into poverty; the arguments and breakdown and eventual flight. He told me about his life after leaving our father’s house; how, bouncing from relative to relative, he had gained admission to the University of Nairobi, then secured a job with a local accounting firm after graduation; how he had taught himself the discipline of work, always arriving at his job early and completing his tasks no matter how late he was out the night before. Listening to him, I felt the same admiration that I’d felt when listening to Auma talk about her life, the resilience they had both displayed, the same stubborn strength that had lifted them out of bad circumstances. Except in Auma I had also sensed a willingness to put the past behind her, a capacity to somehow forgive, if not
 

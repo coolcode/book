@@ -1,141 +1,103 @@
 title: Dreams from My Father 044
-date: 2015-01-24 15:43:51
+date: 2015-01-25 03:45:33
 tags: dreams-from-my-father
 ---
 
-The parents sat down, and everyone fell into silence. Shirley started to light a cigarette, but Angela elbowed her in the
+The day before Thanksgiving, Harold Washington died.
 
-ribs.
+It occurred without warning. Only a few months earlier, Harold had won reelection, handily beating Vrdolyak and Byrne, breaking the deadlock that had prevailed in the city for the previous four years. He had run a cautious campaign this time out, professionally managed, without any of the fervor of 1983; a campaign of consolidation, of balanced budgets and public works. He reached out to some of the old-time Machine politicians, the Irish and the Poles, ready to make peace. The business community sent him their checks, resigned to his presence. So secure was his power that rumblings of discontent had finally surfaced within his own base, among black nationalists upset with his willingness to cut whites and Hispanics into the action, among activists disappointed with his failure to tackle poverty head-on, and among people who preferred the dream to the reality, impotence to compromise.
 
-“We’re supposed to be concerned about health, remember?”
+Harold didn’t pay such critics much attention. He saw no reason to take any big risks, no reason to hurry. He said he’d be mayor for the next twenty years.
 
-“It’s too late for me, girl,” Shirley muttered, but the pack went back into her purse. A group of men in suits and ties
+And then death: sudden, simple, final, almost ridiculous in its ordinariness, the heart of an overweight man giving way.
 
-came out of the door behind the receptionist’s desk and gave our contingent the once-over as they walked to the elevator. Linda whispered something to Bernadette; Bernadette whispered back.
+It rained that weekend, cold and steady. In the neighborhood, the streets were silent. Indoors and outside, people cried. The black radio stations replayed Harold’s speeches, hour after hour, trying to summon the dead. At City Hall, the lines wound around several blocks as mourners visited the body, lying in state. Everywhere black people appeared dazed, stricken, uncertain of direction, frightened of the future.
 
-“What’s everybody whispering for?” I asked loudly.
+By the time of the funeral, Washington loyalists had worked through the initial shock. They began to meet, regroup, trying to decide on a strategy for maintaining control, trying to select Harold’s rightful heir. But it was too late for that. There was no political organization in place, no clearly defined principles to follow. The entire of black politics had
 
-The children giggled. Bernadette said, “I feel like I’m waiting to see the principal or something.”
+centered on one man who radiated like a sun. Now that he was gone, no one could agree on what that presence had meant.
 
-“You hear that, everybody,” I said. “They build these big offices to make you feel intimidated. Just remember that this
+The loyalists squabbled. Factions emerged. Rumors flew. By Monday, the day the city council was to select a new mayor to serve until the special election, the coalition that had first put Harold in office was all but extinguished. I went down to City Hall that evening to watch this second death. People, mostly black, had been gathering outside the city council’s chambers since late afternoon-old people, curiosity seekers, men and women with banners and signs. They shouted at the black aldermen who had cut deals with the white bloc. They waved dollar bills at the soft-spoken black alderman-a holdover from Machine days-behind whom the white aldermen had thrown their support. They called this man a sellout and an Uncle Tom. They chanted and stomped and swore never to leave.
 
-is a public authority. Folks who work here are responsible to you.”
+But power was patient and knew what it wanted; power could out-wait slogans and prayers and candlelight vigils. Around midnight, just before the council got around to taking a vote, the door to the chambers opened briefly and I saw two of the aldermen off in a huddle. One, black, had been Harold’s man; the other, white, Vrdolyak’s. They were whispering now, smiling briefly, then looking out at the still-chanting crowd and quickly suppressing their smiles, large, fleshy men in double-breasted suits with the same look of hunger in their eyes-men who knew the score.
 
-“Excuse me,” the receptionist said to us, her voice rising to match mine. “I’ve been told that the director will not be
+I left after that. I pushed through the crowds that overflowed into the street and began walking across Daley Plaza toward my car. The wind whipped up cold and sharp as a blade, and I watched a handmade sign tumble past me. HIS SPIRIT LIVES ON, the sign read in heavy block letters. And beneath the words that picture I had seen so many times while waiting for a chair in Smitty’s Barbershop: the handsome, grizzled face; the indulgent smile; the twinkling eyes; now blowing across the empty space, as easily as an autumn leaf.
 
-able to see you today. You should report any problems you have to Mr. Anderson out in Altgeld.”
+The months passed at a breathless pace, with constant reminders of all the things left undone. We worked with a citywide coalition in support of school reform. We held a series of joint meetings with Mexicans in the Southeast Side to craft a common environmental strategy for the region. I drove Johnnie nuts trying to cram him with the things it had taken me three years to learn.
 
-“Look, we’ve already seen Mr. Anderson,” Bernadette said. “If the director’s not here, we’d like to see his deputy.” “I’m sorry but that’s not possible. If you don’t leave right now, I’ll have to call Security.”
+“So who did you meet with this week?” I would ask.
 
-At that moment, the elevator doors opened and several TV film crews came in, along with various reporters. “Is this
+“Well, there’s this woman, Mrs. Banks, over at True Vine Holiness Church. Seems like she’s got potential...hold on, yeah, here it is. Teacher, interested in education. I think she’ll definitely work with us.”
 
-the protest about asbestos?” one of the reporters asked me.
+“What does her husband do?”
 
-I pointed to Sadie. “She’s the spokesperson.”
+“You know, I forgot to ask her-”
 
-The TV crews began to set up, and the reporters took out their notebooks. Sadie excused herself and dragged me
+“What does she think of the teachers’ union?”
 
-aside.
+“Damn, Barack, I only had half an hour....”
 
-“I don’t wanna talk in front of no cameras.”
+In February, I received my acceptance from Harvard. The letter came with a thick packet of information. It reminded
 
-“Why’s that?”
+me of the packet I’d received from Punahou that summer fourteen years earlier. I remembered how Gramps had stayed up the whole night reading from the catalog about music lessons and advanced placement courses, glee clubs and baccalaureates; how he had waved that catalog and told me it would be my meal ticket, that the contacts I made at a school like Punahou would last me a lifetime, that I would move in charmed circles and have all the opportunities that he’d never had. I remembered how, at the end of the evening, he had smiled and tousled my hair, his breath smelling of
 
-“I don’t know. I never been on TV before.”
+whiskey, his eyes shining as if he were about to cry. And I had smiled back at him, pretending to understand but actually wishing I was still in Indonesia running barefoot along a paddy field, with my feet sinking into the cool, wet mud, part of a chain of other brown boys chasing after a tattered kite.
 
-“You’ll be fine.”
+I felt something like that now.
 
-In a few minutes the cameras were rolling, and Sadie, her voice quavering slightly, held her first press conference. As
+I had scheduled a luncheon that week at our office for the twenty or so ministers whose churches had agreed to join the organization. Most of the ministers we’d invited showed up, as did most of our key leadership. Together we discussed strategies for the coming year, the lessons learned from Harold’s death. We set dates for a training retreat, agreed on a schedule of dues, talked about the continued need to recruit more churches. When we were finished, I announced that I would be leaving in May and that Johnnie would be taking over as director.
 
-she started to field questions, a woman in a red suit and heavy mascara rushed into the reception area. She smiled tightly at Sadie, introducing herself as the director’s assistant, Ms. Broadnax. “I’m so sorry that the director isn’t here,” Ms. Broadnax said. “If you’ll just come this way, I’m sure we can clear up this whole matter.”
+No one was surprised. They all came up to me afterward and offered their congratulations. Reverend Philips assured me I had made a wise choice. Angela and Mona said they always knew I’d amount to something someday. Shirley asked me if I’d be willing to advise a nephew of hers who had fallen down a manhole and wanted to sue.
 
-“Is there asbestos in all CHA units?” a reporter shouted.
+Only Mary seemed upset. After most of the ministers had left, she helped Will, Johnnie, and me clean up. When I asked her if she needed a ride, she started shaking her head.
 
-“Will the director meet with the parents?”
+“What is it with you men?” she said, looking at Will and myself. Her voice trembled slightly as she pulled on her coat. “Why is it you’re always in a hurry? Why is it that what you have isn’t ever good enough?”
 
-“We’re interested in the best possible outcome for the residents,” Ms. Broadnax shouted over her shoulder. We
+I started to say something, then thought about Mary’s two daughters at home, the father that they would never know. Instead, I walked her to the door and gave her a hug. When she was gone, I returned to the meeting room, where Will was working on a plate of leftover chicken wings.
 
-followed her into a large room where several gloomy officials were already seated around a conference table. Ms. Broadnax remarked on how cute the children were and offered everyone coffee and doughnuts.
+“Want some?” he asked in between bites.
 
-“We don’t need doughnuts,” Linda said. “We need answers.”
+I shook my head, taking a seat across the table from him. He watched me for a while, chewing silently, sucking hot sauce off his fingers.
 
-And that was it. Without a word from me, the parents found out that no tests had been done and obtained a promise that testing would start by the end of the day. They negotiated a meeting with the director, collected a handful of business cards, and thanked Ms. Broadnax for her time. The date of the meeting was announced to the press before we crammed back into the elevator to meet our bus. Out on the street, Linda insisted that I treat everybody, including the bus driver, to caramel popcorn. As the bus pulled away, I tried to conduct an evaluation, pointing out the importance of preparation, how everyone had worked as a team.
+“Place kinda grows on you, don’t it?” he said finally.
 
-“Did you see that woman’s face when she saw the cameras?”
+I nodded. “Yeah, Will. It does.”
 
-“What about her acting all nice to the kids? Just trying to cozy up to us so we wouldn’t ask no questions.”
+He took a sip from his soda and let out a small burp. “Three years ain’t that long to be gone,” he said.
 
-“Wasn’t Sadie terrific? You did us proud, Sadie.”
+“How do you know I’m gonna be back?”
 
-“I got to call my cousin to make sure she gets her VCR set up. We gonna be on TV.”
+“I don’t know how I know,” he said, pushing away his plate. “I just know, that’s all.” Without another word he went
 
-I tried to stop everybody from talking at once, but Mona tugged on my shirt. “Give it up, Barack. Here.” She handed
+to wash his hands, before mounting his bike and riding off down the street.
 
-me a bag of popcorn. “Eat.”
+I woke up at six A.M. that Sunday. It was still dark outside. I shaved, brushed the lint from my only suit, and arrived at the church by seven-thirty. Most of the pews were already filled. A white-gloved usher led me past elderly matrons in wide plumaged hats, tall unsmiling men in suits and ties and mud-cloth kufis, children in their Sunday best. A parent from Dr. Collier’s school waved at me; an official from the CHA with whom I’d had several run-ins nodded curtly. I shunted through to the center of a row and stuffed myself between a plump older woman who failed to scoot over and a young family of four, the father already sweating in his coarse woolen jacket, the mother telling the two young boys beside her to stop kicking each other.
 
-I took a seat beside her. Mr. Lucas hoisted the children up onto his lap for the view of Buckingham Fountain. As I
+“Where’s God?” I overheard the toddler ask his brother.
 
-chewed on the gooey popcorn, looking out at the lake, calm and turquoise now, I tried to recall a more contented moment.
+“Shut up,” the older boy replied.
 
-I changed as a result of that bus trip, in a fundamental way. It was the sort of change that’s important not because it alters your concrete circumstances in some way (wealth, security, fame) but because it hints at what might be possible and therefore spurs you on, beyond the immediate exhilaration, beyond any subsequent disappointments, to retrieve that thing that you once, ever so briefly, held in your hand. That bus ride kept me going, I think. Maybe it still does.
+“Both of you settle down right now,” the mother said.
 
-The publicity was nice, of course. The evening after we got back from the CHA office, Sadie’s face was all over the television. The press, smelling blood, discovered that another South Side project contained pipes lined with rotting asbestos. Aldermen began calling for immediate hearings. Lawyers called about a class-action suit.
+Trinity’s associate pastor, a middle-aged woman with graying hair and a no-nonsense demeanor, read the bulletin and
 
-But it was away from all that, as we prepared for our meeting with the CHA director, that I began to see something wonderful happening. The parents began talking about ideas for future campaigns. New parents got involved. The block-by-block canvass we’d planned earlier was put into effect, with Linda and her swollen belly waddling door-to- door to collect complaint forms; Mr. Lucas, unable to read the forms himself, explaining to neighbors how to fill them out properly. Even those who’d opposed our efforts began to come around: Mrs. Reece agreed to cosponsor the event, and Reverend Johnson allowed some of his members to make an announcement at Sunday service. It was as though Sadie’s small, honest step had broken into a reservoir of hope, allowing people in Altgeld to reclaim a power they had had all along.
+led sleepy voices through a few traditional hymns. Then the choir filed down the aisle dressed in white robes and kente- cloth shawls, clapping and singing as they fanned out behind the altar, an organ following the quickening drums:
 
-The meeting was to be held in Our Lady’s gymnasium, the only building in Altgeld that could accommodate the three hundred people we hoped would turn up. The leaders arrived an hour early, and we went over our demands one last time-that a panel of residents work with CHA to assure containment of asbestos, and that CHA establish a firm timetable for making repairs. As we discussed a few last-minute details, Henry, the maintenance man, waved me over to the public address system.
+I’m so glad, Jesus lifted me! I’m so glad, Jesus lifted me! I’m so glad, Jesus lifted me! Singing Glory, Ha-le-lu-yah! Jesus lifted me!
 
-“What’s the matter?”
+As the congregation joined in, the deacons, then Reverend Wright, appeared beneath the large cross that hung from the rafters. The reverend remained silent while devotions were read, scanning the faces in front of him, watching the collection basket pass from hand to hand. When the collection was over, he stepped up to the pulpit and read the names of those who had passed away that week, those who were ailing, each name causing a flutter somewhere in the crowd, the murmur of recognition.
 
-“System’s dead. A short or something.”
+“Let us join hands,” the reverend said, “as we kneel and pray at the foot of an old rugged cross-”
 
-“So we don’t have a microphone?”
+“Y es...”
 
-“Not outta here. Gonna have to make do with this thing here.” He pointed to a solitary amplifier, the size of a small
+“Lord, we come first to thank you for what you’ve already done for us.... We come to thank you most of all for Jesus.
 
-suitcase, with a loose microphone that hung by a single, frayed cord. Sadie and Linda came up beside me and stared down at the primitive box.
+Lord, we come from different walks of life. Some considered high, and some low...but all on equal ground at the foot of this cross. Lord, thank you! For Jesus, Lord...our burden bearer and heavy load sharer, we thank you....”
 
-“You’re joking,” Linda said.
+The title of Reverend Wright’s sermon that morning was “The Audacity of Hope.” He began with a passage from the Book of Samuel-the story of Hannah, who, barren and taunted by her rivals, had wept and shaken in prayer before her God. The story reminded him, he said, of a sermon a fellow pastor had preached at a conference some years before, in which the pastor described going to a museum and being confronted by a painting titled Hope.
 
-I tapped on the mike. “It’ll be okay. You guys will just have to speak up.” Then, looking down at the amp again, I said, “Try not to let the director hog the microphone, though. He’ll end up talking for hours. Just hold it up to him after you’ve asked the questions. You know, like Oprah.”
+“The painting depicts a harpist,” Reverend Wright explained, “a woman who at first glance appears to be sitting atop a great mountain. Until you take a closer look and see that the woman is bruised and bloodied, dressed in tattered rags, the harp reduced to a single frayed string. Your eye is then drawn down to the scene below, down to the valley below, where everywhere are the ravages of famine, the drumbeat of war, a world groaning under strife and deprivation.
 
-“If nobody comes,” Sadie said, looking at her watch, “we won’t need no mike.”
-
-People came. From all across the Gardens, people came-senior citizens, teenagers, tots. By seven o’clock five hundred people had arrived; by seven-fifteen, seven hundred. TV crews began setting up cameras, and the local politicians on hand asked us for a chance to warm up the crowd. Marty, who had come to watch the event, could barely contain himself.
-
-“You’ve really got something here, Barack. These people are ready to move.”
-
-There was just one problem: The director still hadn’t arrived. Ms. Broadnax said he was caught in traffic, so we decided to go ahead with the first part of the agenda. By the time the preliminaries were over, it was almost eight. I could hear people starting to grumble, fanning themselves in the hot, airless gym. Near the door, I saw Marty trying to lead the crowd in a chant. I pulled him aside.
-
-“What are you doing?”
-
-“You’re losing people. You have to do something to keep them fired up.” “Sit down, will you please.”
-
-I was about to cut our losses and go ahead with Ms. Broadnax when a murmur rose from the back of the gym and the director walked through the door surrounded by a number of aides. He was a dapper black man of medium build, in his early forties. Straightening his tie, he grimly made his way to the front of the room.
-
-“Welcome,” Sadie said into the mike. “We’ve got a whole bunch of people who want to talk to you.”
-
-The crowd applauded; we heard a few catcalls. The TV lights switched on.
-
-“We’re here tonight,” Sadie said, “to talk about a problem that threatens the health of our children. But before we talk
-
-about asbestos, we need to deal with problems we live with every day. Linda?”
-
-Sadie handed the microphone to Linda, who turned to the director and pointed to the stack of complaint forms.
-
-“Mr. Director. All of us in Altgeld don’t expect miracles. But we do expect basic services. That’s all, just the basics.
-
-Now these people here have gone out of their way to fill out, real neat-like, all the things they keep asking the CHA to fix but don’t never get fixed. So our question is, will you agree here tonight, in front of all these residents, to work with us to make these repairs?”
-
-The next moments are blurry in my memory. As I remember it, Linda leaned over to get the director’s response, but when he reached for the microphone, Linda pulled it back.
-
-“A yes-or-no answer, please,” Linda said. The director said something about responding in his own fashion and again reached for the mike. Again, Linda pulled it back, only this time there was the slightest hint of mockery in the gesture, the movement of a child who’s goading a sibling with an ice-cream cone. I tried to wave at Linda to forget what I’d said before and give up the microphone, but I was standing too far in the rear for her to see me. Meanwhile, the director had gotten his hand on the cord, and for a moment a struggle ensued between the distinguished official and the pregnant young woman in stretch pants and blouse. Behind them, Sadie stood motionless, her face shining, her eyes wide. The crowd, not clear on what was happening, began shouting, some at the director, others at Linda.
-
-Then...pandemonium. The director released his grip and headed for the exit. Like some single-celled creature, people near the door lurched after him, and he broke into a near trot. I ran myself, and by the time I had fought my way outside, the director had secured himself in his limousine while a swell of people surrounded the car, some pressing their faces against the tinted glass, others laughing, still others cursing, most just standing about in confusion. Slowly the limo lurched forward, an inch at a time, until a path onto the road opened up and the car sped away, lumping over the cratered street, running over a curb, vanishing from sight.
-
-I walked back toward the gymnasium in a daze, against the current of people now going home. Near the door, a small circle was gathered around a young man in a brown leather jacket whom I recognized as an aide to the alderman.
-
-“The whole thing was put together by Vrdolyak, see,” he was telling the group. “You saw that white man egging the folks on. They just trying to make Harold look bad.”
-
-A few feet away, I spotted Mrs. Reece and several of her lieutenants. “See what you done!” she snapped at me. “This is what happens when you try and get these young folks involved. Embarrassed the whole Gardens, on TV and everything. White folks seeing us act like a bunch of niggers! Just like they expect.”
+“It is this world, a world where cruise ships throw away more food in a day than most residents of Port-au-Prince see in a year, where white folks’ greed runs a world in need, apartheid in one hemisphere, apathy in another hemisphere...That’s the world! On which hope sits!”
 

@@ -1,109 +1,133 @@
 title: House of Cards 029
-date: 2015-01-24 15:44:06
+date: 2015-01-25 03:45:48
 tags: house-of-cards
 ---
 
-'But look, it's there. The red envelope. I can see it from here.'
+There were several cars in the driveway and the front door was open. She was surprised to see people wandering around with apparent freedom, and no sign of the formidable white-coated nurses she had expected to find patrolling the grounds for potential escapees. She parked her car on the road and walked cautiously up the drive towards the door.
 
-A little uncertain as to what he should do, the assistant turned and extracted the envelopes from a numbered pigeon hole behind him. There were three of them. He placed the red envelope on the counter in front of the reporter, with the other two envelopes to one side. He was trying to confirm that the name on the envelope, c/o Charles Collingridge, matched that of the reporter's identitycards while the camera zoomed in closely on the other two envelopes. It took a few seconds for the operator to focus the concealed equipment properly, but as he did so, the markings on the envelopes came clearly into view. Both were addressed to Charles Collingridge. One bore the imprint of the Union Bank of Turkey. The other had been sent from the Party's Sales and Literature Office at Smith Square.
+A large, tweed-suited gentleman with a white military moustache approached and her heart sank. This was surely the security patrol, and she had clearly been spotted as an intruder.
 
-The presenter turned once more to confront Collingridge - and there was no doubt left in Collingridge's mind that the triumphant interview had now turned into open confrontation.
+'Excuse me, my dear,' he said in a clipped accent as he intercepted her by the front door. 'Have you seen any member of staff about? They like to keep out of the way on family visiting days, but you can never find one when you want them.'
 
-'The first envelope would seem to confirm that the address was indeed used to buy and sell shares in the Renox Chemical Company through the Union Bank of Turkey. But we were puzzled about the letter from your own party headquarters. So we called your Sales and Literature Office, pretending to be a supplier with an order from Charles Collingridge but with an indecipherable address.'
+Mattie offered her apologies and smiled warmly in relief. She realised that by good fortune she had struck the best possible day to look around, and could lose herself amidst the other visitors.
 
-Collingridge was just about to shout an angry denunciation of the immoral and underhand methods adopted by the programme when the studio was filled with the recorded sound of the telephone call.
+She picked up one of the brochures which were piled on the hall table, and found a quiet chair on which to sit while she inspected it. A brief glance at the literature told her that the treatment centre was run on very different lines than she had imagined. No straitjackets, no locks on the doors, just twenty-three well-trained people waiting to give guidance, encouragement and their medical experience to addicts who sought help in an atmosphere resembling more a fashionable country retreat than an institution. Even more encouragingly for Mattie, the brochure had a plan of the thirty-two-bed house, which Mattie used to guide herself around the premises in search of her quarry.
 
-'... so could you just confirm what address we should have for Mr Collingridge and then we can get the goods off to him straight away.' ‘Just one minute, please’ said an eager young man's voice. I’ll call it up on the screen.'
+She found him outside on a garden bench, enjoying the view across the valley and the last of the October sun. She wasn't going to enjoy the deception, but that is what she had come for.
 
-There was the sound of a keyboard being tapped. 'Ah, here it is. Charles Collingridge, 216 Praed Street, Paddington, London W2.' Thank you very much indeed. You have been most helpful.'
+'Why, Charles!' she exclaimed. 'What a surprise to find you here.'
 
-The presenter turned once again to Collingridge. 'Do you wish to comment, Prime Minister?'
+He looked at her with a total lack of comprehension.
 
-He shook his head, uncertain of what to say, or whether he should walk off the set. He was astonished that Charles was registered with the Sales
+‘I... I'm sorry,' he ventured. ‘I don't recognise...'
 
-￼and Literature Office, because he had only ever shown interest in the social side of politics. But he suspected that this was likely to be the least of his surprises.
+'Mattie Storin. Don't you remember? We spent a most enjoyable evening together in Bournemouth a couple of weeks ago.'
 
-'Of course, we took seriously your explanation that it might be a case of mistaken identity, of confusion with another Charles Collingridge.'
+'Oh, I'm sorry, Miss Storin. I don't remember. You see, I'm an alcoholic, that's why I'm here, and I'm afraid I was in no condition a few weeks ago to remember very much at all.'
 
-Collingridge wanted to shout in protest that it was not 'his' explanation, that it was simply an off-hand and speculative remark made without prejudice by his press secretary. But he knew it would be a waste of time, so he remained silent.
+She was taken aback by his frankness, and he smiled serenely.
 
-‘Do you know how many other Charles Collingridges there are listed in the London telephone directory, Prime Minister?' Collingridge offered no response, but sat there looking grim and ashen faced.
+‘Please don't be embarrassed. The biggest single step I've had to make in curing myself of addiction is to admit that I am an addict. I had a million ways of hiding it, particularly from myself, and it was only when I was able to face myself that I began being able to face the outside world again. That's what this treatment centre is all about.'
 
-The presenter came to the assistance of his silent guest. There are no other Charles Collingridges listed in the London telephone directory. Indeed, sources at British Telecom tell us that there is only one Charles Collingridge listed throughout the United Kingdom Your brother, Prime Minister.'
+Mattie suddenly blushed deeply. She realised that she had intruded into the private world of a sick man, and she felt ashamed. 'Charles, if you don't remember who I am, then you will not remember that I am a journalist.'
 
-Again a pause, inviting a response, but none was offered.
+The smile disappeared, to be replaced by a look of resignation.
 
-'Since a Mr Charles Collingridge seems to have acted on inside information concerning the Renox Chemical Company and decisions of the Department of Health relating to it, we asked both organisations if they had any knowledge of a Charles Collingridge. Renox tells us that neither they, nor their subsidiaries, have any Collingridge amongst then-employees. The Department of Health's press office was rather more cagey, promising to get back to us but never did. However, their trade union office was much more cooperative. They, too, corifirmed that there is no Collingridge listed as working at any of the Department's 508 offices throughout the country.'
+‘I suppose it had to happen at some time, although Henry was hoping that I could be left alone here quietly...'
 
-The presenter shuffled his notes. 'Apparently they did have a Minnie Collingridge who worked at their Coventry office until two years ago, but she went back to Jamaica.'
+'Charles, please let me explain. I've not come here to make life difficult for you, and when I leave here your privacy will continue to be respected so far as I am concerned. I think the press owe you that.'
 
-"They're laughing at me’ screamed Collingridge to himself. 'They have convicted, sentenced and now are executing me!' In the background he could see Sarah, and the tears which were running like rivers of blood down her cheeks.
+‘I think they probably do...'
 
-'Prime Minister. We have almost come to the end of our programme. Is there anything you wish to say?'
+'But I would like your help. Don't say anything for the moment, just let me talk a little.' He nodded in encouragement.
 
-Collingridge sat there, staring ahead at Sarah, wanting to run to her and embrace her and lie to her that there was no need for tears, everything would be all right. He was still sitting motionless in his chair a full minute later, as the eerie studio silence was broken by the programme's theme
+'Your brother, the Prime Minister, has been forced to resign because of allegations that he helped you to speculate in shares and make a quick profit.'
 
-music. While the lights dimmed and the credits rolled, the viewers saw him rise from his seat, walk slowly over to v embrace his sobbing wife, and start whispering all those lies.
+He started to wave his hand to bring her to a halt but she pressed on.
 
-When they arrived back at Downing Street, Collingridge went straight to the Cabinet Room. He entered almost like a visitor, looking slowly and with a new eye around the room, at its elegant furnishings, fine classical architecture and historic paintings. Yet his gaze kept corning back to the Cabinet table itself, symbol of the uniquely British form of collective Government. He walked slowly around it, trailing his hand on the green baize cloth, stopping at the far end at the seat he had first occupied ten years ago as the Cabinet's most junior member. He raised his eyes to meet those of Robert Walpole, who seemed to be looking directly at him.
+'Charles, none of those allegations make any sense to me. You and your brother risking the office of Prime Minister for a measly few thousand pounds - it doesn't add up. What's more, I also know that someone has deliberately been trying to undermine your brother for some time by leaking
 
-'What would you have done, old fellow?' he whispered. ‘Fight, I suppose. And if you didn't win that one then fight and fight again. Well, well see.'
+￼damaging material to the press. But I only have suspicions. I came to see if you could point me towards something more tangible.'
 
-He reached his own chair and settled slowly into it, feeling physically lost as he sat alone at the middle of the great table. He reached for the single telephone which stood beside his blotter. There was a duty telephonist on call every hour of the day and night.
+'Miss Storin - Mattie, as we seem to be old friends -’I am a drunk. I cannot even remember meeting you. How can I, of all people, be of help? My word carries no weight whatsoever.'
 
-'Get me the Chancellor of the Exchequer, please.'
+‘I’m neither a judge nor a prosecutor, Charles. I'm just trying to piece together a puzzle from a thousand scattered shards’ He looked far over the hills towards Dover and the Channel beyond, searching in the distance.
 
-It took less than a minute before the receiver buzzed, with the Chancellor on the line. 'Colin, did you see it? How badly will the markets react tomorrow?'
+'Mattie, I've tried so hard to remember, believe me. The thought that I have disgraced Henry and forced him into resignation is almost more than I can stand. But I know nothing about buying and selling shares, nothing at all. I don't know what the truth is. I can't help you, I'm afraid.'
 
-The Chancellor gave an embarrassed but honest opinion.
+'Wouldn't you have remembered something about buying the shares, if you had indeed bought them?'
 
-'Bloody, eh? We shall have to see what can be done about it. We shall be in touch.' He then spoke to the Foreign Secretary. 'What damage, Patrick?'
+‘For the last month I have been a very sick...' - he laughed gently -'... a very drunk man. There are many things I have absolutely no recollection of.'
 
-Woolton told him bluntly that with the Government's reputation so weak it would now be impossible to achieve the reforms of the Common Market's budgetary system which the United Kingdom Government had long been demanding and which had been made a clear priority during the election. 'A month ago it was there, within our grasp, after all these years. Now we carry about as much political clout around the negotiating table as O'Reilly's donkey. Sorry, Henry, you asked me to be brutally frank.'
+'Wouldn't you have remembered where you got the money to buy the shares, or what you did with the proceeds?'
 
-Then it was the turn of the Party Chairman. Williams could hear the formal tone being used by Collingridge on the end of the phone, and responded inkind.
+‘I admit that it's hugely unlikely I would have had a small fortune lying around without my remembering it or, more likely, spending it on alcohol. I have no idea where the money could have gone. Even I can't drink away £50,000 in just a few weeks.'
 
-'Prime Minister, within the last hour I have had calls from seven of our eleven Regional Party Chairmen. Without exception, I am sorry to say, they think the situation is quite disastrous for the Party. They feel that we are beyond the point of no return.'
+'What about the false address in Paddington?'
 
-'No, Teddy,' contradicted Collingridge. 'They feel that I am beyond the point of no return. There's a difference.'
+'A complete mystery. I don't even know where Praed Street in Paddington is when I'm sober, so it is preposterous to suppose I would have found my way there drunk. It's the other side of London from where I live.'
 
-He made one more phone call, to his private secretary asking him to seek an appointment at the Palace around lunchtime the following day. The
+'But you used it - so they say - for your bank and subscription to the Party's literature service.'
 
-￼secretary rang back four minutes later to say Her Majesty looked forward to seeing him at ‘I o'clock.
+Charles Collingridge roared with laughter. 'Mattie, you're beginning to restore my faith in myself. No matter how drunk I was, I cannot conceive I could possibly have shown any interest in the Party's literature service. I object when political propaganda is pushed through my letter box at election time; having to pay for it every month would be an insult!'
 
-He felt suddenly relieved, as if the tremendous weight had already shifted from his shoulders. He looked up one last time to face Walpole.
+'Have you ever contributed to the Party's literature service?' 'Never!’
 
-'Oh, yes. You would have fought. You would probably have won. But this office has already ruined my brother and now it is ruining me. I will not let it ruin Sarah's happiness, too. If you will excuse me, I had better let her know.'
+The sun was setting and a warm, red glow filled the sky, lighting up his face. He seemed visibly to be returning to health, and to be content. ‘I can't prove it, but I don't believe I am guilty of the things they say I have done. It would mean a lot to me if you believed that, too.'
 
-Walpole's forty-ninth successor as Prime-.Minister strode towards the Cabinet Room door for almost the last time and, with his hand on the brass handle, turned once more.
+‘I do, Charles, very much. And I'm going to try to prove it for you.'
 
-'By the way, it already feels better.'
+She rose to leave.
 
-￼Part Three THE DEAL
+'I've enjoyed your visit, Mattie. Now that we are such old friends, please come again.'
 
-MONDAY 25th OCTOBER
+'I shall. But in the meantime, I've got a lot of digging to do.'
 
-Shortly before 10 o'clock the following morning, the members of the Cabinet assembled around the Cabinet table. They had been called individually to Downing Street rather than as a formal Cabinet, and most had been surprised to discover their colleagues also gathered. There was an air of expectation and great curiosity, and the conversation around the table while they waited for their Prime Minister was unusually muffled.
+It was late by the time she got back to London that evening. The first editions of the Sunday newspapers were already on the streets. She bought a heavy pile of them and, with magazines and inserts slipping from her laden arms, she threw them on the back seat of her car. It was then she noticed the Sunday Times headline.
 
-As the tones of Big Ben striking the hour reached into the room, the door opened and Collingridge walked in.
+'Now why is Harold Earle making such a fuss about environmental matters?' she asked herself. The Education Secretary, not a noted Greenpeace lover, had just announced his intention to stand for the leadership and simultaneously had made a speech entitled 'Clean Up Our Country.'
 
-'Good morning, gentlemen.' His voice was unusually soft. ‘I am grateful to see you all here. I shall not detain you long.'
+'We have talked and talked endlessly about the problems of our inner cities, while those who live in them have been forced to watch their neighbourhoods continue to decline. In the meantime, the impoverished state of our inner cities has been matched by the deplorable degeneration of far too much of our rural countryside,' the Sunday Times reported him as saying. 'For too long we have neglected such issues, to our cost. Recycled expressions of concern are no substitute for positive action, and it is time we backed our fine words with finer deeds. The opinion polls show that the environment is the most important non-economic issue on which the voters say we have failed. After more than twelve years in office, this is unacceptable, and we must wake up to these concerns’
 
-He took his seat, and extracted a single sheet of paper from the leather bound file he was carrying. He laid it carefully on the table in front of him, and then looked slowly around at his colleagues. There was not a sound to be heard in the room.
+'Silly me’ said Mattie. I'm getting slow in my old age. Can't decipher the code. Which Cabinet Minister is supposed to be responsible for environmental matters, and therefore responsible for this mess?'
 
-‘I am sorry I was unable to inform you that this morning's meeting was to be one of the full Cabinet. As you will shortly see, it was necessary to ensure that you could all be assembled without creating undue attention and speculation amongst the press.'
+The public fight to eliminate Michael Samuel had begun.
 
-He let out a long sigh, a mixture of pain and relief.
+￼WEDNESDAY 3rd NOVEMBER
 
-‘I am going to read to you a short statement that I shall be issuing later today. At ‘I o'clock I shall be going to the Palace to convey the contents to Her Majesty. I must ask all of you, on your oaths of office, not to divulge the contents of this message to anyone before it is officially released. I must ensure Her Majesty hears it from me and not through the press. I would also ask it of each one of you as a personal favour to me’
+Mattie tried many times during the following week to get hold of Kevin Spence, but he was never available. In spite of the repeated assurances of his gushingly polite secretary, Mattie knew that he was deliberately avoiding her. He was therefore not at all pleased when, in some desperation, she called very late on Wednesday evening and was put straight through to his extension by the night security guard.
 
-He looked slowly around the table to catch the eye of those present, all of whom nodded their assent as he did so. He picked up the sheet of paper and began to read in a slow, matter-of-fact voice. He squeezed out any trace of regret he might have felt.
+'No, of course I haven't been avoiding you’ he assured her, 'but I havebeen very busy. Working very late.' 'Kevin, I need your help again.'
 
-'Recently there has been a spate of allegations in the media about the business affairs of both me and my family, which shows no sign of abating.
+‘I remember the last time I gave you my help. You said you were going towrite a piece on opinion polls and then
 
-‘I have consistently stated, and repeat today, that I have done nothing of which I should be ashamed. I have adhered strictly to the rules and conventions relating to the conduct of the Prime Minister.
+you wrote a story slandering thePrime Minister. Now he's gone.' He spoke with a quiet sadness. 'Hewas always very decent to me, very kind, and I think the press have been unspeakably cruel.'
 
-The implied allegation made against me is one of the most serious kind for any holder of public office, that I have used that office and the confidential information available to me from it to enrich my family. I cannot explain the extraordinary circumstances referred to by the media which have given rise to these allegations, and I have asked the Cabinet Secretary to undertake a formal independent investigation into them.
+'Kevin, I give you my word that I was not responsible for that story. Youmay have noticed that my name was not on the article, and I was evenmore displeased about it than
 
-'The nature of these allegations makes it impossible for me to prove my innocence of the charge of misconduct, but I am confident that the official investigation by the Cabinet Secretary will eventually establish the full facts of the matter and my complete exoneration’
+you. It's about Mr Collingridge'sresignation that I'm calling. Personally, I don't believe the allegationswhich are being made against him and his brother. I would like to be able to clear his name.'
+
+‘I can't see how I could assist you,' he said in a distrusting tone. 'Anyway,I'm afraid that nobody outside the press office is allowed to have contactwith the media during the leadership campaign. Chairman's strictestorders.'
+
+'Kevin, there's a lot at stake here. Not only the leadership, of the Party,and whether you are going to win the next election or not, but alsowhether history is going to regard Henry Collingridge as a crook and acheat or whether he is going to have a chance to put the record straight.Don't we owe him that?'
+
+He thought about it for a second, and she heard his hostility slowlymelting.
+
+If I could help, what would you want?'
+
+'Very simply, do you understand the computer system at partyheadquarters?'
+
+'Yes, of course. I use it all the time to help analyse opinion research. I'vegot a screen in front of me which is linked directly to our main frame.' ‘I think your computer system has been tampered with. Will you let mesee it?'
+
+Tampered with? That's impossible. We have the highest security.Nobody from outside can access it.'
+
+'Not outside, Kevin. Inside.'
+
+There was a stunned silence from the other end of the phone.
+
+I'm working at the House of Commons. I can be with you in less than tenminutes, and I suspect at this time of night the building is very quiet. Noone will notice. Kevin, I'm on my way over.'
+
+Before he could mutter a flustered few words of protest, the phone wentdead as he held it. Mattie was with him less than seven minutes later.
+
+They sat in his small garret office, dominated by the mountains of fileswhich tumbled over every available fiat surface and onto the floor, withtheir attention fixed rigidly on the glowing green screen in front of them.
 

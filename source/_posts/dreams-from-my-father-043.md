@@ -1,137 +1,71 @@
 title: Dreams from My Father 043
-date: 2015-01-24 15:43:52
+date: 2015-01-25 03:45:34
 tags: dreams-from-my-father
 ---
 
-I began spending several hours a week with those children and their parents. The mothers were all in their late teens or early twenties; most had spent their lives in Altgeld, raised by teenage mothers themselves. They spoke without self- consciousness about pregnancy at fourteen or fifteen, the dropping out of school, the tenuous links to the fathers who slipped in and out of their lives. They told me about working the system, which involved mostly waiting: waiting to see
+“He’s always wanted to be in a band,” she said softly.
 
-the social worker, waiting at the currency exchange to cash their welfare checks, waiting for the bus that would take them to the nearest supermarket, five miles away, just to buy diapers on sale.
+As we were talking, I noticed a man in his late forties walking toward us. He had silver hair, a silver mustache and goatee; he was dressed in a gray three-piece suit. He moved slowly, methodically, as if conserving energy, sorting through his mail as he walked, humming a simple tune to himself.
 
-They had mastered the tools of survival in their tightly bound world and made no apologies for it. They weren’t cynical, though; that surprised me. They still had ambitions. There were girls like Linda and Bernadette Lowry, two sisters Dr. Collier had helped get high school equivalencies. Bernadette was now taking classes at the community college; Linda, pregnant again, stayed at home to look after Bernadette’s son, Tyrone, and her own daughter, Jewel-but she said she’d be going to college, too, once her new baby was born. After that they would both find jobs, they said-in food management, maybe, or as secretaries. Then they would move out of Altgeld. In Linda’s apartment one day, they showed me an album they kept full of clippings from Better Homes and Gardens. They pointed to the bright white kitchens and hardwood floors, and told me they would have such a home one day. Tyrone would take swimming lessons, they said; Jewel would dance ballet.
+“Barack,” he said as if we were old friends, “let’s see if Tracy here will let me have a minute of your time.”
 
-Sometimes, listening to such innocent dreams, I would find myself fighting off the urge to gather up these girls and their babies in my arms, to hold them all tight and never let go. The girls would sense that impulse, I think, and Linda, with her dark, striking beauty, would smile at Bernadette and ask me why I wasn’t already married.
+“Don’t pay him no mind, Barack,” Tracy said, standing up and straightening out her skirt. “I should have warned you that Rev likes to act silly sometimes.”
 
-“Haven’t found the right woman, I guess,” I would say.
+Reverend Wright smiled and led me into a small, cluttered office. “Sorry for being late,” he said, closing the door behind him. “We’re trying to build a new sanctuary, and I had to meet with the bankers. I’m telling you, doc, they always want something else from you. Latest thing is another life insurance policy on me. In case I drop dead tomorrow. They figure the whole church’ll collapse without me.”
 
-And Bernadette would slap Linda on the arm, saying, “Stop it! You making Mr. Obama blush.” And they would both start to laugh, and I would realize that in my own way, I must have seemed as innocent to them as they both seemed to me.
+“Is it true?”
 
-My plan for the parents was simple. We didn’t yet have the power to change state welfare policy, or create local jobs, or bring substantially more money into the schools. But what we could do was begin to improve basic services in Altgeld-get the toilets fixed, the heaters working, the windows repaired. A few victories there, and I imagined the parents forming the nucleus of a genuinely independent tenants’ organization. With that strategy in mind, I passed out a set of complaint forms at the next full parents’ meeting, asking everyone to canvass the block where they lived. They agreed to the plan, but when the meeting was over, one of the parents, a woman named Sadie Evans, approached me holding a small newspaper clipping.
+Reverend Wright shook his head. “I’m not the church, Barack. If I die tomorrow, I hope the congregation will give me a decent burial. I like to think a few tears will be shed. But as soon as I’m six feet under, they’ll be right back on the case, figuring out how to make this church live up to its mission.”
 
-“I saw this in the paper yesterday, Mr. Obama,” Sadie said. “I don’t know if it means anything, but I wanted to see what you thought.”
+He had grown up in Philadelphia, the son of a Baptist minister. He had resisted his father’s vocation at first, joining the Marines out of college, dabbling with liquor, Islam, and black nationalism in the sixties. But the call of his faith had apparently remained, a steady tug on his heart, and eventually he’d entered Howard, then the University of Chicago, where he spent six years studying for a Ph.D. in the history of religion. He learned Hebrew and Greek, read the literature of Tillich and Niebuhr and the black liberation theologians. The anger and humor of the streets, the book learning and occasional twenty-five-cent word, all this he had brought with him to Trinity almost two decades ago. And although it was only later that I would learn much of this biography, it became clear in that very first meeting that, despite the reverend’s frequent disclaimers, it was this capacious talent of his-this ability to hold together, if not reconcile, the conflicting strains of black experience-upon which Trinity’s success had ultimately been built.
 
-It was a legal notice, in small print, run in the classified section. It said that the CHA was soliciting bids from qualified contractors to remove asbestos from Altgeld’s management office. I asked the parents if any of them had been notified about potential asbestos exposure. They shook their heads.
+“We got a lot of different personalities here,” he told me. “Got the Africanist over here. The traditionalist over here. Once in a while, I have to stick my hand in the pot-smooth things over before stuff gets ugly. But that’s rare. Usually, if somebody’s got an idea for a new ministry, I just tell ’em to run with it and get outta their way.”
 
-“You think it’s in our apartments?” Linda asked.
+His approach had obviously worked: the church had grown from two hundred to four thousand members during his tenure; there were organizations for every taste, from yoga classes to Caribbean clubs. He was especially pleased with the church’s progress in getting more men involved, although he admitted that they still had a way to go.
 
-“I don’t know. But we can find out. Who wants to call Mr. Anderson over at the management office?”
+“Nothing’s harder than reaching young brothers like yourself,” he said. “They worry about looking soft. They worry about what their buddies are gonna say about ’em. They tell themselves church is a woman’s thing-that it’s a sign of weakness for a man to admit that he’s got spiritual needs.”
 
-I glanced around the room, but no hands went up. “Come on, somebody. I can’t make the call. I don’t live here.” Finally Sadie raised her hand. “I’ll do it,” she said.
+The reverend looked up at me then, a look that made me nervous. I decided to shift the conversation to more familiar ground, telling him about DCP and the issues we were working on, explaining the need for involvement from larger churches like his. He sat patiently and listened to my pitch, and when I was finished he gave a small nod.
 
-Sadie wouldn’t have been my first choice. She was a small, slight woman with a squeaky voice that made her seem
+“I’ll try to help you if I can,” he said. “But you should know that having us involved in your effort isn’t necessarily a feather in your cap.”
 
-painfully shy. She wore knee-length dresses and carried a leather-bound Bible wherever she went. Unlike the other
+“Why’s that?”
 
-parents, she was married, to a young man who worked as a store clerk by day but was training to be a minister; they didn’t associate with people outside their church.
+Reverend Wright shrugged. “Some of my fellow clergy don’t appreciate what we’re about. They feel like we’re too radical. Others, we ain’t radical enough. Too emotional. Not emotional enough. Our emphasis on African history, on scholarship-”
 
-All this made her something of a misfit in the group, and I wasn’t sure she’d be tough enough to deal with the CHA. But when I got back to the office that day, my secretary passed on the message that Sadie had already set up the appointment with Mr. Anderson and had called all the other parents to let them know. The following morning, I found Sadie standing out in front of the Altgeld management office, looking like an orphan, alone in the clammy mist.
+“Some people say,” I interrupted, “that the church is too upwardly mobile.”
 
-“Don’t look like anybody else is showing up, does it, Mr. Obama?” she said, looking at her watch.
+The reverend’s smile faded. “That’s a lot of bull,” he said sharply. “People who talk that mess reflect their own confusion. They’ve bought into the whole business of class that keeps us from working together. Half of ’em think that the former gang-banger or the former Muslim got no business in a Christian church. Other half think any black man with an education or a job, or any church that respects scholarship, is somehow suspect.
 
-“Call me Barack,” I said. “Listen, do you still want to go through with this? If you’re not comfortable, we can reschedule the meeting until we have some other parents.”
+“We don’t buy into these false divisions here. It’s not about income, Barack. Cops don’t check my bank account when they pull me over and make me spread-eagle against the car. These miseducated brothers, like that sociologist at the University of Chicago, talking about ‘the declining significance of race.’ Now, what country is he living in?”
 
-“I don’t know. Do you think I can get in trouble?”
+But wasn’t there a reality to the class divisions, I wondered? I mentioned the conversation I’d had with his assistant, the tendency of those with means to move out of the line of fire. He took off his glasses and rubbed what I now saw to be a pair of tired eyes.
 
-“I think you’ve got the right to information that could affect your health. But that doesn’t mean Mr. Anderson is gonna think so. I’ll stand behind you, and so will the other parents, but you need to do what makes sense for you.”
+“I’ve given Tracy my opinion about moving out of the city,” he said quietly. “That boy of hers is gonna get out there and won’t have a clue about where, or who, he is.”
 
-Sadie pulled her overcoat tightly around herself and looked again at her watch. “We shouldn’t keep Mr. Anderson waiting,” she said, and plunged through the door.
+“It’s tough to take chances with your child’s safety.”
 
-From the expression on Mr. Anderson’s face when we walked into his office, it was clear that I hadn’t been expected. He offered us a seat and asked us if we wanted some coffee.
+“Life’s not safe for a black man in this country, Barack. Never has been. Probably never will be.”
 
-“No thank you,” Sadie said. “I really appreciate you seeing us on such short notice.” With her coat still on, she pulled out the legal notice and set it carefully on Mr. Anderson’s desk. “Some of the parents at the school saw this in the paper, and we were worried...well, we wondered if this asbestos maybe was in our apartments.”
+A secretary buzzed, reminding Reverend Wright of his next appointment. We shook hands, and he agreed to have
 
-Mr. Anderson glanced at the notice, then set it aside. “This is nothing to worry about, Mrs. Evans,” he said. “We’re just doing renovation on this building, and after the contractors tore up one of the walls, they found asbestos on the pipes. It’s just being removed as a precautionary measure.”
+Tracy prepare a list of members for me to meet. Afterward, in the parking lot, I sat in my car and thumbed through a silver brochure that I’d picked up in the reception area. It contained a set of guiding principles-a “Black Value System”-that the congregation had adopted in 1979. At the top of the list was a commitment to God, “who will give us the strength to give up prayerful passivism and become Black Christian activists, soldiers for Black freedom and the
 
-“Well...shouldn’t the same thing, the same precautionary measures, I mean, be taken in our apartments? I mean, isn’t there asbestos there, too?”
+dignity of all humankind.” Then a commitment to the black community and black family, education, the work ethic, discipline, and self-respect.
 
-The trap was laid, and Mr. Anderson’s eyes met mine. A cover-up would generate as much publicity as the asbestos, I had told myself. Publicity would make my job easier. And yet, as I watched Mr. Anderson shift around in his seat, trying to take measure of the situation, there was a part of me that wanted to warn him off. I had the unsettling feeling that his soul was familiar to me, that of an older man who feels betrayed by life-a look I had seen so often in my grandfather’s eyes. I wanted to somehow let Mr. Anderson know that I understood his dilemma, wanted to tell him that if he would just explain that the problems in Altgeld preceded him and admit that he, too, needed help, then some measure of salvation might alight in the room.
+A sensible, heartfelt list-not so different, I suspected, from the values old Reverend Philips might have learned in his whitewashed country church two generations before. There was one particular passage in Trinity’s brochure that stood out, though, a commandment more self-conscious in its tone, requiring greater elaboration. “A Disavowal of the Pursuit of Middleclassness,” the heading read. “While it is permissible to chase ‘middleincomeness’ with all our might,” the text stated, those blessed with the talent or good fortune to achieve success in the American mainstream must avoid the “psychological entrapment of Black ‘middleclassness’ that hypnotizes the successful brother or sister into believing they are better than the rest and teaches them to think in terms of ‘we’ and ‘they’ instead of ‘US’!”
 
-Instead, I said nothing, and Mr. Anderson turned away. “No, Mrs. Evans,” he said to Sadie. “There’s no asbestos in the residential units. We’ve tested them thoroughly.”
+My thoughts would often return to that declaration in the weeks that followed as I met with various members of Trinity. I decided that Reverend Wright was at least partly justified in dismissing the church’s critics, for the bulk of its membership was solidly working class, the same teachers and secretaries and government workers one found in other big black churches throughout the city. Residents from the nearby housing project had been actively recruited, and programs designed to meet the needs of the poor-legal aid, tutorials, drug programs-took up a substantial amount of the church’s resources.
 
-“Well, that’s a relief,” Sadie said. “Thank you. Thank you very much.” She rose, shook Mr. Anderson’s hand, and started for the door. I was just about to say something when she turned back toward the project manager.
+Still, there was no denying that the church had a disproportionate number of black professionals in its ranks: engineers, doctors, accountants, and corporate managers. Some of them had been raised in Trinity; others had transferred in from other denominations. Many confessed to a long absence from any religious practice-a conscious choice for some, part of a political or intellectual awakening, but more often because church had seemed irrelevant to them as they’d pursued their careers in largely white institutions.
 
-“Oh, I’m sorry,” she said. “I forgot to ask you something. The other parents...well, they’d like to see a copy of these tests you took. The results, I mean. You know, just so we can make everybody feel their kids are safe.”
+At some point, though, they all told me of having reached a spiritual dead end; a feeling, at once inchoate and oppressive, that they’d been cut off from themselves. Intermittently, then more regularly, they had returned to the church, finding in Trinity some of the same things every religion hopes to offer its converts: a spiritual harbor and the chance to see one’s gifts appreciated and acknowledged in a way that a paycheck never can; an assurance, as bones stiffened and hair began to gray, that they belonged to something that would outlast their own lives-and that, when their time finally came, a community would be there to remember.
 
-“I...the records are all at the downtown office,” Mr. Anderson stammered. “Filed away, you understand.” “Do you think you can get us a copy by next week?”
+But not all of what these people sought was strictly religious, I thought; it wasn’t just Jesus they were coming home to. It occurred to me that Trinity, with its African themes, its emphasis on black history, continued the role that Reverend Philips had described earlier as a redistributor of values and circulator of ideas. Only now the redistribution didn’t run in just a single direction from the schoolteacher or the physician who saw it as a Christian duty to help the sharecropper or the young man fresh from the South adapt to big-city life. The flow of culture now ran in reverse as well; the former gang-banger, the teenage mother, had their own forms of validation-claims of greater deprivation, and hence authenticity, their presence in the church providing the lawyer or doctor with an education from the streets. By widening its doors to allow all who would enter, a church like Trinity assured its members that their fates remained inseparably bound, that an intelligible “us” still remained.
 
-“Yes, well...of course. I’ll see what I can do. Next week.”
+It was a powerful program, this cultural community, one more pliant than simple nationalism, more sustaining than my own brand of organizing. Still, I couldn’t help wondering whether it would be enough to keep more people from leaving the city or young men out of jail. Would the Christian fellowship between a black school administrator, say, and a black school parent change the way the schools were run? Would the interest in maintaining such unity allow Reverend Wright to take a forceful stand on the latest proposals to reform public housing? And if men like Reverend Wright failed to take a stand, if churches like Trinity refused to engage with real power and risk genuine conflict, then what chance would there be of holding the larger community intact?
 
-When we got outside, I told Sadie she had done well.
+Sometimes I would put such questions to the people I met with. They would respond with the same bemused look Reverend Philips and Reverend Wright had given me. For them, the principles in Trinity’s brochure were articles of faith no less than belief in the Resurrection. You have some good ideas, they would tell me. Maybe if you joined the church you could help us start a community program. Why don’t you come by on Sunday?
 
-“Do you think he’s telling the truth?”
-
-“I don’t know. We’ll find out soon enough.”
-
-A week passed. Sadie called Mr. Anderson’s office: She was told that the results would take another week to produce. Two weeks passed, and Sadie’s calls went unreturned. We tried to reach Mrs. Reece, then the CHA district manager, then sent a letter to the executive director of the CHA with a copy to the mayor’s office. No response.
-
-“What do we do now?” Bernadette asked.
-
-“We go downtown. If they won’t come to us, we’ll go to them.”
-
-The next day we planned our action. Another letter to the CHA executive director was drafted, informing him that we
-
-would appear at his office in two days to demand an answer to the asbestos question. A short press release was issued. The children of Carver were sent home with a flyer pinned to their jackets urging their parents to join us. Sadie, Linda, and Bernadette spent most of the evening calling their neighbors.
-
-But when the day of reckoning arrived, I counted only eight heads in the yellow bus parked in front of the school. Bernadette and I stood in the parking lot trying to recruit other parents as they came to pick up their children. They said they had doctors’ appointments or couldn’t find baby-sitters. Some didn’t bother with excuses, walking past us as if we were panhandlers. When Angela, Mona, and Shirley arrived to see how things were shaping up, I insisted they ride with us to lend moral support. Everyone looked depressed, everyone except Tyrone and Jewel, who were busy making faces at Mr. Lucas, the only father in the group. Dr. Collier came up beside me.
-
-“I guess this is it,” I said.
-
-“Better than I expected,” she said. “Obama’s Army.”
-
-“Right.”
-
-“Good luck,” she said, and clapped me on the back.
-
-The bus rolled past the old incinerator and the Ryerson Steel plant, through Jackson Park, and then onto Lake Shore
-
-Drive. As we approached downtown, I passed out a script for the action and asked everyone to read it over carefully. Waiting for them to finish, I noticed that Mr. Lucas had a deep frown carved into his forehead. He was a short, gentle man with a bit of a stutter; he did odd jobs around Altgeld and helped out the mother of his children whenever he could. I came up beside him and asked if something was wrong.
-
-“I don’t read so good,” he said quietly.
-
-We both looked down at the page of crowded type.
-
-“That’s okay.” I walked to the front of the bus. “Listen up, everybody! We’re going to go over the script together to
-
-make sure we’ve got it straight. What do we want?” “A meeting with the director!”
-
-“Where?”
-
-“In Altgeld!”
-
-“What if they say they’ll give us an answer later?”
-
-“We want an answer now!”
-
-“What if they do something we don’t expect?”
-
-“We caucus!”
-
-“Crackers!” Tyrone shouted.
-
-The CHA office was in a stout gray building in the center of the Loop. We filed off the bus, entered the lobby, and
-
-mashed onto the elevator. On the fourth floor, we entered a brightly lit lobby where a receptionist sat behind an imposing desk.
-
-“Can I help you?” she said, scarcely glancing up from her magazine. “We’d like to see the director, please,” Sadie said.
-
-“Do you have an appointment?”
-
-“He...” Sadie turned to me.
-
-“He knows we’re coming,” I said.
-
-“Well, he’s not in the office right now.”
-
-Sadie said, “Could you please check with his deputy?”
-
-The receptionist looked up with an icy stare, but we stood our ground. “Have a seat,” she said finally.
+And I would shrug and play the question off, unable to confess that I could no longer distinguish between faith and mere folly, between faith and simple endurance; that while I believed in the sincerity I heard in their voices, I remained a reluctant skeptic, doubtful of my own motives, wary of expedient conversion, having too many quarrels with God to accept a salvation too easily won.
 

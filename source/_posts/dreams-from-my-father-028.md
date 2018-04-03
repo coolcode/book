@@ -1,101 +1,105 @@
 title: Dreams from My Father 028
-date: 2015-01-24 15:44:07
+date: 2015-01-25 03:45:49
 tags: dreams-from-my-father
 ---
 
-Smitty handed me the mirror to check his handiwork, then pulled off my smock and brushed off the back of my shirt. “Thanks for the history lesson,” I said, standing up.
+“Before we adjourn,” he announced, “I want us to try something out. This here’s a church-based organization, and that means we devote a part of each meeting to reflection on ourselves, our relationships to each other, and our relationship to God. So I want everybody to take out just a minute to think about what brought them here tonight, some thoughts or feelings that you haven’t talked about, and then I want you to share ’em with the group.”
 
-“Hey, that part’s free. Haircut’s ten dollars. What’s your name, anyway?” “Barack.”
+Will let the silence build for several minutes. “Anybody want to share their thoughts?” he repeated.
 
-“Barack, huh. You a Muslim?”
+People looked down at the table uncomfortably.
 
-“Grandfather was.”
+“Okay,” Will said. “I’ll share something that’s been on my mind for a while. Nothing big-just memories. You know,
 
-He took the money and shook my hand. “Well, Barack, you should come back a little sooner next time. Your hair was looking awful raggedy when you walked in.”
+my folks weren’t rich or nothing. We lived out in Altgeld. But when I think back on my own childhood, I remember some really good times. I remember going to Blackburn Forest with my folks to pick wild berries. I remember making skating carts with my cut buddies out of empty fruit crates and old roller skate wheels and racing around the parking lot. I remember going on field trips at school, and on the holidays meeting all the families in the park, everybody out and nobody scared, and then in the summers sleeping out in the yard together if it got too hot inside. A lot of good memories...seemed like I was smiling all the time, laughing-”
 
-Late that afternoon, Marty picked me up in front of my new address and we headed south on the Skyway. After several miles, we took an exit leading into the southeast side, past rows of small houses made of gray clapboard or brick, until we arrived at a massive old factory that stretched out over several blocks.
+Will broke off suddenly and bowed his head. I thought he was preparing to sneeze, but when he raised his head back up, I saw tears rolling down his cheeks. He continued in a cracking voice, “And you know, I don’t see kids smiling around here no more. You look at ’em listen to ’em...they seem worried all the time, mad about something. They got nothing they trust. Not their parents. Not God. Not themselves. And that’s not right. That just ain’t the way things supposed to be...kids not smiling.”
 
-“The old Wisconsin Steel plant.”
+He stopped again and pulled a handkerchief from his hip pocket to blow his nose. Then, as if the sight of this big man weeping had watered the dry surface of their hearts, the others in the room began speaking about their own memories in solemn, urgent tones. They talked about life in small Southern towns: the corner stores where men had gathered to learn the news of the day or lend a hand to women with their groceries, the way adults looked after each other’s children (“Couldn’t get away with nothing, ’cause your momma had eyes and ears up and down the whole block”), the sense of public decorum that such familiarity had helped sustain. In their voices was no little bit of nostalgia, elements of selective memory; but the whole of what they recalled rang vivid and true, the sound of shared loss. A feeling of witness, of frustration and hope, moved about the room from mouth to mouth, and when the last person had spoken, it hovered in the air, static and palpable. Then we all joined hands, Mr. Green’s thick, callused hand in my left, Mrs. Turner’s, slight and papery to the touch, in my right, and together we asked for the courage to turn things around.
 
-We sat there in silence, studying the building. It expressed some of the robust, brutal spirit of Chicago’s industrial past, metal beams and concrete rammed together, without much attention to comfort or detail. Only now it was empty and rust-stained, like an abandoned wreck. On the other side of the chain-link fence, a spotted, mangy cat ran through the weeds.
+I helped Will and Mary put back the chairs, rinse out the coffee pot, lock up, and turn off the lights. Outside, the night was cold and clear. I turned up my collar and quickly evaluated the meeting: Will needed to watch the time; we had to research the issue of city services before the next meeting and interview everyone who had come. At the end of my checklist, I put my arm around Will’s shoulders.
 
-“All kinds of people used to work in the plant,” Marty said as he wheeled the car around and started back down the road. “Blacks. Whites. Hispanics. All working the same jobs. All living the same kind of lives. But outside the plant, most of them didn’t want anything to do with each other. And these are the church people I’m talking about. Brothers and sisters in Christ.”
+“That reflection at the end was pretty powerful, Will.”
 
-We came to a stoplight, and I noticed a group of young white men in their undershirts, drinking beer on a stoop. A Vrdolyak poster hung in one of the windows, and several of the men began to glare in my direction. I turned to Marty.
+He looked at Mary and they both smiled. “We noticed you didn’t share anything with the group,” Mary said.
 
-“So what makes you think they can work together now?”
+“The organizer’s supposed to keep a low profile.”
 
-“They don’t have any choice. Not if they want their jobs back.”
+“Who says?”
 
-As we reentered the highway, Marty began to tell me more about the organization he’d built. The idea had first come
+“It’s in my organizer’s handbook. Come on, Mary, I’ll give you a ride home.”
 
-to him two years earlier, he said, when he’d read reports of the plant closings and layoffs then sweeping across South Chicago and the southern suburbs. With the help of a sympathetic Catholic auxiliary bishop, he’d gone to meet with pastors and church members in the area, and heard both blacks and whites talk about their shame of unemployment, their fear of losing a house or of being cheated out of a pension-their common sense of having been betrayed.
+Will mounted his bike and waved good-bye, and Mary and I drove the four blocks to her house. I let her out in front of
 
-Eventually over twenty suburban churches had agreed to form an organization, which they named the Calumet Community Religious Conference, or CCRC. Another eight churches had joined the city arm of the organization, called Developing Communities Project, or DCP. Things hadn’t moved quite as fast as Marty had hoped; the unions hadn’t yet signed on, and the political war in the city council had proven to be a major distraction. Still, CCRC had recently won its first significant victory: a $500,000 computerized job placement program that the Illinois legislature had agreed to fund. We were on our way to a rally to celebrate this new job bank, Marty explained, the opening shot in a long-term campaign.
+her door and watched her take a few steps before I stretched across the passenger seat and rolled down the window. “Hey, Mary.”
 
-“It’s going to take a while to rebuild manufacturing out here,” he said. “Ten years, minimum. But once we get the unions involved, we’ll have a base to negotiate from. In the meantime, we just need to stop the hemorrhage and give people some short-term victories. Something to show people how much power they have once they stop fighting each other and start going after the real enemy.”
+She came back and bent down to look at me.
 
-“And who’s that?”
+“You know what you were asking before. About why I do this. It had something to do with the meeting tonight. I mean...I don’t think our reasons are all that different.”
 
-Marty shrugged. “The investment bankers. The politicians. The fat cat lobbyists.”
+She nodded, and walked up the path to her daughters.
 
-Marty nodded to himself, squinting at the road ahead. Looking at him, I began to suspect that he wasn’t as cynical as
+A week later, I was back out in Altgeld, trying to stuff Angela, Mona, and Shirley into my subcompact car. Mona, who was sitting in the back, complained about the lack of room.
 
-he liked to make out, that the plant we’d just left carried a larger meaning for him. Somewhere in his life, I thought, he, too, had been betrayed.
+“What kinda car is this anyway?” she asked.
 
-It was twilight by the time we crossed the city line and pulled into the parking lot of a large suburban school, where crowds of people were already making their way into the auditorium. They appeared as Marty had described them: laid-off steelworkers, secretaries, and truck drivers, men and women who smoked a lot and didn’t watch their weight,
+Shirley moved her seat up. “It’s built for the skinny little girls Barack goes out with.”
 
-shopped at Sears or Kmart, drove late-model cars from Detroit and ate at Red Lobster on special occasions. A barrel- chested black man in a cleric’s collar greeted us at the door and Marty introduced him as Deacon Wilbur Milton, copresident of the organization. With his short, reddish beard and round cheeks, the man reminded me of Santa Claus.
+“Who are we meeting with again?”
 
-“Welcome,” Will said, pumping my hand. “We been wondering when we’d actually get to meet you. Thought maybe Marty just made you up.”
+I had scheduled three meetings, hoping to find a job strategy that would meet the needs of people in Altgeld. For now
 
-Marty peeked inside the auditorium. “How’s turnout looking?”
+at least a new manufacturing boom appeared out of our reach: The big manufacturers had opted for well-scrubbed suburban corridors, and not even Gandhi could have gotten them to relocate near Altgeld anytime soon. On the other hand, there did remain a part of the economy that could be called local, I thought, a second-level consumer economy-of shops, restaurants, theaters, and services-that in other areas of the city continued to function as an incubator of civic life. Places where families might invest their savings and make a go of a business, and where entry-level jobs might be had; places where the economy remained on a human scale, transparent enough for people to understand.
 
-“Good so far. Everybody seems to be making their quota. Governor’s people just called to say he’s on his way.” Marty and Will began walking toward the stage, their heads buried in the evening’s agenda. I started to follow them,
+The closest thing to a shopping district in the area was in Roseland, and so we followed the bus route up Michigan Avenue, with its wig shops and liquor stores, discount clothing stores and pizzerias, until we arrived in front of a two- story former warehouse. We entered the building through a heavy metal door and took a narrow set of stairs down into a basement filled with old furniture. In a small office sat a slight, wiry man with a goatee and a skullcap that accentuated a pair of prominent ears.
 
-but found my path blocked by three black women of indeterminate age. One of them, a pretty woman with orange- tinted hair, introduced herself as Angela, then leaned over to me and whispered, “You’re Barack, aren’t you?”
+“Can I help you?”
 
-I nodded.
+I explained who we were and that we had spoken on the phone.
 
-“You don’t know how glad we are to see you.”
+“That’s right, that’s right.” He gestured to two large men standing on either side of his desk and they walked past us
 
-“You really don’t,” the older woman next to Angela said. I offered the woman my hand, and she smiled to show off a
+with a nod. “Listen, we’re gonna have to make this quick ’cause something’s come up. Rafiq al Shabazz.”
 
-gold front tooth. “I’m sorry,” she said, taking my hand, “I’m Shirley.” She gestured toward the last woman, dark and heavyset. “This is Mona. Don’t he look clean-cut, Mona?”
+“I know you,” Shirley said as we shook hands with Rafiq. “You’re Mrs. Thompson’s boy, Wally. How’s your
 
-“Sure does,” Mona said with a laugh.
+momma doing?”
 
-“Don’t get me wrong,” Angela said, her voice still lowered a pitch. “I’ve got nothing against Marty. But the fact is, there’s only so far you can-”
+Rafiq forced a smile and offered us all a seat. He explained that he was the president of the Roseland Unity Coalition,
 
-“Hey, Angela!” We looked up to see Marty waving at us from the stage. “You guys can talk to Barack all you want later. Right now I need all of you up here with me.”
+an organization that engaged in a range of political activities to promote the black cause and claimed considerable credit for helping Mayor Washington get elected. When we asked him how our churches could encourage local economic development, he handed us a leaflet accusing Arab stores of selling bad meat.
 
-The women exchanged knowing looks before Angela turned back to me.
+“That’s the real deal, right here,” Rafiq said. “People from outside our community making money off us and showing our brothers and sisters disrespect. Basically what you got here is Koreans and Arabs running the stores, the Jews still owning most of the buildings. Now, in the short term, we’re here to make sure that the interests of black people are looked after, you understand. When we hear one of them Koreans is mistreating a customer, we gonna be on the case. We gonna insist that they respect us and make a contribution back to the community-fund our programs, what have you.
 
-“I guess we better get going,” she said. “But we really do have to talk. Soon.”
+“That’s the short term. This”-Rafiq pointed to a map of Roseland that hung on the wall, with certain areas marked off in red ink-“is the long term. It’s all about ownership. A comprehensive plan for the area. Black businesses, community centers-the whole nine yards. Some of the properties, we’ve already started negotiating with the white owners to sell them to us at a fair price. So if y’all are interested in jobs, then you can help by spreading the message about this here plan. The problem we got right now is not enough support from the folks in Roseland. Instead of taking a stand, they’d rather follow white folks out into the suburbs. But see, white folks ain’t stupid. They just waiting for us to move out of the city so they can come back, ’cause they know that the value of the property we sitting on right now is worth a mint.”
 
-“Sure do,” said Mona before the three of them walked away, Angela and Shirley busy chatting away in the front,
+One of the burly men reentered Rafiq’s office, and Rafiq stood up. “I gotta get going,” he said abruptly. “But hey, we’ll talk again.” He shook all our hands before his assistant led us to the door.
 
-Mona leisurely bringing up the rear.
+“Sounds like you knew him, Shirley,” I said once we were out of the building.
 
-The auditorium was almost filled by this time, two thousand people in all, maybe a third of them blacks bused in from
+“Yeah, before he got that fancy name of his, he was plain old Wally Thompson. He can change his name but he can’t hide them ears he’s got. He grew up in Altgeld-in fact, I think him and Will used to be in school together. Wally was a big-time gang-banger before he became a Muslim.”
 
-the city. At seven o’clock, a choir sang two gospel songs, Will took a roll call of all the churches represented, and a white Lutheran from the suburbs explained the history and mission of CCRC. A procession of speakers then mounted the stage: a black legislator and a white legislator, a Baptist minister and Cardinal Bernardin, and finally the governor, who offered his solemn pledge of support for the new job bank and recited evidence of his tireless efforts on behalf of the working men and women of Illinois.
+“Once a thug, always a thug,” Angela said.
 
-To my mind the whole thing came off a bit flat, like a political convention or a TV wrestling match. Still, the crowd seemed to be enjoying itself. Some people hoisted bright banners bearing the name of their church. Others broke into boisterous cheers as a friend or relative was recognized from the stage. Seeing all these black and white faces together in one place, I, too, found myself feeling cheered, recognizing in myself the same vision driving Marty, his confidence in the populist impulse and working-class solidarity; his faith that if you could just clear away the politicians and media and bureaucrats and give everybody a seat at the table, then ordinary people could find common ground.
+Our next stop was the local Chamber of Commerce, located on the second floor of what looked like a pawnshop. Inside, we found a plump black man who was busy packing boxes.
 
-When the rally was over, Marty mentioned that he had to give some people a ride home, so instead of riding with him I decided to take one of the buses heading back to the city. As it turned out, there was an empty seat next to Will on the bus, and in the glow of the freeway lights, he began to tell me a little about himself.
+“We’re looking for Mr. Foster,” I said to the man.
 
-He had grown up in Chicago, he said, and served in Vietnam. After the war, he had found a job as an executive trainee at Continental Illinois Bank and had risen fast, enjoying the trappings of the work-the car, the suits, the downtown office. Then the bank had reorganized and Will was laid off, leaving him shaken and badly in debt. It was the turning point in his life, he said, God’s way of telling him to get his values straight. Rather than look for another job in banking, he turned to Christ. He joined St. Catherine’s parish in West Pullman and took a job as the janitor there. The decision had put some strain on his marriage-his wife was “still adjusting,” he said-but according to Will, the ascetic lifestyle suited his new mission: to spread the Good News and puncture some of the hypocrisy he saw in the church.
+“I’m Foster,” he said, not looking up.
 
-“A lot of black folks in the church get mixed up in middle-class attitudes,” Will said. “Think that as long as they follow the letter of Scripture, they don’t need to follow the spirit. Instead of reaching out to people who are hurting, they make them feel unwelcome. They look at people funny unless they’re wearing the right clothes to mass, talk proper and all that. They figure they’re comfortable, so why put themselves out. Well, Christ ain’t about comfort, is he? He preached a social gospel. Took his message to the weak. The downtrodden. And that’s exactly what I tell some of these middle-class Negroes whenever I stand up on Sunday. Tell ’em what they don’t wanna hear.”
+“We were told that you were the president of the Chamber-”
 
-“Do they listen?”
+“Well, you right about that. I was the president. Just resigned last week.”
 
-“No.” Will chuckled. “But that don’t stop me. It’s like this collar I wear. That really gets some of ’em mad. ‘Collars are for priests,’ they tell me. But see, just ’cause I’m married and can’t be ordained don’t mean I don’t have a calling. Ain’t nothing in the Bible talking about collars. So I go ahead and wear a collar to let people know where I’m coming from.
+He offered us three chairs and talked as he worked. He explained that he had owned the stationery store down the
 
-“In fact, I wore a collar when some of us went to meet with Cardinal Bernardin about a month back. Everyone was real uptight about it. Then they got upset when I called the Cardinal ‘Joe’ instead of ‘Your Holiness.’ But you know, Bernardin was cool. He’s a spiritual man. I could tell we understood each other. It’s these rules again that keep us apart-rules of men, not rules of God. See, Barack, I’m in the Catholic church, but I was raised a Baptist. Could’ve joined a Methodist church, Pentecostal, whatever, just as easy. St. Catherine’s is just where God happened to send me. And He cares more about whether I’m about the business of helping others than whether I’m straight on my catechisms.”
+street for fifteen years now, had been the president of the Chamber for the last five. He had done his best to organize the local merchants, but lack of support had finally left him discouraged.
 
-I nodded, deciding not to ask what a catechism was. In Indonesia, I had spent two years at a Muslim school, two years at a Catholic school. In the Muslim school, the teacher wrote to tell my mother that I made faces during Koranic studies. My mother wasn’t overly concerned. “Be respectful,” she’d said. In the Catholic school, when it came time to pray, I would pretend to close my eyes, then peek around the room. Nothing happened. No angels descended. Just a parched old nun and thirty brown children, muttering words. Sometimes the nun would catch me, and her stern look would force my lids back shut. But that didn’t change how I felt inside. I felt that way now, listening to Will; my silence was like closing my eyes.
+“You won’t hear me complaining about the Koreans,” he said, stacking a few boxes by the door. “They’re the only ones that pay their dues into the Chamber. They understand business, what it means to cooperate. They pool their money. Make each other loans. We don’t do that, see. The black merchants around here, we’re all like crabs in a bucket.” He straightened up and wiped his brow with a handkerchief. “I don’t know. Maybe you can’t blame us for being the way we are. All those years without opportunity, you have to figure it took something out of us. And it’s tougher now than it was for the Italian or the Jew thirty years ago. These days, a small store like mine has to compete against the big chains. It’s a losing battle unless you do like these Koreans-work your family sixteen hours a day, seven days a week. As a people, we’re not willing to do that anymore. I guess we worked so long for nothing, we feel like we shouldn’t have to break our backs just to survive. That’s what we tell our children anyway. I can’t say I’m any different. I tell my sons I don’t want them taking over the business. I want them to go work for some big company where they can be comfortable....”
 
-The bus came to a stop in the church parking lot, and Will walked to the front of the bus. He thanked everybody for coming and urged them to stay involved. “It’s a long road we’re traveling,” he said, “but tonight showed me what we
+Before we left, Angela asked about the possibility of part-time work for the youth in Altgeld. Mr. Foster looked up at her like she was crazy.
+
+“Every merchant around here turns down thirty applications a day,” he said. “Adults. Senior citizens. Experienced workers willing to take whatever they can get. I’m sorry.”
+
+As we walked back to the car, we passed a small clothing store full of cheap dresses and brightly colored sweaters, two aging white mannequins now painted black in the window. The store was poorly lit, but toward the back I could make out the figure of a young Korean woman sewing by hand as a child slept beside her. The scene took me back to my childhood, back to the markets of Indonesia: the hawkers, the leather workers, the old women chewing betelnut and swatting flies off their fruit with whisk brooms.
 

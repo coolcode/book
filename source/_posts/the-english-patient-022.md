@@ -1,113 +1,67 @@
 title: The English Patient 022
-date: 2015-01-24 15:44:13
+date: 2015-01-25 03:45:55
 tags: the-english-patient
 ---
 
-From Groppi Park they arc out into the old city, South Cairo, markets where few Europeans go. In his rooms maps cover the walls. And in spite of his attempts at furnishing there is still a sense of base camp to his quarters.
+By August the blitz had begun, and in one month there were suddenly 2,500 unexploded bombs to be dealt with.
 
-They lie in each other’s arms, the pulse and shadow of the fan on them. All morning he and Bermann have worked in the archaeological museum placing Arabic texts and European his¬tories beside each other in an attempt to recognize echo, co¬incidence, name changes—back past Herodotus to the Kitab al Kanuz, where Zerzura is named after the bathing woman in a desert caravan. And there too the slow blink of a fan’s shadow. And here too the intimate exchange and echo of child¬hood history, of scar, of manner of kiss.
+Roads were closed, factories deserted. By September the num¬ber of live bombs had reached 3,700. One hundred new bomb squads were set up, but there was still no understanding of how the bombs worked. Life expectancy in these units was ten weeks.
 
-“I don’t know what to do. I don’t know what to do! How can I be your lover? He will go mad.”
+“This was a Heroic Age of bomb disposal, a period of individual prowess, when urgency and a lack of knowledge and equipment led to the taking of fantastic risks.... It was, however, a Heroic Age whose protagonists remained obscure, since their actions were kept from the public for reasons of security. It was obviously undesirable to publish reports that might help the enemy to estimate the ability to deal with weapons.”
 
-A list of wounds.
+In the car, driving down to Westbury, Singh had sat in front with Mr. Harts while Miss Morden rode in the back with Lord Suffolk. The khaki-painted Humber was famous. The mudguards were painted bright signal red—as all bomb disposal travel units were—and at night there was a blue filter over the left sidelight. Two days earlier a man walking near the famous chalk horse on the Downs had been blown up. When engineers arrived at the site they discovered that an¬other bomb had landed in the middle of the historic location— in the stomach of the giant white horse of Westbury carved into the rolling chalk hills in 1778. Shortly after this event, all the chalk horses on the Downs—there were seven—had cam¬ouflage nets pegged down over them, not to protect them so much as stop them being obvious landmarks for bombing raids over England.
 
-The various colours of the bruise—bright russet leading to brown. The plate she walked across the room with, flinging its contents aside, and broke across his head, the blood rising up into the straw hair. The fork that entered the back of his shoulder, leaving its bite marks the doctor suspected were caused by a fox.
+From the backseat Lord Suffolk chatted about the migration of robins from the war zones of Europe, the history of bomb disposal, Devon cream. He was introducing the customs of England to the young Sikh as if it was a recently discovered culture. In spite of being Lord Suffolk he lived in Devon, and until war broke out his passion was the study of Lorna Doone and how authentic the novel was historically and geographi¬cally. Most winters he spent puttering around the villages of Brandon and Porlock, and he had convinced authorities that Exmoor was an ideal location for bomb-disposal training. There were twelve men under his command—made up of talents from various units, sappers and engineers, and Singh was one of them. They were based for most of the week at Richmond Park in London, being briefed on new methods or working on unexploded bombs while fallow deer drifted around them. But on weekends they would go down to Ex-moor, where they would continue training during the day and afterwards be driven by Lord Suffolk to the church where Lorna Doone was shot during her wedding ceremony. “Either from this window or from that back door... shot right down the aisle—into her shoulder. Splendid shot, actually, though of course reprehensible. The villain was chased onto the moors and had his muscles ripped from his body.” To Singh it sounded like a familiar Indian fable.
 
-He would step into an embrace with her, glancing first to see what moveable objects were around. He would meet her with others in public with bruises or a bandaged head and explain about the taxi jerking to a halt so that he had hit the open side window. Or with iodine on his forearm that covered a welt. Madox worried about his becoming suddenly accident-prone. She sneered quietly at the weakness of his explanation. Maybe it’s his age, maybe he needs glasses, said her husband, nudging Madox. Maybe it’s a woman he met, she said. Look, isn’t that a woman’s scratch or bite?
+Lord Suffolk’s closest friend in the area was a female aviator who hated society but loved Lord Suffolk. They went shooting together. She lived in a small cottage in Countisbury on a cliff that overlooked the Bristol
 
-It was a scorpion, he said. Androctonus australis. A postcard. Neat handwriting fills the rectangle.
+第99页共162页 http://www.en8848.com.cn/ 原版英语阅读网
 
-第82页共162页 http://www.en8848.com.cn/ 原版英语阅读网
+￼￼￼Channel. Each village they passed in the Humber had its exotica described by Lord Suffolk. “This is the very best place to buy blackthorn walking sticks.” As if Singh were thinking of stepping into the Tudor corner store in his uniform and turban to chat casually with the owners about canes. Lord Suffolk was the best of the English, he later told Hana. If there had been no war he would never have roused himself from Countisbury and his retreat, called Home Farm, where he mulled along with the wine, with the flies in the old back laundry, fifty years old, married but essentially bachelor in character, walking thp cliffs each day to visit his aviator friend. He liked to fix things—old laundry tubs and plumbing generators and cooking spits run by a waterwheel. He had been helping Miss Swift, the aviator, collect information on the habits of badgers.
 
-￼￼￼Half my days 1 cannot bear not to touch you. The rest of the time I feel it doesn’t matter
+The drive to the chalk horse at Westbury was therefore busy with anecdote and information. Even in wartime he knew the best place to stop for tea. He swept into Pamela’s Tea Room, his arm in a sling from an accident with guncotton, and shepherded in his clan—secretary, chauffeur and sapper —as if they were his children. How Lord Suffolk had per¬suaded the LJXB Committee to allow him to set up his experi¬mental bomb disposal outfit no one was sure, but with his background in inventions he probably had more qualifications than most. He was an autodidact, and he believed his mind could read the motives and spirit behind any invention. He had immediately invented the pocket shirt, which allowed fuzes and gadgets to be stored easily by a working sapper.
 
-if I ever see you again. It isn’t the morality, it is how much you can bear.
+They drank tea and waited for scones, discussing the in situ defusing of bombs. “I trust you, Mr. Singh, you know that, don’t you?”
 
-No date, no name attached.
+“Yes, sir.” Singh adored him. As far as he was concerned, Lord Suffolk was the first real gentleman he had met in England.
 
-Sometimes when she is able to spend the night with him they are wakened by the three minarets of the city beginning their prayers before dawn. He walks with her through the indigo markets that lie between South Cairo and her home. The beautiful songs of faith enter the air like arrows, one minaret answering another, as if passing on a rumour of the two of them as they walk through the cold morning air, the smell of charcoal and hemp already making the air profound. Sinners in a holy city.
+“You know I trust you to do as well as I. Miss Morden will be with you to take notes. Mr. Harts will be farther back. If you need more equipment or more strength, blow on the police whistle and he will join you. He doesn’t advise but he under¬stands perfectly. If he won’t do something it means he dis¬agrees with you, and I’d take his advice. But you have total authority on the site. Here is my pistol. The fuzes are probably more sophisticated now, but you never know, you might be in luck.”
 
-He sweeps his arm across plates and glasses on a restaurant table so she might look up somewhere else in the city hearing this cause of noise. When he is without her. He, who has never felt alone in the miles of longitude between desert towns. A man in a desert can hold absence in his cupped hands knowing it is something that feeds him more than water. There is a plant he knows of near El Taj, whose heart, if one cuts it out, is replaced with a fluid containing herbal goodness. Every morning one can drink the liquid the amount of a miss¬ing heart. The plant continues to flourish for a year before it dies from some lack or other.
+Lord Suffolk was alluding to an incident that had made him famous. He had discovered a method for inhibiting a delayed-action fuze by pulling out his army revolver and firing a bullet through the fuze head, so arresting the movement of the clock body. The method was abandoned when the Germans intro¬duced a new fuze in which the percussion cap and not the clock was uppermost.
 
-He lies in his room surrounded by the pale maps. He is without Katharine. His hunger wishes to burn down all social rules, all courtesy.
+Kirpal Singh had been befriended, and he would never for¬get it. So far, half of his time during the war had taken place in the slipstream of this lord who had never stepped out of England and planned never to step out of Countisbury once the war ended. Singh had arrived in England knowing no one, distanced from his family in the Punjab. He was twenty-one years old. He had met no one but soldiers. So that when he read the notice asking for volunteers with an experimental bomb squad, even though he heard other sappers speak of Lord Suffolk as a madman, he had already decided that in a war you have to take control, and there was a greater chance of choice
 
-Her life with others no longer interests him. He wants only her stalking beauty, her theatre of expressions. He wants the minute and secret reflection between them, the depth of field minimal, their foreignness intimate like two pages of a closed book.
+第100页共162页 http://www.en8848.com.cn/ 原版英语阅读网
 
-He has been disassembled by her.
+￼￼￼and life alongside a personality or an individual.
 
-And if she has brought him to this, what has he brought her to?
+He was the only Indian among the applicants, and Lord Suffolk was late. Fifteen of them were led into a library and asked by the secretary to wait. She remained at the desk, copying out names, while the soldiers joked about the inter¬view and the test. He knew no one. He walked over to a wall and stared at a barometer, was about to touch it but pulled back, just putting his face close to it. Very Dry to Fair to Stormy. He muttered the words to himself with his new Eng¬lish pronunciation. “Wery dry. Very dry.” He looked back at the others, peered around the room and caught the gaze of the middle-aged secretary. She watched him sternly. An Indian boy. He smiled and walked towards the bookshelves. Again he touched nothing. At one point he put his nose close to a volume called Raymond, or Life and Death by Sir Oliver Hodge.
 
-When she is within the wall of her class and he is beside her in larger groups he tells jokes he doesn’t laugh at himself. Uncharacteristically manic, he attacks the history of explora¬tion. When he is unhappy he does this. Only Madox recog¬nizes the habit. But she will not even catch his eye. She smiles to everyone, to the objects in the room, praises a flower ar¬rangement, worthless impersonal things. She misinterprets his behaviour, assuming this is what he wants, and doubles the size of the wall to protect herself.
+He found another, similar title. Pierre, or the Ambiguities. He turned and caught the woman’s eyes on him again. He felt as guilty as if he had put the book in his pocket. She had prob¬ably never seen a turban before. The English! They expect you to fight for them but won’t talk to you. Singh. And the ambiguities.
 
-第83页共162页 http://www.en8848.com.cn/ 原版英语阅读网
+They met a very hearty Lord Suffolk during lunch, who poured wine for anyone who wanted it, and laughed loudly at every attempt at a joke by the recruits. In the afternoon they were all given a strange exam in which a piece of machinery had to be put back together without any prior information of what it was used for. They were allowed two hours but could leave as soon as the problem was solved. Singh finished the exam quickly and spent the rest of the time inventing other objects that could be made from the various components. He sensed he would be admitted easily if it were not for his race. He had come from a country where mathematics and mechan¬ics were natural traits. Cars were never destroyed. Parts of them were carried across a village and readapted into a sewing machine or water pump. The backseat of a Ford was reuphol-stered and became a sofa. Most people in his village were more likely to carry a spanner or screwdriver than a pencil. A car’s irrelevant parts thus entered a grandfather clock or irrigation pulley or the spinning mechanism of an office chair. Antidotes to mechanized disaster were easily found. One cooled an over¬heating car engine not with new rubber hoses but by scooping up cow shit and patting it around the condenser. What he saw in England was a surfeit of parts that would keep the conti¬nent of India going for two hundred years.
 
-￼￼￼But now he cannot bear this wall in her. You built your walls too, she tells him, so I have my wall. She says it glitter¬ing in a beauty he cannot stand. She with her beautiful clothes, with her pale face that laughs at everyone who smiles at her, with the uncertain grin for his angry jokes. He contin¬ues his appalling statements about this and that in some ex¬pedition they are all familiar with.
+He was one of three applicants selected by Lord Suffolk. This man who had not even spoken to him (and had not laughed with him, simply because he had not joked) walked across the room and put his arm around his shoulder. The severe secretary turned out to be Miss Morden, and she bus¬tled in with a tray that held two large glasses of sherry, handed one to Lord Suffolk and, saying, “I know you don’t drink,” took the other one for herself and raised her glass to him. “Congratulations, your exam was splendid. Though I was sure you would be chosen, even before you took it.”
 
-The minute she turns away from him in the lobby of Grop-pi’s bar after he greets her, he is insane. He knows the only way he can accept losing her is if he can continue to hold her or be held by her. If they can somehow nurse each other out of this. Not with a wall.
+“Miss Morden is a splendid judge of character. She has a nose for brilliance and character.”
 
-Sunlight pours into his Cairo room. His hand flabby over the Herodotus journal, all the tension in the rest of his body, so he writes words down wrong, the pen sprawling as if with¬out spine. He can hardly write down the word sunlight. The words in love.
+“Character, sir?”
 
-In the apartment there is light only from the river and the desert beyond it. It falls upon her neck her feet the vaccination scar he loves on her right arm. She sits on the bed hugging nakedness. He slides his open palm along the sweat of her shoulder. This is my shoulder, he thinks, not her husband’s, this is my shoulder. As lovers they have offered parts of their bodies to each other, like this. In this room on the periphery of the river.
+“Yes. It is not really necessary, of course, but we are going to be working together. We are very much a family
 
-In the few hours they have, the room has darkened to this pitch of light. Just river and desert light. Only when there is the rare shock of rain do they go towards the window and put their arms out, stretching, to bathe as much as they can of themselves in it. Shouts towards the brief downpour fill the streets.
+第101页共162页 http://www.en8848.com.cn/ 原版英语阅读网
 
-“We will never love each other again. We can never see each other again.”
+￼￼￼here. Even before lunch Miss Morden had selected you.”
 
-“I know,” he says.
+“I found it quite a strain being unable to wink at you, Mr. Singh.”
 
-The night of her insistence on parting.
+Lord Suffolk had his arm around Singh again and was walk¬ing him to the window.
 
-She sits, enclosed within herself, in the armour of her ter¬rible conscience. He is unable to reach through it. Only his body is close to her.
+“I thought, as we do not have to begin till the middle of next week, I’d have some of the unit come down to Home Farm. We can pool our knowledge in Devon and get to know each other. You can drive down with us in the Humber.”
 
-“Never again. Whatever happens.”
+So he had won passage, free of the chaotic machinery of the war. He stepped into a family, after a year abroad, as if he were the prodigal returned, offered a chair at the table, em¬braced with conversations.
 
-“Yes.”
+It was almost dark when they crossed the border from Som¬erset into Devon on the coastal road overlooking the Bristol Channel. Mr. Harts turned down the narrow path bordered with heather and rhododendrons, a dark blood colour in this last light. The driveway was three miles long.
 
-“I think he will go mad. Do you understand?”
-
-He says nothing, abandoning the attempt to pull her within him.
-
-An hour later they walk into a dry night. They can hear the gramophone songs in the distance from the Music for All cin¬ema, its windows open for the heat. They will have to part before that closes up and people she might
-
-第84页共162页 http://www.en8848.com.cn/ 原版英语阅读网
-
-￼￼￼know emerge from there.
-
-They are in the botanical garden, near the Cathedral of All Saints. She sees one tear and leans forward and licks it, taking it into her mouth. As she has taken the blood from his hand when he cut himself cooking for her. Blood. Tear. He feels everything is missing from his body, feels he contains smoke. All that is alive is the knowledge of future desire and want. What he would say he cannot say to this woman whose open¬ness is like a wound, whose youth is not mortal yet. He cannot alter what he loves most in her, her lack of compromise, where the romance of the poems she loves still sits with ease in the real world. Outside these qualities he knows there is no order in the world.
-
-This night of her insistence. Twenty-eighth of September. The rain in the trees already dried by hot moonlight. Not one cool drop to fall down upon him like a tear. This parting at Groppi Park. He has not asked if her husband is home in that high square of light, across the street.
-
-He sees the tall row of traveller’s palms above them, their outstretched wrists. The way her head and hair were above him, when she was his lover.
-
-Now there is no kiss. Just one embrace. He untugs himself from her and walks away, then turns. She is still there. He comes back within a few yards of her, one finger raised to make a point.
-
-“I just want you to know. I don’t miss you yet.” His face awful to her, trying to smile. Her head sweeps away from him and hits the side of the gatepost. He sees it hurt her, notices the wince. But they have separated already into themselves now, the walls up at her insistence. Her jerk, her pain, is accidental, is intentional. Her hand is near her temple.
-
-“You will,” she says.
-
-From this point on in our lives, she had whispered to him earlier, we will either find or lose our souls. How does this happen? To fall in love and be disassembled.
-
-I was in her arms. I had pushed the sleeve of her shirt up to the shoulder so I could see her vaccination scar. I love this, I said. This pale aureole on her arm. I see the instrument scratch and then punch the serum within her and then release itself, free of her skin, years ago, when she was nine years old, in a school gymnasium.
-
-VI A Buried Plane
-
-HE GLARES OUT, each eye a path, down the long bed at the end of which is Hana. After she has bathed him she breaks the tip off an ampoule and turns to him with the morphine. An effigy. A bed. He rides the boat of morphine. It races in him, imploding time and geography the way maps compress the world onto a two- dimensional sheet of paper.
-
-第85页共162页 http://www.en8848.com.cn/ 原版英语阅读网
-
-￼￼￼The long Cairo evenings. The sea of night sky, hawks in rows until they are released at dusk, arcing towards the last colour of the desert. A unison of performance like a handful of thrown seed.
-
-In that city in 1936 you could buy anything—from a dog or a bird that came at one pitch of a whistle, to those terrible leashes that slipped over the smallest finger of a woman so she was tethered to you in a crowded market.
-
-In the northeast section of Cairo was the great courtyard of religious students, and beyond it the Khan el Khalili bazaar. Above the narrow streets we looked down upon cats on the corrugated tin roofs who also looked down the next ten feet to the street and stalls. Above all this was our room. Windows open to minarets, feluccas, cats, tremendous noise. She spoke to me of her childhood gardens. When she couldn’t sleep she drew her mother’s garden for me, word by word, bed by bed, the December ice over the fish pond, the creak of rose trellises. She would take -my wrist at the confluence of veins and guide it onto the hollow indentation at her neck.
-
-March 1937, Uweinat. Madox is irritable because of the thinness in the air. Fifteen hundred feet above sea level and he is uncomfortable with even this minimal height. He is a desert man after all, having left his family’s village of Marston Magna, Somerset, altered all customs and habits so he can have the proximity to sea level as well as regular dryness.
-
-“Madox, what is the name of that hollow at the base of a woman’s neck? At the front. Here. What is it, does it have an official name? That hollow about the size of an impress of your thumb?”
-
-Madox watches me for a moment through the noon glare.
-
-“Pull yourself together,” he mutters.
-
-Let me tell you a story,” Caravaggio says to Hana. “There was a Hungarian named Almasy, who worked for the Germans during the war. He flew a bit with the Afrika Korps, but he was more valuable than that. In the 19305 he had been one of the great desert explorers. He knew every water hole and had helped map the Sand Sea. He knew all about the desert. He knew all about dialects. Does this sound familiar? Between the two wars he was always on expeditions out of Cairo. One was to search for Zerzura—the lost oasis. Then when war broke out he joined the Germans. In 1941 he became a guide for spies, taking them across the desert into Cairo. What I want to tell you is, I think the English patient is not English.”
+Apart from the trinity of Suffolk, Morden and Harts, there were six sappers who made up the unit. They walked the moors around the stone cottage over the weekend. Miss Morden and Lord Suffolk and his wife were joined by the aviatrix for the Saturday-night dinner. Miss Swift told Singh she had always wished to fly overland to India. Removed from his bar¬racks, Singh had no idea of his location. There was a map on a roller high up on the ceiling. Alone one morning he pulled the roller down until it touched the floor. Countisbury and Area. Mapped by R. Fones. Drawn by desire of Mr. James Halliday.
 

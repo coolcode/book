@@ -1,85 +1,63 @@
 title: House of Cards 040
-date: 2015-01-24 15:43:55
+date: 2015-01-25 03:45:37
 tags: house-of-cards
 ---
 
-‘I... I don't know for sure. But I think he blamed himself so badly over the shares.'
+He offered no suggestion, but gazed along the gallery at the grand oil portraits of Victorian statesmen to whom conspiracy and cunning had come as second nature, wondering what they would have thought. Mattie could not share his wry amusement.
 
-"The shares? You mean the Renox shares?' said Mattie in alarm.
+'He must be acting together with someone else who does have something to gain - someone more important, more powerful, who could benefit from the change of leadership. There has to be another figure in there somewhere, pulling O'Neill's strings.'
 
-'Charles Collingridge asked him to open the accommodation address because he wanted somewhere for his private mail. Roger and I went to Paddington in a taxi, and he sent me in to do the paper work. I knew he felt uneasy at the time, I think he sensed there was something wrong. And when he realised what it had been used for and how much trouble it had caused, he just began going to pieces.'
+'So you are looking for a mystery man with the means and the motive. Well, he has to be in a position to control O'Neill, and have access to sensitive political information. It would also help if he had been engaged in a much publicised and bitter battle with the Prime Minister. Surely you
 
-'Why did Mr Collingridge ask Roger to open the address and not do it himself ?'
+don't have to look too far for candidates.' ‘
 
-I've no idea, really. Perhaps he felt guilty because of what he was going to use it for. Roger just breezed into the office one day during the summer and said he'd got a favour to do for Charles Collingridge, that it was terribly confidential and I was to breathe a word to no one.'
+￼'Give me one.'
 
-Her words reminded her that she had broken her promise - of silence and more tears began to flow, but Mattie soon reassured her, and they continued their walk.
+He took a deep breath and savoured the dark, conspiratorial atmosphere of the evening air. It's easy. Teddy Williams.'
 
-'So you never saw Charles Collingridge yourself ?'
+It was late that evening when Urquhart returned to his room in the Commons. The celebrations and congratulations had followed him all the way from his office to the Harcourt Room beneath the House of Lords where he had dined, being interrupted frequently by colleagues eager to shake him by the hand and wish him well. He had proceeded on to the Members' Smoking Room, a private place much loved by MPs who gather there away from the prying eyes of the press not so much to smoke as to exchange views and gossip and to twist a few arms. The Whips know the Smoking Room well, and Urquhart had used his hour there to good effect before once more climbing the twisting stairs to his office.
 
-'No. I've never really met him at all. Roger likes to handle all the important people himself, and as far as I'm aware Mr Collingridge has never come into the office.'
+His secretary had emptied the ashtrays, cleared the glasses and straightened the cushions, and his room was once again quiet and welcoming. He closed the door behind him, locking it carefully. He crossed to the four-drawer filing cabinet with its stout security bar and combination-lock which the Government provide for all Ministers to secure their confidential papers while out of their departmental offices. He twirled the combination four times, until there was a gentle click and the security bar fell away into his hands. He removed it and bent down to open the bottom drawer.
 
-'But you are sure it was Charles Collingridge?'
+The drawer creaked as it came open. It was stuffed full of files and papers, each one with the name of a different MP on it, each one (containing the personal and incriminating material he had carefully winnowed out of the safe in the Whips Office where all the best kept parliamentary secrets are stored to await Judgement Day, or some other parliamentary emergency. It had taken him nearly three years to amass this material, and he knew it was more valuable than a drawer crammed full with gold bars.
 
-￼'Of course, Roger said so. And who else could it have been?' The dampness began to appear again at the comer of her eyes. She shivered violently as a burst of cold November air from across the river sent the dead autumnal leaves cascading around them. 'Oh, God, it's all such an awful mess.'
+He knelt down and sorted carefully through the files. He quickly found what he was looking for, a padded envelope, already addressed and sealed. After extracting it he closed the drawer and secured the filing cabinet, testing as he always did to make sure the lock and security bar had caught properly.
 
-'Penny, relax! It will be all right. Why don't you take a couple of days off and let Roger take care of himself? He can survive without you for a little while. He knows how to use the office computer, doesn't he?'
+It was nearly midnight as he drove out of the entrance gates to the House of Commons, a police officer stopping the late night traffic around Parliament Square to enable him to ease out into the busy road and speed on his way. However, he did not head the car in the direction of his Pimlico home. He first drove to one of the twenty-four-hour motorcycle messenger services which flourish amongst the seedier basements of Soho, where he dropped the envelope off and paid in cash for delivery early the following morning. It would have been easier to post it in the House of Commons, where they have one of the most efficient post offices in the country. But he did not want a House of Commons postmark on this envelope.
 
-‘He can struggle through on the basics reasonably well if I'm not around, but even he wouldn't pretend he's a keyboard magician. No, I’ll be all right.'
+￼WEDNESDAY 24th NOVEMBER
 
-So it was O'Neill who had 'struggled through' with the computer file. Another piece fell into place in Mattie's mind. She didn't feel comfortable squeezing information out of a vulnerable and trusting secretary, but there was no alternative.
+The letters and newspapers arrived almost simultaneously with a dull thud on Woolton's Chelsea doormat early the following morning. Hearing the clatter, he came downstairs and gathered them up, spreading the newspapers out on the kitchen table while he left the post on a small bench in the hallway for his wife. He received over 300 letters a week from his constituents and other correspondents, and he had long since given up trying to read them all. So he left them for his wife, who was also his constituency secretary and for whom he got a generous secretarial allowance from the parliamentary authorities to supplement his Cabinet Minister's stipend.
 
-look, how can I put this... Roger sounds as if he is very unwell. He's obviously been under a lot of strain, and he might be having a breakdown. Perhaps he's drinking too much. I'm not a doctor, but I do know one who's very good at that sort of thing. If you need any help, please give me a call.'
+The newspapers were dominated by news and analysis of the leadership election. The headlines all seemed to have been written by moonlighting journalists from the Sporting Life, and phrases such as 'Neck And Neck', 'Three Horse Race' or 'Photo Finish' dominated the front pages. Inside, the more sanguine commentaries explained that it was difficult to predict which of the three leading contenders was now better placed, while most concluded that, in spite of his first place, Samuel was probably the most disappointed of the contestants since he had failed to live up to his early promise.
 
-They had arrived back in Smith Square by now, and prepared to part. 'Mattie, thank you. You've been a great help.'
+'The Party is now presented with a clear choice’ intoned the Guardian.
 
-'No, Penny. I'm the one who is grateful. Take care of yourself.'
+Michael Samuel is by far the most popular and polished of the three, with a clear record of being able to combine a political career with the retention of a well defined social conscience. The fact that he has been attacked by some elements of the Party as being 'too liberal by half' is a badge he should wear with considerable pride. He would undoubtedly provide a firm lead for the Party and would continue to confront the leading social issues head on - a laudable characteristic which has, however, not always commended itself to his colleagues.
 
-Mattie walked the few hundred yards back to the House of Commons, oblivious of the chill and wondering why on earth Roger O'Neill had framed Charles and Henry Collingridge.
+Patrick Woolton is an altogether different politician. Immensely proud of his Northern origins, he poses as a man who could unite the two halves of the country. Whether his robust style of politics could unite the two halves of his own Party is altogether more debatable. He plays his politics as if he were still hooking for his old rugby league club, although his recent experience at the Foreign Office has done much to knock some of the sharper edges off his style. Unlike Samuel he would not attempt to lead the Party in any particular philosophical direction, setting great store on a pragmatic approach. But robustness combined with pragmatism has occasionally been an unhappy combination. The Leader of the Opposition has described him as a man wandering the streets of Westminster in search of a fight for any available reason.
 
-￼TUESDAY 16th NOVEMBER - WEDNESDAY 17th NOVEMBER
+Francis Urquhart is more difficult to assess. The least experienced and least well known of the three, nevertheless his performance in the first round ballot was truly remarkable, far outstripping many of his better fancied senior colleagues. Three reasons seem to explain his success. First, as Chief Whip he knows the Parliamentary Party extremely well, and they him. Since it is his colleagues in the Parliamentary Party and not the electorate at large who will decide this election, his low public profile is less of a disadvantage than many perhaps assumed..
 
-Urquhart declared his intention to seek the leadership of the Party at a press conference held in the House of Commons at 5 p.m., timed to catch the early evening TV news and the first editions of the following day's press. The surroundings afforded by the meeting room in the Palace of Westminster, with its noble carved stone fireplace, its dark oak panelling and its traditional atmosphere of authority gave the proceedings a dignity which the announcements of Samuel, Woolton and others had lacked. Urquhart succeeded in establishing the impression of a man who was being dragged reluctantly towards the seat of power, placing his duty to his colleagues and country above his own, modest personal interests.
+Second, he has conducted his campaign in a dignified style which sets him apart from the verbal fisticuffs and misfortunes of the other contenders. What is known of his politics suggests he holds firm to the traditionalist line, somewhat patrician and authoritarian perhaps, but sufficiently ill- defined for him not to have antagonised either wing of the Party.
 
-It was seventeen hours later, on Wednesday morning, that Landless held his own press conference. He sat in one of the palatial reception rooms of the Ritz Hotel at a long table covered with microphones, facing the cameras and questions of the financial press. Alongside him and almost dwarfed by his bulging girth sat Marcus Frobisher, the Chairman of the United Newspapers Group who, although an industrial magnate in his own right, was clearly cast to play a secondary role on this occasion. Behind them for the benefit of the cameras had been erected a vast backdrop with the colourful logo TEN' carefully crafted upon it and highlighted with lasers. To one side was a large video screen, on which was playing a corporate video featuring some of the Telegraph's better advertising material interspersed with cuts of Landless being greeted by workers, pulling levers to start the printing presses and generally running his empire in a warm and personal manner. The press conference, for all its immediacy, had clearly been carefully planned.
+Finally, perhaps his greatest asset is that he is neither of the other two. Many MPs have certainly supported him in the first round rather than commit themselves to one of the better fancied but more contentious candidates. He is the obvious choice for those who wish to sit on the fence. But it is that which could ultimately derail his campaign, because as the pressure for a clear decision forces Government MPs off the fence, Urquhart is the candidate who could suffer most.
 
-'Good morning ladies and gentlemen.'
+So the choice is clear. Those who wish to air their social consciences will support Samuel. Those who thirst for blood-and-thunder politics will support Woolton. Those who cannot make up their minds have an obvious choice in Urquhart. Whichever way they decide, they will inevitably deserve what they get.
 
-Landless called the throng to order in a voice which was considerably less cockney than the one he adopted on private occasions. 'Thank you for corning at such short notice. We have invited you here to tell you about one of the most exciting steps forward for the British communications industry since Julius Renter established his telegraph service in London more than a hundred years ago.'.
+Woolton chuckled as he munched his breakfast toast. He knew it was most unlikely at the end of the day that his colleagues would support a call to conscience - it was so difficult to explain in the pub or over the garden fence, and popular politics shouldn't be too complicated. If Urquhart's support was going to be squeezed, he decided, then the majority of switchers would come to him, and the bleeding hearts could go hang. Margaret Thatcher had shown how it could be done, and she was a woman. Take away her feminine shrillness and the dogmatic inflexibility, he mused, and you had the ideal political leader -Patrick Woolton.
 
-He shifted one of the microphones a little closer to stop himself craning his neck. 'Today we wish to announce the creation of the largest newspaper group in the United Kingdom, which will provide a platform for making this country once again the worldwide leader in the rapidly expanding industry of providing information services.
+As his wife replenished his tea he debated with himself whether he should rile another prominent rabbi in the next few days just to remind his colleagues of the Jewish issue. He decided against it; it wasn't necessary, the Party's old guard would see to that without his interfering.
 
-'Telegraph Newspapers has made an offer to purchase the full issued share capital of the United Newspapers Group at a price which values them at £’I.4 billion, a premium of 40 per cent above the current market price. I am delighted to say that the board of the United Newspapers Group has unanimously accepted the bid, and also agreed the terms for the future management of the combined group. I shall become Chairman and Chief Executive of the new company, and my good friend and former competitor, now colleague.. .' he stretched a huge paw to grasp the arm of Frobisher, as menacingly as if he were grasping him around the neck -'... is to be the President’
+'Darling, I have this feeling it is going to be an excellent day,' he proclaimed as he kissed his wife goodbye at their doorstep. A couple of photographers were outside on the pavement, and they asked him to repeat the kiss before he was allowed to get into his official car and drive off for a day's campaigning in the House.
 
-Several nodding heads around the room indicated that they clearly understood which of the men would be in sole charge of the new operation. Frobisher sat there trying hard to put on a good face.
+His wife went through her daily routine of clearing the breakfast table before settling down to handle the correspondence. The volume had increased dramatically in the last few years, she noted with a sigh of resignation. Gone were the days when there was any hope of a personal answer to them all; it was now up to the word processor and its carefully programmed series of standard responses. She wondered whether anybody really noticed or cared that most of her husband's constituency letters were written by computer and signed by a little autograph machine he had brought back from the States on a recent trip. The majority of the letters were from lobby groups, professional critics or downright political opponents who weren't the least bit interested in the content of the replies. But they all needed answering nonetheless, she told herself as she began the monotonous daily task of opening the thick bundle of envelopes. She would never risk losing her husband a single vote by failing to offer some form of reply even to the most abusive of letters.
 
-'This is an important step for the British newspaper industry. The combined operation will control more national and major regional titles than any other newspaper group in this country, and the amalgamation of our international subsidiaries will make us the third largest newspaper group in the world. To mark this new departure we are renaming the company, and as you can see, our new corporate title will be Telegraph Express Newspapers Company PLC - TEN’ He at last released his grip on Frobisher and waved at the logo behind.
+￼She left the padded brown envelope until last. It had clearly been hand-delivered and was firmly stapled down, and she had to struggle to extract the infuriating metal clips before getting at the contents. As she pulled out the last tenacious staple, a cassette tape fell out into her lap. There was nothing else in the envelope, no letter, no compliments slip, no label on the tape to indicate where it had come from or what it contained.
 
-‘Do you like my new corporate design?' he asked jovially. He hoped they did. His daughter's two-woman partnership had been given the
+'Fools. How on earth do they expect me to reply to that!'
 
-contract - its first-for devising the company's new name and corporate design, and he was determined that she be given almost as much attention as himself.
+She put the tape to one side before switching on the word processor.
 
-You will find waiting for you at the door a document which gives the full details of the offer and agreement. So, questions please!' There was an excited hum from the audience, and a forest of hands shot up to catch his eye.
-
-‘I suppose to be fair I ought to take the first question from someone who will not be working for the group,' jested Landless. 'Now, can we find anyone here who won't be part of the new team?' With theatrical exaggeration he shielded his eyes from the bright lights and searched the audience for a suitable victim, and they all laughed at his cheek..
-
-'Mr Landless,' shouted the business editor of the Sunday Times. The Government have made it very clear in recent years that they feel the British newspaper industry is already concentrated into too few hands, and that they would use their powers under the monopolies and mergers legislation to prevent any further consolidation. How on earth do you expect to get the necessary Government approval for this deal?'
-
-There was a strong murmur of assent to the question from around the room. The Government had made loud if imprecise noises during the election about their commitment to increasing industrial competition.
-
-'An excellent point’ Landless spread his arms wide as if to hug the question to his chest and slowly throttle it to death.
-
-You are right, the Government will need to take a view on the matter. And I hope they will be sufficiently wise and visionary to realise that the operation we are putting together, far from jeopardising the British newspaper industry, is vital to its continuing success. Newspapers are just part of the worldwide information industry, which is growing and changing every day. You all know that. Five years ago you all worked in Fleet Street with old typewriters and printing presses which should have been scrapped when the Kaiser surrendered. Today the industry is modernised, decentralised, computerised. Yet still it must keep changing. It has more competition, from satellite television, local radio, breakfast TV and the rest’
-
-'Shame!' cried a voice within the audience, and they laughed nostalgically about the cosy days of Fleet Street and El Vino's wine bar, and the
-
-￼prolonged printers' strikes and disputes which allowed them weeks or even months off to write books or build boats and dream dreams while still on full pay. But they all recognised the inescapable truth in what Landless was saying.
-
-In ten years' time more and more people will be demanding information twenty-four hours a day, from all parts of the world. Fewer and fewer of them will be getting that information from newspapers which arrive hours after the news has occurred and which covers them in filthy printing ink. If we are to survive in business we must no longer think of ourselves as parochial newspaper men, but as suppliers of information on a worldwide basis. So our new group, "TEN", will not just be a traditional newspaper business but will be grown into the world's leading supplier of information to business and homes around the world, whether they want that information printed, televised, computerised or sung by canaries. And to do that we .need the size, the muscle and the resources which only a large group such as "TEN" can provide.'
-
-He gestured generously towards the questioner. 'And as you so rightly point out, we also need the
-
-Government's permission. So the Government have a choice. They can take the narrow view, prohibit the merger and preside over the decline of the British newspaper industry, which will be dead within ten years as the Americans, Japanese and even Australians take over. Or they can be responsible and visionary, and care about the jobs which exist and which can be created in the industry, and think not about narrow British competition but about the much broader international competition which we need to take on and beat if we are to survive. If they do that, they will allow us to build the biggest and finest information service in the world, based right here in Britain’.
-
-A blitz of flash guns greeted him as he sat back in his chair, the carefully rehearsed appeal finished while the journalists who still took shorthand scribbled furiously to catch up with him. The questioner turned to his neighbour.
+It took her three hours of solid work to go through the letters, persuade the word processor to chum out a reply which had some chance of persuading the recipient that they were receiving personalised attention, watch them being signed by machine, then fold and seal them. The tape she left on the desk. Her mouth was gummed up from licking too many envelopes, and she needed a cup of coffee. The silly tape could wait.
 

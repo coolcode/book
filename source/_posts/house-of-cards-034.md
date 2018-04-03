@@ -1,133 +1,85 @@
 title: House of Cards 034
-date: 2015-01-24 15:44:01
+date: 2015-01-25 03:45:43
 tags: house-of-cards
 ---
 
-There were several cars in the driveway and the front door was open. She was surprised to see people wandering around with apparent freedom, and no sign of the formidable white-coated nurses she had expected to find patrolling the grounds for potential escapees. She parked her car on the road and walked cautiously up the drive towards the door.
+‘I... I don't know for sure. But I think he blamed himself so badly over the shares.'
 
-A large, tweed-suited gentleman with a white military moustache approached and her heart sank. This was surely the security patrol, and she had clearly been spotted as an intruder.
+"The shares? You mean the Renox shares?' said Mattie in alarm.
 
-'Excuse me, my dear,' he said in a clipped accent as he intercepted her by the front door. 'Have you seen any member of staff about? They like to keep out of the way on family visiting days, but you can never find one when you want them.'
+'Charles Collingridge asked him to open the accommodation address because he wanted somewhere for his private mail. Roger and I went to Paddington in a taxi, and he sent me in to do the paper work. I knew he felt uneasy at the time, I think he sensed there was something wrong. And when he realised what it had been used for and how much trouble it had caused, he just began going to pieces.'
 
-Mattie offered her apologies and smiled warmly in relief. She realised that by good fortune she had struck the best possible day to look around, and could lose herself amidst the other visitors.
+'Why did Mr Collingridge ask Roger to open the address and not do it himself ?'
 
-She picked up one of the brochures which were piled on the hall table, and found a quiet chair on which to sit while she inspected it. A brief glance at the literature told her that the treatment centre was run on very different lines than she had imagined. No straitjackets, no locks on the doors, just twenty-three well-trained people waiting to give guidance, encouragement and their medical experience to addicts who sought help in an atmosphere resembling more a fashionable country retreat than an institution. Even more encouragingly for Mattie, the brochure had a plan of the thirty-two-bed house, which Mattie used to guide herself around the premises in search of her quarry.
+I've no idea, really. Perhaps he felt guilty because of what he was going to use it for. Roger just breezed into the office one day during the summer and said he'd got a favour to do for Charles Collingridge, that it was terribly confidential and I was to breathe a word to no one.'
 
-She found him outside on a garden bench, enjoying the view across the valley and the last of the October sun. She wasn't going to enjoy the deception, but that is what she had come for.
+Her words reminded her that she had broken her promise - of silence and more tears began to flow, but Mattie soon reassured her, and they continued their walk.
 
-'Why, Charles!' she exclaimed. 'What a surprise to find you here.'
+'So you never saw Charles Collingridge yourself ?'
 
-He looked at her with a total lack of comprehension.
+'No. I've never really met him at all. Roger likes to handle all the important people himself, and as far as I'm aware Mr Collingridge has never come into the office.'
 
-‘I... I'm sorry,' he ventured. ‘I don't recognise...'
+'But you are sure it was Charles Collingridge?'
 
-'Mattie Storin. Don't you remember? We spent a most enjoyable evening together in Bournemouth a couple of weeks ago.'
+￼'Of course, Roger said so. And who else could it have been?' The dampness began to appear again at the comer of her eyes. She shivered violently as a burst of cold November air from across the river sent the dead autumnal leaves cascading around them. 'Oh, God, it's all such an awful mess.'
 
-'Oh, I'm sorry, Miss Storin. I don't remember. You see, I'm an alcoholic, that's why I'm here, and I'm afraid I was in no condition a few weeks ago to remember very much at all.'
+'Penny, relax! It will be all right. Why don't you take a couple of days off and let Roger take care of himself? He can survive without you for a little while. He knows how to use the office computer, doesn't he?'
 
-She was taken aback by his frankness, and he smiled serenely.
+‘He can struggle through on the basics reasonably well if I'm not around, but even he wouldn't pretend he's a keyboard magician. No, I’ll be all right.'
 
-‘Please don't be embarrassed. The biggest single step I've had to make in curing myself of addiction is to admit that I am an addict. I had a million ways of hiding it, particularly from myself, and it was only when I was able to face myself that I began being able to face the outside world again. That's what this treatment centre is all about.'
+So it was O'Neill who had 'struggled through' with the computer file. Another piece fell into place in Mattie's mind. She didn't feel comfortable squeezing information out of a vulnerable and trusting secretary, but there was no alternative.
 
-Mattie suddenly blushed deeply. She realised that she had intruded into the private world of a sick man, and she felt ashamed. 'Charles, if you don't remember who I am, then you will not remember that I am a journalist.'
+look, how can I put this... Roger sounds as if he is very unwell. He's obviously been under a lot of strain, and he might be having a breakdown. Perhaps he's drinking too much. I'm not a doctor, but I do know one who's very good at that sort of thing. If you need any help, please give me a call.'
 
-The smile disappeared, to be replaced by a look of resignation.
+They had arrived back in Smith Square by now, and prepared to part. 'Mattie, thank you. You've been a great help.'
 
-‘I suppose it had to happen at some time, although Henry was hoping that I could be left alone here quietly...'
+'No, Penny. I'm the one who is grateful. Take care of yourself.'
 
-'Charles, please let me explain. I've not come here to make life difficult for you, and when I leave here your privacy will continue to be respected so far as I am concerned. I think the press owe you that.'
+Mattie walked the few hundred yards back to the House of Commons, oblivious of the chill and wondering why on earth Roger O'Neill had framed Charles and Henry Collingridge.
 
-‘I think they probably do...'
+￼TUESDAY 16th NOVEMBER - WEDNESDAY 17th NOVEMBER
 
-'But I would like your help. Don't say anything for the moment, just let me talk a little.' He nodded in encouragement.
+Urquhart declared his intention to seek the leadership of the Party at a press conference held in the House of Commons at 5 p.m., timed to catch the early evening TV news and the first editions of the following day's press. The surroundings afforded by the meeting room in the Palace of Westminster, with its noble carved stone fireplace, its dark oak panelling and its traditional atmosphere of authority gave the proceedings a dignity which the announcements of Samuel, Woolton and others had lacked. Urquhart succeeded in establishing the impression of a man who was being dragged reluctantly towards the seat of power, placing his duty to his colleagues and country above his own, modest personal interests.
 
-'Your brother, the Prime Minister, has been forced to resign because of allegations that he helped you to speculate in shares and make a quick profit.'
+It was seventeen hours later, on Wednesday morning, that Landless held his own press conference. He sat in one of the palatial reception rooms of the Ritz Hotel at a long table covered with microphones, facing the cameras and questions of the financial press. Alongside him and almost dwarfed by his bulging girth sat Marcus Frobisher, the Chairman of the United Newspapers Group who, although an industrial magnate in his own right, was clearly cast to play a secondary role on this occasion. Behind them for the benefit of the cameras had been erected a vast backdrop with the colourful logo TEN' carefully crafted upon it and highlighted with lasers. To one side was a large video screen, on which was playing a corporate video featuring some of the Telegraph's better advertising material interspersed with cuts of Landless being greeted by workers, pulling levers to start the printing presses and generally running his empire in a warm and personal manner. The press conference, for all its immediacy, had clearly been carefully planned.
 
-He started to wave his hand to bring her to a halt but she pressed on.
+'Good morning ladies and gentlemen.'
 
-'Charles, none of those allegations make any sense to me. You and your brother risking the office of Prime Minister for a measly few thousand pounds - it doesn't add up. What's more, I also know that someone has deliberately been trying to undermine your brother for some time by leaking
+Landless called the throng to order in a voice which was considerably less cockney than the one he adopted on private occasions. 'Thank you for corning at such short notice. We have invited you here to tell you about one of the most exciting steps forward for the British communications industry since Julius Renter established his telegraph service in London more than a hundred years ago.'.
 
-￼damaging material to the press. But I only have suspicions. I came to see if you could point me towards something more tangible.'
+He shifted one of the microphones a little closer to stop himself craning his neck. 'Today we wish to announce the creation of the largest newspaper group in the United Kingdom, which will provide a platform for making this country once again the worldwide leader in the rapidly expanding industry of providing information services.
 
-'Miss Storin - Mattie, as we seem to be old friends -’I am a drunk. I cannot even remember meeting you. How can I, of all people, be of help? My word carries no weight whatsoever.'
+'Telegraph Newspapers has made an offer to purchase the full issued share capital of the United Newspapers Group at a price which values them at £’I.4 billion, a premium of 40 per cent above the current market price. I am delighted to say that the board of the United Newspapers Group has unanimously accepted the bid, and also agreed the terms for the future management of the combined group. I shall become Chairman and Chief Executive of the new company, and my good friend and former competitor, now colleague.. .' he stretched a huge paw to grasp the arm of Frobisher, as menacingly as if he were grasping him around the neck -'... is to be the President’
 
-‘I’m neither a judge nor a prosecutor, Charles. I'm just trying to piece together a puzzle from a thousand scattered shards’ He looked far over the hills towards Dover and the Channel beyond, searching in the distance.
+Several nodding heads around the room indicated that they clearly understood which of the men would be in sole charge of the new operation. Frobisher sat there trying hard to put on a good face.
 
-'Mattie, I've tried so hard to remember, believe me. The thought that I have disgraced Henry and forced him into resignation is almost more than I can stand. But I know nothing about buying and selling shares, nothing at all. I don't know what the truth is. I can't help you, I'm afraid.'
+'This is an important step for the British newspaper industry. The combined operation will control more national and major regional titles than any other newspaper group in this country, and the amalgamation of our international subsidiaries will make us the third largest newspaper group in the world. To mark this new departure we are renaming the company, and as you can see, our new corporate title will be Telegraph Express Newspapers Company PLC - TEN’ He at last released his grip on Frobisher and waved at the logo behind.
 
-'Wouldn't you have remembered something about buying the shares, if you had indeed bought them?'
+‘Do you like my new corporate design?' he asked jovially. He hoped they did. His daughter's two-woman partnership had been given the
 
-‘For the last month I have been a very sick...' - he laughed gently -'... a very drunk man. There are many things I have absolutely no recollection of.'
+contract - its first-for devising the company's new name and corporate design, and he was determined that she be given almost as much attention as himself.
 
-'Wouldn't you have remembered where you got the money to buy the shares, or what you did with the proceeds?'
+You will find waiting for you at the door a document which gives the full details of the offer and agreement. So, questions please!' There was an excited hum from the audience, and a forest of hands shot up to catch his eye.
 
-‘I admit that it's hugely unlikely I would have had a small fortune lying around without my remembering it or, more likely, spending it on alcohol. I have no idea where the money could have gone. Even I can't drink away £50,000 in just a few weeks.'
+‘I suppose to be fair I ought to take the first question from someone who will not be working for the group,' jested Landless. 'Now, can we find anyone here who won't be part of the new team?' With theatrical exaggeration he shielded his eyes from the bright lights and searched the audience for a suitable victim, and they all laughed at his cheek..
 
-'What about the false address in Paddington?'
+'Mr Landless,' shouted the business editor of the Sunday Times. The Government have made it very clear in recent years that they feel the British newspaper industry is already concentrated into too few hands, and that they would use their powers under the monopolies and mergers legislation to prevent any further consolidation. How on earth do you expect to get the necessary Government approval for this deal?'
 
-'A complete mystery. I don't even know where Praed Street in Paddington is when I'm sober, so it is preposterous to suppose I would have found my way there drunk. It's the other side of London from where I live.'
+There was a strong murmur of assent to the question from around the room. The Government had made loud if imprecise noises during the election about their commitment to increasing industrial competition.
 
-'But you used it - so they say - for your bank and subscription to the Party's literature service.'
+'An excellent point’ Landless spread his arms wide as if to hug the question to his chest and slowly throttle it to death.
 
-Charles Collingridge roared with laughter. 'Mattie, you're beginning to restore my faith in myself. No matter how drunk I was, I cannot conceive I could possibly have shown any interest in the Party's literature service. I object when political propaganda is pushed through my letter box at election time; having to pay for it every month would be an insult!'
+You are right, the Government will need to take a view on the matter. And I hope they will be sufficiently wise and visionary to realise that the operation we are putting together, far from jeopardising the British newspaper industry, is vital to its continuing success. Newspapers are just part of the worldwide information industry, which is growing and changing every day. You all know that. Five years ago you all worked in Fleet Street with old typewriters and printing presses which should have been scrapped when the Kaiser surrendered. Today the industry is modernised, decentralised, computerised. Yet still it must keep changing. It has more competition, from satellite television, local radio, breakfast TV and the rest’
 
-'Have you ever contributed to the Party's literature service?' 'Never!’
+'Shame!' cried a voice within the audience, and they laughed nostalgically about the cosy days of Fleet Street and El Vino's wine bar, and the
 
-The sun was setting and a warm, red glow filled the sky, lighting up his face. He seemed visibly to be returning to health, and to be content. ‘I can't prove it, but I don't believe I am guilty of the things they say I have done. It would mean a lot to me if you believed that, too.'
+￼prolonged printers' strikes and disputes which allowed them weeks or even months off to write books or build boats and dream dreams while still on full pay. But they all recognised the inescapable truth in what Landless was saying.
 
-‘I do, Charles, very much. And I'm going to try to prove it for you.'
+In ten years' time more and more people will be demanding information twenty-four hours a day, from all parts of the world. Fewer and fewer of them will be getting that information from newspapers which arrive hours after the news has occurred and which covers them in filthy printing ink. If we are to survive in business we must no longer think of ourselves as parochial newspaper men, but as suppliers of information on a worldwide basis. So our new group, "TEN", will not just be a traditional newspaper business but will be grown into the world's leading supplier of information to business and homes around the world, whether they want that information printed, televised, computerised or sung by canaries. And to do that we .need the size, the muscle and the resources which only a large group such as "TEN" can provide.'
 
-She rose to leave.
+He gestured generously towards the questioner. 'And as you so rightly point out, we also need the
 
-'I've enjoyed your visit, Mattie. Now that we are such old friends, please come again.'
+Government's permission. So the Government have a choice. They can take the narrow view, prohibit the merger and preside over the decline of the British newspaper industry, which will be dead within ten years as the Americans, Japanese and even Australians take over. Or they can be responsible and visionary, and care about the jobs which exist and which can be created in the industry, and think not about narrow British competition but about the much broader international competition which we need to take on and beat if we are to survive. If they do that, they will allow us to build the biggest and finest information service in the world, based right here in Britain’.
 
-'I shall. But in the meantime, I've got a lot of digging to do.'
-
-It was late by the time she got back to London that evening. The first editions of the Sunday newspapers were already on the streets. She bought a heavy pile of them and, with magazines and inserts slipping from her laden arms, she threw them on the back seat of her car. It was then she noticed the Sunday Times headline.
-
-'Now why is Harold Earle making such a fuss about environmental matters?' she asked herself. The Education Secretary, not a noted Greenpeace lover, had just announced his intention to stand for the leadership and simultaneously had made a speech entitled 'Clean Up Our Country.'
-
-'We have talked and talked endlessly about the problems of our inner cities, while those who live in them have been forced to watch their neighbourhoods continue to decline. In the meantime, the impoverished state of our inner cities has been matched by the deplorable degeneration of far too much of our rural countryside,' the Sunday Times reported him as saying. 'For too long we have neglected such issues, to our cost. Recycled expressions of concern are no substitute for positive action, and it is time we backed our fine words with finer deeds. The opinion polls show that the environment is the most important non-economic issue on which the voters say we have failed. After more than twelve years in office, this is unacceptable, and we must wake up to these concerns’
-
-'Silly me’ said Mattie. I'm getting slow in my old age. Can't decipher the code. Which Cabinet Minister is supposed to be responsible for environmental matters, and therefore responsible for this mess?'
-
-The public fight to eliminate Michael Samuel had begun.
-
-￼WEDNESDAY 3rd NOVEMBER
-
-Mattie tried many times during the following week to get hold of Kevin Spence, but he was never available. In spite of the repeated assurances of his gushingly polite secretary, Mattie knew that he was deliberately avoiding her. He was therefore not at all pleased when, in some desperation, she called very late on Wednesday evening and was put straight through to his extension by the night security guard.
-
-'No, of course I haven't been avoiding you’ he assured her, 'but I havebeen very busy. Working very late.' 'Kevin, I need your help again.'
-
-‘I remember the last time I gave you my help. You said you were going towrite a piece on opinion polls and then
-
-you wrote a story slandering thePrime Minister. Now he's gone.' He spoke with a quiet sadness. 'Hewas always very decent to me, very kind, and I think the press have been unspeakably cruel.'
-
-'Kevin, I give you my word that I was not responsible for that story. Youmay have noticed that my name was not on the article, and I was evenmore displeased about it than
-
-you. It's about Mr Collingridge'sresignation that I'm calling. Personally, I don't believe the allegationswhich are being made against him and his brother. I would like to be able to clear his name.'
-
-‘I can't see how I could assist you,' he said in a distrusting tone. 'Anyway,I'm afraid that nobody outside the press office is allowed to have contactwith the media during the leadership campaign. Chairman's strictestorders.'
-
-'Kevin, there's a lot at stake here. Not only the leadership, of the Party,and whether you are going to win the next election or not, but alsowhether history is going to regard Henry Collingridge as a crook and acheat or whether he is going to have a chance to put the record straight.Don't we owe him that?'
-
-He thought about it for a second, and she heard his hostility slowlymelting.
-
-If I could help, what would you want?'
-
-'Very simply, do you understand the computer system at partyheadquarters?'
-
-'Yes, of course. I use it all the time to help analyse opinion research. I'vegot a screen in front of me which is linked directly to our main frame.' ‘I think your computer system has been tampered with. Will you let mesee it?'
-
-Tampered with? That's impossible. We have the highest security.Nobody from outside can access it.'
-
-'Not outside, Kevin. Inside.'
-
-There was a stunned silence from the other end of the phone.
-
-I'm working at the House of Commons. I can be with you in less than tenminutes, and I suspect at this time of night the building is very quiet. Noone will notice. Kevin, I'm on my way over.'
-
-Before he could mutter a flustered few words of protest, the phone wentdead as he held it. Mattie was with him less than seven minutes later.
-
-They sat in his small garret office, dominated by the mountains of fileswhich tumbled over every available fiat surface and onto the floor, withtheir attention fixed rigidly on the glowing green screen in front of them.
+A blitz of flash guns greeted him as he sat back in his chair, the carefully rehearsed appeal finished while the journalists who still took shorthand scribbled furiously to catch up with him. The questioner turned to his neighbour.
 

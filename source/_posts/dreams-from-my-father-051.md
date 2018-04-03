@@ -1,71 +1,117 @@
 title: Dreams from My Father 051
-date: 2015-01-24 15:43:44
+date: 2015-01-25 03:45:26
 tags: dreams-from-my-father
 ---
 
-“He’s always wanted to be in a band,” she said softly.
+I decided to stop talking about David after that; I could tell that Auma found the memories too painful. But only a few days later, Auma and I came home to find a car waiting for us outside the apartment. The driver, a brown-skinned man with a prominent Adam’s apple, handed Auma a note.
 
-As we were talking, I noticed a man in his late forties walking toward us. He had silver hair, a silver mustache and goatee; he was dressed in a gray three-piece suit. He moved slowly, methodically, as if conserving energy, sorting through his mail as he walked, humming a simple tune to himself.
+“What is it?” I asked.
 
-“Barack,” he said as if we were old friends, “let’s see if Tracy here will let me have a minute of your time.”
+“It’s an invitation from Ruth,” she said. “Mark’s back from America for the summer. She wants to have us over for lunch.”
 
-“Don’t pay him no mind, Barack,” Tracy said, standing up and straightening out her skirt. “I should have warned you that Rev likes to act silly sometimes.”
+“Do you want to go?”
 
-Reverend Wright smiled and led me into a small, cluttered office. “Sorry for being late,” he said, closing the door behind him. “We’re trying to build a new sanctuary, and I had to meet with the bankers. I’m telling you, doc, they always want something else from you. Latest thing is another life insurance policy on me. In case I drop dead tomorrow. They figure the whole church’ll collapse without me.”
+Auma shook her head, a look of disgust on her face. “Ruth knows I’ve been here almost six months now. She doesn’t care about me. The only reason she’s invited us is because she’s curious about you. She wants to compare you to Mark.”
 
-“Is it true?”
+“I think maybe I should go,” I said quietly.
 
-Reverend Wright shook his head. “I’m not the church, Barack. If I die tomorrow, I hope the congregation will give me a decent burial. I like to think a few tears will be shed. But as soon as I’m six feet under, they’ll be right back on the case, figuring out how to make this church live up to its mission.”
+Auma looked at the note again, then handed it back to the driver and said something to him in Swahili. “We’ll both go,” she said, and walked into the apartment.
 
-He had grown up in Philadelphia, the son of a Baptist minister. He had resisted his father’s vocation at first, joining the Marines out of college, dabbling with liquor, Islam, and black nationalism in the sixties. But the call of his faith had apparently remained, a steady tug on his heart, and eventually he’d entered Howard, then the University of Chicago, where he spent six years studying for a Ph.D. in the history of religion. He learned Hebrew and Greek, read the literature of Tillich and Niebuhr and the black liberation theologians. The anger and humor of the streets, the book learning and occasional twenty-five-cent word, all this he had brought with him to Trinity almost two decades ago. And although it was only later that I would learn much of this biography, it became clear in that very first meeting that, despite the reverend’s frequent disclaimers, it was this capacious talent of his-this ability to hold together, if not reconcile, the conflicting strains of black experience-upon which Trinity’s success had ultimately been built.
+Ruth lived in Westlands, an enclave of expensive homes set off by wide lawns and well-tended hedges, each one with a sentry post manned by brown-uniformed guards. It was raining as we drove toward her house, sending a soft, gentle spray through the big, leafy trees. The coolness reminded me of the streets around Punahou, Manoa, Tantalus, the streets where some of my wealthier classmates had lived back in Hawaii. Staring out Auma’s car window, I thought back to the envy I’d felt toward those classmates whenever they invited me over to play in their big backyards or swim in their swimming pools. And along with that envy, a different impression-the sense of quiet desperation those big, pretty houses seemed to contain. The sound of someone’s sister crying softly behind the door. The sight of a mother sneaking a tumbler of gin in midafternoon. The expression on a father’s face as he sat alone in his den, his features clenched as he flicked between college football games on TV. An impression of loneliness that perhaps wasn’t true, perhaps was just a projection of my own heart, but that, either way, had made me want to run, just as, an ocean away, David had run, back into the marketplace and noisy streets, back into disorder and the laughter disorder produced, back into the sort of pain a boy could understand.
 
-“We got a lot of different personalities here,” he told me. “Got the Africanist over here. The traditionalist over here. Once in a while, I have to stick my hand in the pot-smooth things over before stuff gets ugly. But that’s rare. Usually, if somebody’s got an idea for a new ministry, I just tell ’em to run with it and get outta their way.”
+We came to one of the more modest houses on the block and parked along the curve of a looping driveway. A white woman with a long jaw and graying hair came out of the house to meet us. Behind her was a black man of my height and complexion with a bushy Afro and horn-rimmed glasses.
 
-His approach had obviously worked: the church had grown from two hundred to four thousand members during his tenure; there were organizations for every taste, from yoga classes to Caribbean clubs. He was especially pleased with the church’s progress in getting more men involved, although he admitted that they still had a way to go.
+“Come in, come in,” Ruth said. The four of us shook hands stiffly and entered a large living room, where a balding, older black man in a safari jacket was bouncing a young boy on his lap. “This is my husband,” Ruth said, “and this is Mark’s little brother, Joey.”
 
-“Nothing’s harder than reaching young brothers like yourself,” he said. “They worry about looking soft. They worry about what their buddies are gonna say about ’em. They tell themselves church is a woman’s thing-that it’s a sign of weakness for a man to admit that he’s got spiritual needs.”
+“Hey, Joey,” I said, bending down to shake his hand. He was a beautiful boy, with honey-colored skin and two front teeth missing. Ruth tousled the boy’s big curls, then looked at her husband and said, “Weren’t you two on your way to the club?”
 
-The reverend looked up at me then, a look that made me nervous. I decided to shift the conversation to more familiar ground, telling him about DCP and the issues we were working on, explaining the need for involvement from larger churches like his. He sat patiently and listened to my pitch, and when I was finished he gave a small nod.
+“Yes, yes,” the man said, standing up. “Come on, Joey...it was nice to meet you both.” The boy stood fast, staring up at Auma and me with a bright, curious smile until his father finally picked him up and carried him out the door.
 
-“I’ll try to help you if I can,” he said. “But you should know that having us involved in your effort isn’t necessarily a feather in your cap.”
+“Well, here we are,” Ruth said, leading us to the couch and pouring lemonade. “I must say it was quite a surprise to find out you were here, Barry. I told Mark that we just had to see how this other son of Obama’s turned out. Your name is Obama, isn’t it? But your mother remarried. I wonder why she had you keep your name?”
 
-“Why’s that?”
+I smiled as if I hadn’t understood the question. “So, Mark,” I said, turning to my brother, “I hear you’re at Berkeley.”
 
-Reverend Wright shrugged. “Some of my fellow clergy don’t appreciate what we’re about. They feel like we’re too radical. Others, we ain’t radical enough. Too emotional. Not emotional enough. Our emphasis on African history, on scholarship-”
+“Stanford,” he corrected. His voice was deep, his accent perfectly American. “I’m in my last year of the physics program there.”
 
-“Some people say,” I interrupted, “that the church is too upwardly mobile.”
+“It must be tough,” Auma offered.
 
-The reverend’s smile faded. “That’s a lot of bull,” he said sharply. “People who talk that mess reflect their own confusion. They’ve bought into the whole business of class that keeps us from working together. Half of ’em think that the former gang-banger or the former Muslim got no business in a Christian church. Other half think any black man with an education or a job, or any church that respects scholarship, is somehow suspect.
+Mark shrugged. “Not really.”
 
-“We don’t buy into these false divisions here. It’s not about income, Barack. Cops don’t check my bank account when they pull me over and make me spread-eagle against the car. These miseducated brothers, like that sociologist at the University of Chicago, talking about ‘the declining significance of race.’ Now, what country is he living in?”
+“Don’t be so modest, dear,” Ruth said. “The things Mark studies are so complicated only a handful of people really understand it all.” She patted Mark on the hand, then turned to me. “And Barry, I understand you’ll be going to Harvard. Just like Obama. You must have gotten some of his brains. Hopefully not the rest of him, though. You know Obama was quite crazy, don’t you? The drinking made it worse. Did you ever meet him? Obama, I mean?”
 
-But wasn’t there a reality to the class divisions, I wondered? I mentioned the conversation I’d had with his assistant, the tendency of those with means to move out of the line of fire. He took off his glasses and rubbed what I now saw to be a pair of tired eyes.
+“Only once. When I was ten.”
 
-“I’ve given Tracy my opinion about moving out of the city,” he said quietly. “That boy of hers is gonna get out there and won’t have a clue about where, or who, he is.”
+“Well, you were lucky then. It probably explains why you’re doing so well.”
 
-“It’s tough to take chances with your child’s safety.”
+That’s how the next hour passed, with Ruth alternating between stories of my father’s failure and stories of Mark’s
 
-“Life’s not safe for a black man in this country, Barack. Never has been. Probably never will be.”
+accomplishments. Any questions were directed exclusively to me, leaving Auma to fiddle silently with Ruth’s lasagna. I wanted to leave as soon as the meal was over, but Ruth suggested that Mark show us the family album while she brought out the dessert.
 
-A secretary buzzed, reminding Reverend Wright of his next appointment. We shook hands, and he agreed to have
+“I’m sure they’re not interested, Mother,” Mark said.
 
-Tracy prepare a list of members for me to meet. Afterward, in the parking lot, I sat in my car and thumbed through a silver brochure that I’d picked up in the reception area. It contained a set of guiding principles-a “Black Value System”-that the congregation had adopted in 1979. At the top of the list was a commitment to God, “who will give us the strength to give up prayerful passivism and become Black Christian activists, soldiers for Black freedom and the
+“Of course they’re interested,” Ruth said. Then, her voice oddly distant: “There are pictures of Obama. From when he was young....”
 
-dignity of all humankind.” Then a commitment to the black community and black family, education, the work ethic, discipline, and self-respect.
+We followed Mark to the bookcase, and he pulled down a large photo album. Together we sat on the couch, slowly thumbing through laminate pages. Auma and Roy, dark and skinny and tall, all legs and big eyes, holding the two smaller children protectively in their arms. The Old Man and Ruth mugging it up at a beach somewhere. The entire family dressed up for a night out on the town. They were happy scenes, all of them, and all strangely familiar, as if I were glimpsing some alternative universe that had played itself out behind my back. They were reflections, I realized, of my own long-held fantasies, fantasies that I’d kept secret even from myself. The fantasy of the Old Man’s having taken my mother and me back with him to Kenya. The wish that my mother and father, sisters and brothers, were all under one roof. Here it was, I thought, what might have been. And the recognition of how wrong it had all turned out, the harsh evidence of life as it had really been lived, made me so sad that after only a few minutes I had to look away.
 
-A sensible, heartfelt list-not so different, I suspected, from the values old Reverend Philips might have learned in his whitewashed country church two generations before. There was one particular passage in Trinity’s brochure that stood out, though, a commandment more self-conscious in its tone, requiring greater elaboration. “A Disavowal of the Pursuit of Middleclassness,” the heading read. “While it is permissible to chase ‘middleincomeness’ with all our might,” the text stated, those blessed with the talent or good fortune to achieve success in the American mainstream must avoid the “psychological entrapment of Black ‘middleclassness’ that hypnotizes the successful brother or sister into believing they are better than the rest and teaches them to think in terms of ‘we’ and ‘they’ instead of ‘US’!”
+On the drive back, I apologized to Auma for having put her through the ordeal. She waved it off.
 
-My thoughts would often return to that declaration in the weeks that followed as I met with various members of Trinity. I decided that Reverend Wright was at least partly justified in dismissing the church’s critics, for the bulk of its membership was solidly working class, the same teachers and secretaries and government workers one found in other big black churches throughout the city. Residents from the nearby housing project had been actively recruited, and programs designed to meet the needs of the poor-legal aid, tutorials, drug programs-took up a substantial amount of the church’s resources.
+“It could have been worse,” she said. “I feel sorry for Mark, though. He seems so alone. You know, it’s not easy being a mixed child in Kenya.”
 
-Still, there was no denying that the church had a disproportionate number of black professionals in its ranks: engineers, doctors, accountants, and corporate managers. Some of them had been raised in Trinity; others had transferred in from other denominations. Many confessed to a long absence from any religious practice-a conscious choice for some, part of a political or intellectual awakening, but more often because church had seemed irrelevant to them as they’d pursued their careers in largely white institutions.
+I looked out the window, thinking about my mother, Toot, and Gramps, and how grateful I was to them-for who they were, and for the stories they’d told. I turned back to Auma, and said, “She still hasn’t gotten over him, has she?”
 
-At some point, though, they all told me of having reached a spiritual dead end; a feeling, at once inchoate and oppressive, that they’d been cut off from themselves. Intermittently, then more regularly, they had returned to the church, finding in Trinity some of the same things every religion hopes to offer its converts: a spiritual harbor and the chance to see one’s gifts appreciated and acknowledged in a way that a paycheck never can; an assurance, as bones stiffened and hair began to gray, that they belonged to something that would outlast their own lives-and that, when their time finally came, a community would be there to remember.
+“Who?”
 
-But not all of what these people sought was strictly religious, I thought; it wasn’t just Jesus they were coming home to. It occurred to me that Trinity, with its African themes, its emphasis on black history, continued the role that Reverend Philips had described earlier as a redistributor of values and circulator of ideas. Only now the redistribution didn’t run in just a single direction from the schoolteacher or the physician who saw it as a Christian duty to help the sharecropper or the young man fresh from the South adapt to big-city life. The flow of culture now ran in reverse as well; the former gang-banger, the teenage mother, had their own forms of validation-claims of greater deprivation, and hence authenticity, their presence in the church providing the lawyer or doctor with an education from the streets. By widening its doors to allow all who would enter, a church like Trinity assured its members that their fates remained inseparably bound, that an intelligible “us” still remained.
+“Ruth. She hasn’t gotten over the Old Man.”
 
-It was a powerful program, this cultural community, one more pliant than simple nationalism, more sustaining than my own brand of organizing. Still, I couldn’t help wondering whether it would be enough to keep more people from leaving the city or young men out of jail. Would the Christian fellowship between a black school administrator, say, and a black school parent change the way the schools were run? Would the interest in maintaining such unity allow Reverend Wright to take a forceful stand on the latest proposals to reform public housing? And if men like Reverend Wright failed to take a stand, if churches like Trinity refused to engage with real power and risk genuine conflict, then what chance would there be of holding the larger community intact?
+Auma thought for a moment. “No, Barack. I guess she hasn’t. Just like the rest of us.”
 
-Sometimes I would put such questions to the people I met with. They would respond with the same bemused look Reverend Philips and Reverend Wright had given me. For them, the principles in Trinity’s brochure were articles of faith no less than belief in the Resurrection. You have some good ideas, they would tell me. Maybe if you joined the church you could help us start a community program. Why don’t you come by on Sunday?
+The following week, I called Mark and suggested that we go out to lunch. He seemed a bit hesitant, but eventually agreed to meet me at an Indian restaurant downtown. He was more relaxed than he had been during our first meeting, making a few self-deprecatory jokes, offering his observations about California and academic infighting. As the meal wore on, I asked him how it felt being back for the summer.
 
-And I would shrug and play the question off, unable to confess that I could no longer distinguish between faith and mere folly, between faith and simple endurance; that while I believed in the sincerity I heard in their voices, I remained a reluctant skeptic, doubtful of my own motives, wary of expedient conversion, having too many quarrels with God to accept a salvation too easily won.
+“Fine,” he said. “It’s nice to see my mom and dad, of course. And Joey-he’s really a great kid.” Mark cut off a bite of his samosa and put it into his mouth. “As for the rest of Kenya, I don’t feel much of an attachment. Just another poor African country.”
+
+“You don’t ever think about settling here?”
+
+Mark took a sip from his Coke. “No,” he said. “I mean, there’s not much work for a physicist, is there, in a country where the average person doesn’t have a telephone.”
+
+I should have stopped then, but something-the certainty in this brother’s voice, maybe, or our rough resemblance, like looking into a foggy mirror-made me want to push harder. I asked, “Don’t you ever feel like you might be losing something?”
+
+Mark put down his knife and fork, and for the first time that afternoon his eyes looked straight into mine.
+
+“I understand what you’re getting at,” he said flatly. “You think that somehow I’m cut off from my roots, that sort of thing.” He wiped his mouth and dropped the napkin onto his plate. “Well, you’re right. At a certain point, I made a decision not to think about who my real father was. He was dead to me even when he was still alive. I knew that he was a drunk and showed no concern for his wife or children. That was enough.”
+
+“It made you mad.”
+
+“Not mad. Just numb.”
+
+“And that doesn’t bother you? Being numb, I mean?”
+
+“Towards him, no. Other things move me. Beethoven’s symphonies. Shakespeare’s sonnets. I know-it’s not what an
+
+African is supposed to care about. But who’s to tell me what I should and shouldn’t care about? Understand, I’m not ashamed of being half Kenyan. I just don’t ask myself a lot of questions about what it all means. About who I really am.” He shrugged. “I don’t know. Maybe I should. I can acknowledge the possibility that if I looked more carefully at myself, I would...”
+
+For the briefest moment I sensed Mark hesitate, like a rock climber losing his footing. Then, almost immediately, he regained his composure and waved for the check.
+
+“Who knows?” he said. “What’s certain is that I don’t need the stress. Life’s hard enough without all that excess baggage.”
+
+We stood up to leave, and I insisted on paying the bill. Outside we exchanged addresses and promised to write, with a dishonesty that made my heart ache. When I got home, I told Auma how the meeting had gone. She looked away for a moment, then broke out with a short, bitter laugh.
+
+“What’s so funny?”
+
+“I was just thinking about how life is so strange. You know, as soon as the Old Man died, the lawyers contacted all those who might have a claim to the inheritance. Unlike my mum, Ruth has all the documents needed to prove who Mark’s father was. So of all of the Old Man’s kids, Mark’s claim is the only one that’s uncontested.”
+
+Again Auma laughed, and I looked up at the picture hanging on her wall, the same picture pasted inside Ruth’s album, of three brothers and a sister, smiling sweetly for the camera.
+
+CHAPTER SEVENTEEN
+
+T OWARD THE END OF my second week in Kenya, Auma and I went on a safari.
+
+Auma wasn’t thrilled with the idea. When I first showed her the brochure, she grimaced and shook her head. Like most Kenyans, she could draw a straight line between the game parks and colonialism. “How many Kenyans do you think can afford to go on a safari?” she asked me. “Why should all that land be set aside for tourists when it could be used for farming? These wazungu care more about one dead elephant than they do for a hundred black children.”
+
+For several days we parried. I told her she was letting other people’s attitudes prevent her from seeing her own country. She said she didn’t want to waste the money. Eventually she relented, not because of my persuasive powers but because she took pity on me.
+
+“If some animal ate you out there,” she said, “I’d never forgive myself.”
+
+And so, at seven o’clock on a Tuesday morning, we watched a sturdily built Kikuyu driver named Francis load our bags onto the roof of a white minivan. With us were a spindly cook named Rafael, a dark-haired Italian named Mauro, and a British couple in their early forties, the Wilkersons.
+
+We drove out of Nairobi at a modest pace, passing soon into countryside, green hills and red dirt paths and small shambas surrounded by plots of wilting, widely spaced corn. Nobody spoke, a discomfiting silence that reminded me of similar moments back in the States, the pause that would sometimes accompany my personal integration of a bar or hotel. It made me think about Auma and Mark, my grandparents back in Hawaii, my mother still in Indonesia, and the things Zeituni had told me.
 

@@ -1,103 +1,85 @@
 title: Dreams from My Father 045
-date: 2015-01-24 15:43:50
+date: 2015-01-25 03:45:32
 tags: dreams-from-my-father
 ---
 
-Inside, only a few of the parents remained. Linda stood alone in one corner, sobbing. I came up and put my arm around her shoulder.
+And so it went, a meditation on a fallen world. While the boys next to me doodled on their church bulletin, Reverend Wright spoke of Sharpsville and Hiroshima, the callousness of policy makers in the White House and in the State House. As the sermon unfolded, though, the stories of strife became more prosaic, the pain more immediate. The
 
-“You okay?”
+reverend spoke of the hardship that the congregation would face tomorrow, the pain of those far from the mountain-top, worrying about paying the light bill. But also the pain of those closer to the metaphorical summit: the middle-class woman who seems to have all her worldly needs taken care of but whose husband is treating her like “the maid, the household service, the jitney service, and the escort service all rolled into one”; the child whose wealthy parents worry more about “the texture of hair on the outside of the head than the quality of education inside the head.”
 
-“I’m so embarrassed,” she said, gulping down a sob. “I don’t know what happened, Barack. With all the people...seems like I just always mess things up.”
+“Isn’t that...the world that each of us stands on?”
 
-“You didn’t mess up,” I said. “If anybody messed up, it was me.” I called the others together into a circle and tried to offer encouragement. The turnout was great, I said, which meant people were willing to get involved. Most of the residents would still support our effort. We would learn from our mistakes.
+“Yessuh!”
 
-“And the director sure knows who we are now,” Shirley said.
+“Like Hannah, we have known bitter times! Daily, we face rejection and despair!”
 
-This last line drew some weak laughter. Sadie said she had to get home; I told the group that I could take care of cleaning up. As I watched Bernadette pick up Tyrone in one arm and carry his slumbering weight across the gymnasium floor, I felt my stomach constrict. Dr. Collier tapped me on the shoulder.
+“Say it!”
 
-“So who’s gonna cheer you up?” she asked.
+“And yet consider once again the painting before us. Hope! Like Hannah, that harpist is looking upwards, a few faint
 
-I shook my head.
+notes floating upwards towards the heavens. She dares to hope.... She has the audacity...to make music...and praise God...on the one string...she has left!”
 
-“You take some chances, things are gonna blow once in a while.”
+People began to shout, to rise from their seats and clap and cry out, a forceful wind carrying the reverend’s voice up into the rafters. As I watched and listened from my seat, I began to hear all the notes from the past three years swirl about me. The courage and fear of Ruby and Will. The race pride and anger of men like Rafiq. The desire to let go, the desire to escape, the desire to give oneself up to a God that could somehow put a floor on despair.
 
-“But the looks on their faces...”
+And in that single note-hope!-I heard something else; at the foot of that cross, inside the thousands of churches across the city, I imagined the stories of ordinary black people merging with the stories of David and Goliath, Moses and Pharaoh, the Christians in the lion’s den, Ezekiel’s field of dry bones. Those stories-of survival, and freedom, and hope-became our story, my story; the blood that had spilled was our blood, the tears our tears; until this black church, on this bright day, seemed once more a vessel carrying the story of a people into future generations and into a larger world. Our trials and triumphs became at once unique and universal, black and more than black; in chronicling our journey, the stories and songs gave us a means to reclaim memories that we didn’t need to feel shamed about, memories more accessible than those of ancient Egypt, memories that all people might study and cherish-and with which we could start to rebuild. And if a part of me continued to feel that this Sunday communion sometimes simplified our condition, that it could sometimes disguise or suppress the very real conflicts among us and would fulfill its promise only through action, I also felt for the first time how that spirit carried within it, nascent, incomplete, the possibility of moving beyond our narrow dreams.
 
-“Don’t worry,” Dr. Collier said. “They’re tough. Not as tough as they sound-none of us are, including you. But they’ll
+“The audacity of hope! I still remember my grandmother, singing in the house, ‘There’s a bright side somewhere...don’t rest till you find it....’”
 
-get over it. Something like this is just part of growing up. And sometimes growing up hurts.”
+“That’s right!”
 
-The fallout from the meeting could have been worse. Because we had run so late, only one TV station replayed the tug-of-war between Linda and the director. The morning paper noted the frustration residents felt with CHA’s slow response to the asbestos problem, as well as the director’s tardiness that evening. In fact, we could claim the meeting as a victory of sorts, for the following week men dressed in moon-suits and masks were seen all over the Gardens, sealing any asbestos that posed an immediate threat. CHA also announced that it had asked the U.S. Department of Housing and Urban Development for several million dollars in emergency cleanup funds.
+“The audacity of hope! Times when we couldn’t pay the bills. Times when it looked like I wasn’t ever going to amount to anything...at the age of fifteen, busted for grand larceny auto theft...and yet and still my momma and daddy would break into a song...
 
-Such concessions helped to lift the spirits of some of the parents, and after a few weeks of licking our wounds, we started meeting again to make sure that CHA followed up on its commitments. Still, in Altgeld at least, I couldn’t shake the feeling that the window of possibility that had been pried open so briefly had slammed shut once again. Linda, Bernadette, Mr. Lucas-they would all continue to work with DCP, but only reluctantly, out of loyalty to me rather than to each other. Other residents who had joined us during the weeks leading up to the meeting dropped away. Mrs. Reece refused to speak to us anymore, and while few people paid attention to her attacks on our methods and motives, the squabbling only served to reinforce the suspicion among residents that no amount of activism would alter their condition, except maybe to bring trouble that they didn’t need.
+Thank you, Jesus. Thank you, Jesus. Thank you, Jesus. Thank you, Jesus.
 
-A month or so after the initial cleanup, we met with HUD to lobby for CHA’s budget request. In addition to the emergency cleanup funds, CHA had asked the feds for over a billion dollars to make basic repairs on projects all over the city. A tall, dour white man from HUD went over the line items.
+Thank you, Je-sus,
 
-“Let me be blunt,” he told us. “CHA has no chance of getting even half the appropriation it’s requested. You can have the asbestos removed. Or you can have new plumbing and roofing where it’s needed. But you can’t have both.”
+Thank you, Lo-ord.
 
-“So you’re telling us that after all this, we gonna be worse off than we was,” Bernadette said.
+You brought me fro-om
 
-“Well, not exactly. But these are the budget priorities coming out of Washington these days. I’m sorry.”
+A mighty long way, mighty long way.
 
-Bernadette hoisted Tyrone up on her lap. “Tell that to him.”
+“And it made no sense to me, this singing! Why were they thanking Him for all of their troubles? I’d ask myself. But see, I was only looking at the horizontal dimension of their lives!”
 
-Sadie didn’t join us for that meeting. She had called me to say that she had decided to stop working with DCP.
+“Tell it now!”
 
-“My husband doesn’t think it’s a good idea, me spending all this time instead of looking after my own family. He says
+“I didn’t understand that they were talking about the vertical dimension! About their relationship to God! I didn’t understand that they were thanking Him in advance for all that they dared to hope for in me! Oh, I thank you, Jesus, for not letting go of me when I let go of you! Oh yes, Jesus, I thank you....”
 
-that the publicity went to my head...that I became prideful.”
+As the choir lifted back up into song, as the congregation began to applaud those who were walking to the altar to accept Reverend Wright’s call, I felt a light touch on the top of my hand. I looked down to see the older of the two boys sitting beside me, his face slightly apprehensive as he handed me a pocket tissue. Beside him, his mother glanced at me with a faint smile before turning back toward the altar. It was only as I thanked the boy that I felt the tears running down my cheeks.
 
-I suggested that as long as her family lived in the Gardens, she’d have to stay involved.
+“Oh, Jesus,” I heard the older woman beside me whisper softly. “Thank you for carrying us this far.”
 
-“Ain’t nothing gonna change, Mr. Obama,” she said. “We just gonna concentrate on saving our money so we can
+CHAPTER FIFTEEN
 
-move outta here as fast as we can.”
+I FLEW OUT OF HEATHROW Airport under stormy skies. A group of young British men dressed in ill-fitting blazers filled the back of the plane, and one of them-a pale, gangly youth, still troubled with acne-took the seat beside me. He read over the emergency instructions twice with great concentration, and once we were airborne, he turned to ask where I was headed. I told him I was traveling to Nairobi to visit my family.
 
-CHAPTER THIRTEEN
+“Nairobi’s a beautiful place, I hear. Wouldn’t mind stopping off there one of these days. Going to Johannesburg, I am.” He explained that as part of a degree program in geology, the British government had arranged for him and his classmates to work with South African mining companies for a year. “Seems like they have a shortage of trained people there, so if we’re lucky they’ll take us on for a permanent spot. Best chance we have for a decent wage, I reckon-unless you’re willing to freeze out on some bleeding North Sea oil rig. Not for me, thank you.”
 
-I ’M TELLING YOU, MAN, the world is a place.”
+I mentioned that if given the chance, a lot of black South Africans might be interested in getting such training.
 
-“Say, the world is a place, huh.”
+“Well, I’d imagine you’re right about that,” he said. “Don’t much agree with the race policy there. A shame, that.” He thought for a moment. “But then the rest of Africa’s falling apart now, isn’t it? Least from what I can tell. The blacks in
 
-“That’s just what I’m saying.”
+South Africa aren’t starving to death like they do in some of these Godforsaken countries. Don’t envy them, mind you, but compared to some poor bugger in Ethiopia-”
 
-We were walking back to the car after dinner in Hyde Park, and Johnnie was in an expansive mood. He often got like
+A stewardess came down the aisle with headphones for rent, and the young man pulled out his wallet. “’Course, I try and stay out of politics, you know. Figure it’s none of my business. Same thing back home-everybody on the dole, the old men in Parliament talking the same old rubbish. Best thing to do is mind your own little corner of the world, that’s what I say.” He found the outlet for the headphones and slipped them over his ears.
 
-this, especially after a good meal and wine. The first time I met him, when he was still working with a downtown civic group, he had started explaining the relationship between jazz and Eastern religion, then swerved into an analysis of black women’s behinds, before coming to a stop on the subject of Federal Reserve Bank policy. In such moments his eyes would grow wide; his voice would speed up; his round, bearded face would glow with a childlike wonder. That was part of the reason I’d hired Johnnie, I suppose, that curiosity of his, his appreciation of the absurd. He was a philosopher of the blues.
+“Wake me up when they bring the food, will you,” he said before reclining his seat for a nap.
 
-“I’ll give you an example,” Johnnie was saying to me now. “The other day, I’m headed for a meeting up in the State of Illinois Building. You know how it’s open in the middle, right...big atrium and all that. Well, the guy I’m supposed to be meeting with is late, so I’m just standing there looking down at the lobby from the twelfth floor, checking out the architecture, when all of a sudden this body flies past me. A suicide.”
+I pulled out a book from my carry-on bag and tried to read. It was a portrait of several African countries written by a Western journalist who’d spent a decade in Africa; an old Africa hand, he would be called, someone who apparently prided himself on the balanced assessment. The book’s first few chapters discussed the history of colonialism at some length: the manipulation of tribal hatreds and the caprice of colonial boundaries, the displacements, the detentions, the indignities large and small. The early heroism of independence figures like Kenyatta and Nkrumah was duly noted, their later drift toward despotism attributed at least in part to various Cold War machinations.
 
-“You didn’t tell me about that-”
+But by the book’s third chapter, images from the present had begun to outstrip the past. Famine, disease, the coups and countercoups led by illiterate young men wielding AK-47s like shepherd sticks-if Africa had a history, the writer seemed to say, the scale of current suffering had rendered such history meaningless.
 
-“Yeah, well, shook me up pretty good. High up as I was, I could hear the body land like it was right there next to me. Terrible sound. Soon as it happened, these office workers rushed up to the guardrail to see what was going on. We’re all looking down, and sure enough the body’s lying there, all twisted and limp. People started screaming, covering their eyes. But the strange thing was, after people got through screaming, they’d go back to the railing to get a second look. Then they’d scream and cover their eyes all over again. Now why would they do that? Like, what do they expect the second time around? But see, folks are funny like that. We can’t help ourselves with that morbid shit....
+Poor buggers. Godforsaken countries.
 
-“Anyway, the cops come, they rope things off and take the body away. Then the building crew starts cleaning up. Nothing special, you know-just a broom and a mop. Sweeping up a life. Whole thing’s cleaned up in maybe five minutes. Makes sense, I guess.... I mean, it’s not like you need special equipment or suits or something. But it starts me thinking, How’s that gonna feel to be one of those janitors, mopping up somebody’s remains? Somebody’s got to do it, right? But how you gonna feel that night eating dinner?”
+I set the book down, feeling a familiar anger flush through me, an anger all the more maddening for its lack of a clear target. Beside me the young Brit was snoring softly now, his glasses askew on his fin-shaped nose. Was I angry at him? I wondered. Was it his fault that, for all my education, all the theories in my possession, I had had no ready answers to the questions he’d posed? How much could I blame him for wanting to better his lot? Maybe I was just angry because of his easy familiarity with me, his assumption that I, as an American, even a black American, might naturally share in his dim view of Africa; an assumption that in his world at least marked a progress of sorts, but that for me only underscored my own uneasy status: a Westerner not entirely at home in the West, an African on his way to a land full of strangers.
 
-“Who was it that jumped?”
+I’d been feeling this way all through my stay in Europe-edgy, defensive, hesitant with strangers. I hadn’t planned it that way. I had thought of the layover there as nothing more than a whimsical detour, an opportunity to visit places I had never been before. For three weeks I had traveled alone, down one side of the continent and up the other, by bus and by train mostly, a guidebook in hand. I took tea by the Thames and watched children chase each other through the chestnut groves of Luxembourg Garden. I crossed the Plaza Mejor at high noon, with its De Chirico shadows and sparrows swirling across cobalt skies; and watched night fall over the Palatine, waiting for the first stars to appear, listening to the wind and its whispers of mortality.
 
-“That’s the other thing, Barack!” Johnnie took a drag from his cigarette and let the smoke roll from his mouth. “It was a young white girl, man, sixteen maybe, seventeen. One of these punk rock types, with blue hair and a ring through her nose. Afterward, I’m wondering what she was thinking about while she was riding up the elevator. I mean, folks musta been standing right next to her on the way up. Maybe they looked her over, decided she was a freak, and went back to thinking about their own business. You know, their promotion, or the Bulls game, or whatever. And the whole time this girl’s just standing there next to them with all that pain inside her. Got to be a lot of pain, doc, ’cause right before she jumps, you figure she looks down and knows that shit is gonna hurt.”
+And by the end of the first week or so, I realized that I’d made a mistake. It wasn’t that Europe wasn’t beautiful; everything was just as I’d imagined it. It just wasn’t mine. I felt as if I were living out someone else’s romance; the incompleteness of my own history stood between me and the sites I saw like a hard pane of glass. I began to suspect that my European stop was just one more means of delay, one more attempt to avoid coming to terms with the Old Man. Stripped of language, stripped of work and routine-stripped even of the racial obsessions to which I’d become so
 
-Johnnie stamped out his cigarette. “So that’s what I’m saying, Barack. Whole panorama of life out there. Crazy shit going on. You got to ask yourself, is this kinda stuff happening elsewhere? Is there any precedent for all this shit? You ever ask yourself that?”
+accustomed and which I had taken (perversely) as a sign of my own maturation-I had been forced to look inside myself and had found only a great emptiness there.
 
-“The world’s a place,” I repeated.
+Would this trip to Kenya finally fill that emptiness? The folks back in Chicago thought so. It’ll be just like Roots, Will had said at my going-away party. A pilgrimage, Asante had called it. For them, as for me, Africa had become an idea more than an actual place, a new promised land, full of ancient traditions and sweeping vistas, noble struggles and talking drums. With the benefit of distance, we engaged Africa in a selective embrace-the same sort of embrace I’d once offered the Old Man. What would happen once I relinquished that distance? It was nice to believe that the truth would somehow set me free. But what if that was wrong? What if the truth only disappointed, and my father’s death meant nothing, and his leaving me behind meant nothing, and the only tie that bound me to him, or to Africa, was a name, a blood type, or white people’s scorn?
 
-“See there! It’s serious, man.”
-
-We’d almost reached Johnnie’s car when we heard a small pop, compact and brief, like a balloon bursting. We looked
-
-in the direction of the sound, and watched a young man appear from around the corner diagonal to us. I don’t clearly recall his features or what he wore, although he couldn’t have been older than fifteen. I just remember that he ran at a desperate pace, his sneakered feet silent against the sidewalk, his lanky limbs pumping wildly, his chest jutting out as if straining for an imaginary tape.
-
-Johnnie dropped flat onto a small plot of grass in front of one of the apartments, and I quickly followed suit. A few seconds later, two more boys came around the same corner, also running at full speed. One of them, short, fattish, with pants that bunched around his ankles, was waving a small pistol. Without stopping to aim, he let out three quick shots in the direction of the first boy. Then, realizing that his target was out of range, he slowed to a walk, stuffing the weapon under his shirt. His companion, skinny and big-eared, came alongside.
-
-“Stupid motherfucker,” the skinny boy said. He spat with satisfaction, and the two of them laughed to each other before continuing down the street, children again, their figures casting squat shadows on the asphalt.
-
-Another fall, another winter. I had recovered from the disappointments of the asbestos campaign, developed other issues and found other leaders. Johnnie’s presence had helped relieve my workload, and our budget was stable; what I’d lost in youthful enthusiasm I made up for in experience. And in fact, it may have been that growing familiarity with the landscape, the counsel of time, that gave me the sense that something different was going on with the children of the South Side that spring of 1987; that an invisible line had been crossed, a blind and ugly corner turned.
-
-There was nothing definite I could point to, no hard statistics. The drive-by shootings, the ambulance sirens, the night sounds of neighborhoods abandoned to drugs and gang war and phantom automobiles, where police or press rarely ventured until after the body was found on the pavement, blood spreading in a glistening, uneven pool-none of this was new. In places like Altgeld, prison records had been passed down from father to son for more than a generation; during my very first days in Chicago I had seen the knots of young men, fifteen or sixteen, hanging out on the corners of Michigan or Halsted, their hoods up, their sneakers unlaced, stomping the ground in a desultory rhythm during the
-
-colder months, stripped down to T-shirts in the summer, answering their beepers on the corner pay phones: a knot that unraveled, soon to reform, whenever the police cars passed by in their barracuda silence.
-
-No, it was more a change of atmosphere, like the electricity of an approaching storm. I felt it when, driving home one evening, I saw four tall boys walking down a tree-lined block idly snapping a row of young saplings that an older couple had just finished planting in front of their house. I felt it whenever I looked into the eyes of the young men in wheelchairs that had started appearing on the streets that spring, boys crippled before their prime, their eyes without a trace of self-pity, eyes so composed, already so hardened, that they served to frighten rather than to inspire.
-
-That’s what was new: the arrival of a new equilibrium between hope and fear; the sense, shared by adults and youth alike, that some, if not most, of our boys were slipping beyond rescue. Even lifelong South Siders like Johnnie noticed the change. “I ain’t never seen it like this, Barack,” he would tell me one day as we sat in his apartment sipping beer. “I mean, things were tough when I was coming up, but there were limits. We’d get high, get into fights. But out in public, at home, if an adult saw you getting loud or wild, they would say something. And most of us would listen, you know what I’m saying?
+I switched off the overhead light and closed my eyes, letting my mind drift back to an African I’d met while traveling through Spain, another man on the run. I had been waiting for a night bus in a roadside tavern about halfway between Madrid and Barcelona. A few old men sat at tables and drank wine from short, cloudy glasses. There was a pool table off to one side, and for some reason I had racked up the balls and started to play, remembering those late evenings with Gramps in the bars on Hotel Street, with their streetwalkers and pimps and Gramps the only white man in the joint.
 

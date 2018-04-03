@@ -1,71 +1,97 @@
 title: Dreams from My Father 015
-date: 2015-01-24 15:44:19
+date: 2015-01-25 03:46:01
 tags: dreams-from-my-father
 ---
 
-teams shaking their heads in disbelief. Through Ray I would find out about the black parties that were happening at the university or out on the army bases, counting on him to ease my passage through unfamiliar terrain. In return, I gave him a sounding board for his frustrations.
+“What’s the matter?” Ray shouted over the music when I went to let him know we were leaving. “Things just starting to heat up.”
 
-“I mean it this time,” he was saying to me now. “These girls are A-1, USDA-certified racists. All of ’em. White girls. Asian girls-shoot, these Asians worse than the whites. Think we got a disease or something.”
+“They’re not into it, I guess.”
 
-“Maybe they’re looking at that big butt of yours. Man, I thought you were in training.”
+Our eyes met, and for a long stretch we just stood there, the noise and laughter pulsing around us. There were no traces of satisfaction in Ray’s eyes, no hints of disappointment; just a steady gaze, as unblinking as a snake’s. Finally he put out his hand, and I grabbed hold of it, our eyes still fixed on each other. “Later, then,” he said, his hand slipping free from mine, and I watched him walk away through the crowd, asking about the girl he’d been talking to just a few minutes before.
 
-“Get your hands out of my fries. You ain’t my bitch, nigger...buy your own damn fries. Now what was I talking about?”
+Outside the air had turned cool. The street was absolutely empty, quiet except for the fading tremor of Ray’s stereo, the blue lights flickering in the windows of bungalows that ran up and down the tidy lane, the shadows of trees stretching across a baseball field. In the car, Jeff put an arm on my shoulder, looking at once contrite and relieved. “You know, man,” he said, “that really taught me something. I mean, I can see how it must be tough for you and Ray sometimes, at school parties...being the only black guys and all.”
 
-“Just ’cause a girl don’t go out with you doesn’t make her racist.”
+I snorted. “Yeah. Right.” A part of me wanted to punch him right there. We started down the road toward town, and in the silence, my mind began to rework Ray’s words that day with Kurt, all the discussions we had had before that, the events of that night. And by the time I had dropped my friends off, I had begun to see a new map of the world, one that was frightening in its simplicity, suffocating in its implications. We were always playing on the white man’s court, Ray had told me, by the white man’s rules. If the principal, or the coach, or a teacher, or Kurt, wanted to spit in your face, he could, because he had power and you didn’t. If he decided not to, if he treated you like a man or came to your defense, it was because he knew that the words you spoke, the clothes you wore, the books you read, your ambitions and desires, were already his. Whatever he decided to do, it was his decision to make, not yours, and because of that fundamental power he held over you, because it preceded and would outlast his individual motives and inclinations, any distinction between good and bad whites held negligible meaning. In fact, you couldn’t even be sure that everything you had assumed to be an expression of your black, unfettered self-the humor, the song, the behind-the-back pass-had been freely chosen by you. At best, these things were a refuge; at worst, a trap. Following this maddening logic, the only thing you could choose as your own was withdrawal into a smaller and smaller coil of rage, until being black meant only the knowledge of your own powerlessness, of your own defeat. And the final irony: Should you refuse this defeat and lash out at your captors, they would have a name for that, too, a name that could cage you just as good. Paranoid. Militant. Violent. Nigger.
 
-“Don’t be thick, all right? I’m not just talking about one time. Look, I ask Monica out, she says no. I say okay...your shit’s not so hot anyway.” Ray stopped to check my reaction, then smiled. “All right, maybe I don’t actually say all that. I just tell her okay, Monica, you know, we still tight. Next thing I know, she’s hooked up with Steve ‘No Neck’ Yamaguchi, the two of ’em all holding hands and shit, like a couple of lovebirds. So fine-I figure there’re more fish in the sea. I go ask Pamela out. She tells me she ain’t going to the dance. I say cool. Get to the dance, guess who’s standing there, got her arms around Rick Cook. ‘Hi, Ray,’ she says, like she don’t know what’s going down. Rick Cook! Now you know that guy ain’t shit. Sorry-assed motherfucker got nothing on me, right? Nothing.”
+Over the next few months, I looked to corroborate this nightmare vision. I gathered up books from the library- Baldwin, Ellison, Hughes, Wright, DuBois. At night I would close the door to my room, telling my grandparents I had homework to do, and there I would sit and wrestle with words, locked in suddenly desperate argument, trying to reconcile the world as I’d found it with the terms of my birth. But there was no escape to be had. In every page of every book, in Bigger Thomas and invisible men, I kept finding the same anguish, the same doubt; a self-contempt that neither irony nor intellect seemed able to deflect. Even DuBois’s learning and Baldwin’s love and Langston’s humor eventually succumbed to its corrosive force, each man finally forced to doubt art’s redemptive power, each man finally forced to withdraw, one to Africa, one to Europe, one deeper into the bowels of Harlem, but all of them in the same weary flight, all of them exhausted, bitter men, the devil at their heels.
 
-He stuffed a handful of fries into his mouth. “It ain’t just me, by the way. I don’t see you doing any better in the booty department.”
+Only Malcolm X’s autobiography seemed to offer something different. His repeated acts of self-creation spoke to me; the blunt poetry of his words, his unadorned insistence on respect, promised a new and uncompromising order, martial in its discipline, forged through sheer force of will. All the other stuff, the talk of blue-eyed devils and apocalypse, was incidental to that program, I decided, religious baggage that Malcolm himself seemed to have safely abandoned toward the end of his life. And yet, even as I imagined myself following Malcolm’s call, one line in the book stayed me. He spoke of a wish he’d once had, the wish that the white blood that ran through him, there by an act of violence, might somehow be expunged. I knew that, for Malcolm, that wish would never be incidental. I knew as well that traveling down the road to self-respect my own white blood would never recede into mere abstraction. I was left to wonder what else I would be severing if and when I left my mother and my grandparents at some uncharted border.
 
-Because I’m shy, I thought to myself; but I would never admit that to him. Ray pressed the advantage.
+And, too: If Malcolm’s discovery toward the end of his life, that some whites might live beside him as brothers in Islam, seemed to offer some hope of eventual reconciliation, that hope appeared in a distant future, in a far-off land. In the meantime, I looked to see where the people would come from who were willing to work toward this future and populate this new world. After a basketball game at the university gym one day, Ray and I happened to strike up a conversation with a tall, gaunt man named Malik who played with us now and again. Malik mentioned that he was a follower of the Nation of Islam but that since Malcolm had died and he had moved to Hawaii he no longer went to mosque or political meetings, although he still sought comfort in solitary prayer. One of the guys sitting nearby must have overheard us, for he leaned over with a sagacious expression on his face.
 
-“So what happens when we go out to a party with some sisters, huh? What happens? I tell you what happens. Blam! They on us like there’s no tomorrow. High school chicks, university chicks-it don’t matter. They acting sweet, all smiles. ‘Sure you can have my number, baby.’ Bet.”
+“You all talking about Malcolm, huh? Malcolm tells it like it is, no doubt about it.”
 
-“Well...”
+“Yeah,” another guy said. “But I tell you what-you won’t see me moving to no African jungle anytime soon. Or some goddamned desert somewhere, sitting on a carpet with a bunch of Arabs. No sir. And you won’t see me stop eating no ribs.”
 
-“Well what? Listen, why don’t you get more playing time on the basketball team, huh? At least two guys ahead of you ain’t nothing, and you know it, and they know it. I seen you tear ’em up on the playground, no contest. Why wasn’t I starting on the football squad this season, no matter how many passes the other guy dropped? Tell me we wouldn’t be treated different if we was white. Or Japanese. Or Hawaiian. Or fucking Eskimo.”
+“Gotta have them ribs.”
 
-“That’s not what I’m saying.”
+“And pussy, too. Don’t Malcolm talk about no pussy? Now you know that ain’t gonna work.”
 
-“So what are you saying?”
+I noticed Ray laughing and looked at him sternly. “What are you laughing at?” I said to him. “You’ve never read
 
-“All right, here’s what I’m saying. I’m saying, yeah, it’s harder to get dates because there aren’t any black girls
+Malcolm. You don’t even know what he says.”
 
-around here. But that don’t make the girls that are here all racist. Maybe they just want somebody that looks like their daddy, or their brother, or whatever, and we ain’t it. I’m saying yeah, I might not get the breaks on the team that some guys get, but they play like white boys do, and that’s the style the coach likes to play, and they’re winning the way they play. I don’t play that way.
+Ray grabbed the basketball out of my hand and headed for the opposite rim. “I don’t need no books to tell me how to be black,” he shouted over his head. I started to answer, then turned to Malik, expecting some words of support. But the Muslim said nothing, his bony face set in a faraway smile.
 
-“As for your greasy-mouthed self,” I added, reaching for the last of his fries, “I’m saying the coaches may not like you ’cause you’re a smart-assed black man, but it might help if you stopped eating all them fries you eat, making you look six months pregnant. That’s what I’m saying.”
+I decided to keep my own counsel after that, learning to disguise my feverish mood. A few weeks later, though, I awoke to the sound of an argument in the kitchen-my grandmother’s voice barely audible, followed by my grandfather’s deep growl. I opened my door to see Toot entering their bedroom to get dressed for work. I asked her what was wrong.
 
-“Man, I don’t know why you making excuses for these folks.” Ray got up and crumpled his trash into a tight ball. “Let’s get out of here. Your shit’s getting way too complicated for me.”
+“Nothing. Your grandfather just doesn’t want to drive me to work this morning, that’s all.”
 
-Ray was right; things had gotten complicated. It had been five years since my father’s visit, and on the surface, at least, it had been a placid time marked by the usual rites and rituals that America expects from its children-marginal report cards and calls to the principal’s office, part-time jobs at the burger chain, acne and driving tests and turbulent desire. I’d made my share of friends at school, gone on the occasional awkward date; and if I sometimes puzzled over the mysterious realignments of status that took place among my classmates, as some rose and others fell depending on the whims of their bodies or the make of their cars, I took comfort in the knowledge that my own position had steadily improved. Rarely did I meet kids whose families had less than mine and might remind me of good fortune.
+When I entered the kitchen, Gramps was muttering under his breath. He poured himself a cup of coffee as I told him that I would be willing to give Toot a ride to work if he was tired. It was a bold offer, for I didn’t like to wake up early. He scowled at my suggestion.
 
-My mother did her best to remind me. She had separated from Lolo and returned to Hawaii to pursue a master’s degree in anthropology shortly after my own arrival. For three years I lived with her and Maya in a small apartment a block away from Punahou, my mother’s student grants supporting the three of us. Sometimes, when I brought friends home after school, my mother would overhear them remark about the lack of food in the fridge or the less-than-perfect housekeeping, and she would pull me aside and let me know that she was a single mother going to school again and raising two kids, so that baking cookies wasn’t exactly at the top of her priority list, and while she appreciated the fine education I was receiving at Punahou, she wasn’t planning on putting up with any snotty attitudes from me or anyone else, was that understood?
+“That’s not the point. She just wants me to feel bad.”
 
-It was understood. Despite my frequent-and sometimes sullen-claims of independence, the two of us remained close, and I did my best to help her out where I could, shopping for groceries, doing the laundry, looking after the knowing, dark-eyed child that my sister had become. But when my mother was ready to return to Indonesia to do her field work, and suggested that I go back with her and Maya to attend the international school there, I immediately said no. I doubted what Indonesia now had to offer and wearied of being new all over again. More than that, I’d arrived at an unspoken pact with my grandparents: I could live with them and they’d leave me alone so long as I kept my trouble out of sight. The arrangement suited my purpose, a purpose that I could barely articulate to myself, much less to them. Away from my mother, away from my grandparents, I was engaged in a fitful interior struggle. I was trying to raise myself to be a black man in America, and beyond the given of my appearance, no one around me seemed to know exactly what that meant.
+“I’m sure that’s not it, Gramps.”
 
-My father’s letters provided few clues. They would arrive sporadically, on a single blue page with gummed-down flaps that obscured any writing at the margins. He would report that everyone was fine, commend me on my progress in school, and insist that my mother, Maya, and I were all welcome to take our rightful place beside him whenever we so desired. From time to time he would include advice, usually in the form of aphorisms I didn’t quite understand (“Like water finding its level, you will arrive at a career that suits you”). I would respond promptly on a wide-ruled page, and his letters would find their way into the closet, next to my mother’s pictures of him.
+“Of course it is.” He sipped from his coffee. “She’s been catching the bus ever since she started at the bank. She said
 
-Gramps had a number of black male friends, mostly poker and bridge partners, and before I got old enough not to care about hurting his feelings, I would let him drag me along to some of their games. They were old, neatly dressed men with hoarse voices and clothes that smelled of cigars, the kind of men for whom everything has its place and who figure
+it was more convenient. And now, just because she gets pestered a little, she wants to change everything.” Toot’s diminutive figure hovered in the hall, peering at us from behind her bifocals.
 
-they’ve seen enough not to have to waste a lot of time talking about it. Whenever they saw me they would give me a jovial slap on the back and ask how my mother was doing; but once it was time to play, they wouldn’t say another word except to complain to their partner about a bid.
+“That’s not true, Stanley.”
 
-There was one exception, a poet named Frank who lived in a dilapidated house in a run-down section of Waikiki. He had enjoyed some modest notoriety once, was a contemporary of Richard Wright and Langston Hughes during his years in Chicago-Gramps once showed me some of his work anthologized in a book of black poetry. But by the time I met Frank he must have been pushing eighty, with a big, dewlapped face and an ill-kempt gray Afro that made him look like an old, shaggy-maned lion. He would read us his poetry whenever we stopped by his house, sharing whiskey with Gramps out of an emptied jelly jar. As the night wore on, the two of them would solicit my help in composing dirty limericks. Eventually, the conversation would turn to laments about women.
+I took her into the other room and asked her what had happened.
 
-“They’ll drive you to drink, boy,” Frank would tell me soberly. “And if you let ’em, they’ll drive you into your grave.”
+“A man asked me for money yesterday. While I was waiting for the bus.”
 
-I was intrigued by old Frank, with his books and whiskey breath and the hint of hard-earned knowledge behind the hooded eyes. The visits to his house always left me feeling vaguely uncomfortable, though, as if I were witnessing some complicated, unspoken transaction between the two men, a transaction I couldn’t fully understand. The same thing I felt whenever Gramps took me downtown to one of his favorite bars, in Honolulu’s red-light district.
+“That’s all?”
 
-“Don’t tell your grandmother,” he would say with a wink, and we’d walk past hard-faced, soft-bodied streetwalkers into a small, dark bar with a jukebox and a couple of pool tables. Nobody seemed to mind that Gramps was the only white man in the place, or that I was the only eleven- or twelve-year-old. Some of the men leaning across the bar would wave at us, and the bartender, a big, light-skinned woman with bare, fleshy arms, would bring a Scotch for Gramps and a Coke for me. If nobody else was playing at the tables, Gramps would spot me a few balls and teach me the game, but usually I would sit at the bar, my legs dangling from the high stool, blowing bubbles into my drink and looking at the pornographic art on the walls-the phosphorescent women on animal skins, the Disney characters in compromising positions. If he was around, a man named Rodney with a wide-brimmed hat would stop by to say hello.
+Her lips pursed with irritation. “He was very aggressive, Barry. Very aggressive. I gave him a dollar and he kept
 
-“How’s school coming, captain?” “All right.”
+asking. If the bus hadn’t come, I think he might have hit me over the head.”
 
-“You getting them A’s, ain’t you?” “Some.”
+I returned to the kitchen. Gramps was rinsing his cup, his back turned to me. “Listen,” I said, “why don’t you just let
 
-“That’s good. Sally, buy my man here another Coke,” Rodney would say, peeling a twenty off a thick stack he had pulled from his pocket before he fell back into the shadows.
+me give her a ride. She seems pretty upset.”
 
-I can still remember the excitement I felt during those evening trips, the enticement of darkness and the click of the cue ball, and the jukebox flashing its red and green lights, and the weary laughter that ran around the room. Yet even then, as young as I was, I had already begun to sense that most of the people in the bar weren’t there out of choice, that what my grandfather sought there was the company of people who could help him forget his own troubles, people who he believed would not judge him. Maybe the bar really did help him forget, but I knew with the unerring instincts of a child that he was wrong about not being judged. Our presence there felt forced, and by the time I had reached junior
+“By a panhandler?”
 
-high school I had learned to beg off from Gramps’s invitations, knowing that whatever it was I was after, whatever it was that I needed, would have to come from some other source.
+“Yeah, I know-but it’s probably a little scary for her, seeing some big man block her way. It’s really no big deal.” He turned around and I saw now that he was shaking. “ It is a big deal. It’s a big deal to me. She’s been bothered by
 
-TV, movies, the radio; those were the places to start. Pop culture was color-coded, after all, an arcade of images from which you could cop a walk, a talk, a step, a style. I couldn’t croon like Marvin Gaye, but I could learn to dance all the Soul Train steps. I couldn’t pack a gun like Shaft or Superfly, but I could sure enough curse like Richard Pryor.
+men before. You know why she’s so scared this time? I’ll tell you why. Before you came in, she told me the fella was black.” He whispered the word. “That’s the real reason why she’s bothered. And I just don’t think that’s right.”
+
+The words were like a fist in my stomach, and I wobbled to regain my composure. In my steadiest voice, I told him that such an attitude bothered me, too, but assured him that Toot’s fears would pass and that we should give her a ride in the meantime. Gramps slumped into a chair in the living room and said he was sorry he had told me. Before my eyes, he grew small and old and very sad. I put my hand on his shoulder and told him that it was all right, I understood.
+
+We remained like that for several minutes, in painful silence. Finally he insisted that he drive Toot after all, and struggled up from his seat to get dressed. After they left, I sat on the edge of my bed and thought about my
+
+grandparents. They had sacrificed again and again for me. They had poured all their lingering hopes into my success. Never had they given me reason to doubt their love; I doubted if they ever would. And yet I knew that men who might easily have been my brothers could still inspire their rawest fears.
+
+That night, I drove into Waikiki, past the bright-lit hotels and down toward the Ala-Wai Canal. It took me a while to recognize the house, with its wobbly porch and low-pitched roof. Inside, the light was on, and I could see Frank sitting in his overstuffed chair, a book of poetry in his lap, his reading glasses slipping down his nose. I sat in the car, watching him for a time, then finally got out and tapped on the door. The old man barely looked up as he rose to undo the latch. It had been three years since I’d seen him.
+
+“Want a drink?” he asked me. I nodded and watched him pull down a bottle of whiskey and two plastic cups from the kitchen cupboard. He looked the same, his mustache a little whiter, dangling like dead ivy over his heavy upper lip, his cut-off leans with a few more holes and tied at the waist with a length of rope.
+
+“How’s your grandpa?”
+
+“He’s all right.”
+
+“So what are you doing here?”
+
+I wasn’t sure. I told Frank some of what had happened. He nodded and poured us each a shot. “Funny cat, your
+
+grandfather,” he said. “You know we grew up maybe fifty miles apart?”
+
+I shook my head.
+
+“We sure did. Both of us lived near Wichita. We didn’t know each other, of course. I was long gone by the time he
+
+was old enough to remember anything. I might have seen some of his people, though. Might’ve passed ’em on the street. If I did, I would’ve had to step off the sidewalk to give ’em room. Your grandpa ever tell you about things like that?”
 

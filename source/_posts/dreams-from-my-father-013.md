@@ -1,85 +1,71 @@
 title: Dreams from My Father 013
-date: 2015-01-24 15:44:21
+date: 2015-01-25 03:46:03
 tags: dreams-from-my-father
 ---
 
-“Would you prefer if we called you Barry?” Miss Hefty asked. “Barack is such a beautiful name. Your grandfather tells me your father is Kenyan. I used to live in Kenya, you know. Teaching children just your age. It’s such a magnificent country. Do you know what tribe your father is from?”
+teams shaking their heads in disbelief. Through Ray I would find out about the black parties that were happening at the university or out on the army bases, counting on him to ease my passage through unfamiliar terrain. In return, I gave him a sounding board for his frustrations.
 
-Her question brought on more giggles, and I remained speechless for a moment. When I finally said “Luo,” a sandy- haired boy behind me repeated the word in a loud hoot, like the sound of a monkey. The children could no longer contain themselves, and it took a stern reprimand from Miss Hefty before the class would settle down and we could mercifully move on to the next person on the list.
+“I mean it this time,” he was saying to me now. “These girls are A-1, USDA-certified racists. All of ’em. White girls. Asian girls-shoot, these Asians worse than the whites. Think we got a disease or something.”
 
-I spent the rest of the day in a daze. A redheaded girl asked to touch my hair and seemed hurt when I refused. A ruddy-faced boy asked me if my father ate people. When I got home, Gramps was in the middle of preparing dinner.
+“Maybe they’re looking at that big butt of yours. Man, I thought you were in training.”
 
-“So how was it? Isn’t it terrific that Miss Hefty used to live in Kenya? Makes the first day a little easier, I’ll bet.” I went into my room and closed the door.
+“Get your hands out of my fries. You ain’t my bitch, nigger...buy your own damn fries. Now what was I talking about?”
 
-The novelty of having me in the class quickly wore off for the other kids, although my sense that I didn’t belong
+“Just ’cause a girl don’t go out with you doesn’t make her racist.”
 
-continued to grow. The clothes that Gramps and I had chosen for me were too old-fashioned; the Indonesian sandals that had served me so well in Djakarta were dowdy. Most of my classmates had been together since kindergarten; they lived in the same neighborhoods, in split-level homes with swimming pools; their fathers coached the same Little League teams; their mothers sponsored the bake sales. Nobody played soccer or badminton or chess, and I had no idea how to throw a football in a spiral or balance on a skateboard.
+“Don’t be thick, all right? I’m not just talking about one time. Look, I ask Monica out, she says no. I say okay...your shit’s not so hot anyway.” Ray stopped to check my reaction, then smiled. “All right, maybe I don’t actually say all that. I just tell her okay, Monica, you know, we still tight. Next thing I know, she’s hooked up with Steve ‘No Neck’ Yamaguchi, the two of ’em all holding hands and shit, like a couple of lovebirds. So fine-I figure there’re more fish in the sea. I go ask Pamela out. She tells me she ain’t going to the dance. I say cool. Get to the dance, guess who’s standing there, got her arms around Rick Cook. ‘Hi, Ray,’ she says, like she don’t know what’s going down. Rick Cook! Now you know that guy ain’t shit. Sorry-assed motherfucker got nothing on me, right? Nothing.”
 
-A ten-year-old’s nightmare. Still, in my discomfort that first month, I was no worse off than the other children who were relegated to the category of misfits-the girls who were too tall or too shy, the boy who was mildly hyperactive, the kids whose asthma excused them from PE.
+He stuffed a handful of fries into his mouth. “It ain’t just me, by the way. I don’t see you doing any better in the booty department.”
 
-There was one other child in my class, though, who reminded me of a different sort of pain. Her name was Coretta, and before my arrival she had been the only black person in our grade. She was plump and dark and didn’t seem to have many friends. From the first day, we avoided each other but watched from a distance, as if direct contact would only remind us more keenly of our isolation.
+Because I’m shy, I thought to myself; but I would never admit that to him. Ray pressed the advantage.
 
-Finally, during recess one hot, cloudless day, we found ourselves occupying the same corner of the playground. I don’t remember what we said to each other, but I remember that suddenly she was chasing me around the jungle gyms and swings. She was laughing brightly, and I teased her and dodged this way and that, until she finally caught me and we fell to the ground breathless. When I looked up, I saw a group of children, faceless before the glare of the sun, pointing down at us.
+“So what happens when we go out to a party with some sisters, huh? What happens? I tell you what happens. Blam! They on us like there’s no tomorrow. High school chicks, university chicks-it don’t matter. They acting sweet, all smiles. ‘Sure you can have my number, baby.’ Bet.”
 
-“Coretta has a boyfriend! Coretta has a boyfriend!”
+“Well...”
 
-The chants grew louder as a few more kids circled us.
+“Well what? Listen, why don’t you get more playing time on the basketball team, huh? At least two guys ahead of you ain’t nothing, and you know it, and they know it. I seen you tear ’em up on the playground, no contest. Why wasn’t I starting on the football squad this season, no matter how many passes the other guy dropped? Tell me we wouldn’t be treated different if we was white. Or Japanese. Or Hawaiian. Or fucking Eskimo.”
 
-“She’s not my g-girlfriend,” I stammered. I looked to Coretta for some assistance, but she just stood there looking down at the ground. “Coretta’s got a boyfriend! Why don’t you kiss her, mister boyfriend?”
+“That’s not what I’m saying.”
 
-“I’m not her boyfriend!” I shouted. I ran up to Coretta and gave her a slight shove; she staggered back and looked up at me, but still said nothing. “Leave me alone!” I shouted again. And suddenly Coretta was running, faster and faster, until she disappeared from sight. Appreciative laughs rose around me. Then the bell rang, and the teachers appeared to round us back into class.
+“So what are you saying?”
 
-For the rest of the afternoon, I was haunted by the look on Coretta’s face just before she had started to run: her disappointment, and the accusation. I wanted to explain to her somehow that it had been nothing personal; I’d just never had a girlfriend before and saw no particular need to have one now. But I didn’t even know if that was true. I knew only that it was too late for explanations, that somehow I’d been tested and found wanting; and whenever I snuck a glance at Coretta’s desk, I would see her with her head bent over her work, appearing as if nothing had happened, pulled into herself and asking no favors.
+“All right, here’s what I’m saying. I’m saying, yeah, it’s harder to get dates because there aren’t any black girls
 
-My act of betrayal bought me some room from the other children, and like Coretta, I was mostly left alone. I made a few friends, learned to speak less often in class, and managed to toss a wobbly football around. But from that day forward, a part of me felt trampled on, crushed, and I took refuge in the life that my grandparents led. After school let out, I would walk the five blocks to our apartment; if I had any change in my pockets, I might stop off at a newsstand run by a blind man, who would let me know what new comics had come in. Gramps would be at home to let me into the apartment, and as he lay down for his afternoon nap, I would watch cartoons and sitcom reruns. At four-thirty, I would wake Gramps and we would drive downtown to pick up Toot. My homework would be done in time for dinner, which we ate in front of the television. There I would stay for the rest of the evening, negotiating with Gramps over which programs to watch, sharing the latest snack food he’d discovered at the supermarket. At ten o’clock, I went to my room ( Johnny Carson came on at that time, and there was no negotiating around that), and I would fall asleep to the sounds of Top 40 music on the radio.
+around here. But that don’t make the girls that are here all racist. Maybe they just want somebody that looks like their daddy, or their brother, or whatever, and we ain’t it. I’m saying yeah, I might not get the breaks on the team that some guys get, but they play like white boys do, and that’s the style the coach likes to play, and they’re winning the way they play. I don’t play that way.
 
-Nested in the soft, forgiving bosom of America’s consumer culture, I felt safe; it was as if I had dropped into a long hibernation. I wonder sometimes how long I might have stayed there had it not been for the telegram Toot found in the mailbox one day.
+“As for your greasy-mouthed self,” I added, reaching for the last of his fries, “I’m saying the coaches may not like you ’cause you’re a smart-assed black man, but it might help if you stopped eating all them fries you eat, making you look six months pregnant. That’s what I’m saying.”
 
-“Your father’s coming to see you,” she said. “Next month. Two weeks after your mother gets here. They’ll both stay through New Year’s.”
+“Man, I don’t know why you making excuses for these folks.” Ray got up and crumpled his trash into a tight ball. “Let’s get out of here. Your shit’s getting way too complicated for me.”
 
-She carefully folded the paper and slipped it into a drawer in the kitchen. Both she and Gramps fell silent, the way I imagine people react when the doctor tells them they have a serious, but curable, illness. For a moment the air was sucked out of the room, and we stood suspended, alone with our thoughts.
+Ray was right; things had gotten complicated. It had been five years since my father’s visit, and on the surface, at least, it had been a placid time marked by the usual rites and rituals that America expects from its children-marginal report cards and calls to the principal’s office, part-time jobs at the burger chain, acne and driving tests and turbulent desire. I’d made my share of friends at school, gone on the occasional awkward date; and if I sometimes puzzled over the mysterious realignments of status that took place among my classmates, as some rose and others fell depending on the whims of their bodies or the make of their cars, I took comfort in the knowledge that my own position had steadily improved. Rarely did I meet kids whose families had less than mine and might remind me of good fortune.
 
-“Well,” Toot said finally, “I suppose we better start looking for a place where he can stay.” Gramps took off his glasses and rubbed his eyes.
+My mother did her best to remind me. She had separated from Lolo and returned to Hawaii to pursue a master’s degree in anthropology shortly after my own arrival. For three years I lived with her and Maya in a small apartment a block away from Punahou, my mother’s student grants supporting the three of us. Sometimes, when I brought friends home after school, my mother would overhear them remark about the lack of food in the fridge or the less-than-perfect housekeeping, and she would pull me aside and let me know that she was a single mother going to school again and raising two kids, so that baking cookies wasn’t exactly at the top of her priority list, and while she appreciated the fine education I was receiving at Punahou, she wasn’t planning on putting up with any snotty attitudes from me or anyone else, was that understood?
 
-“Should be one hell of a Christmas.”
+It was understood. Despite my frequent-and sometimes sullen-claims of independence, the two of us remained close, and I did my best to help her out where I could, shopping for groceries, doing the laundry, looking after the knowing, dark-eyed child that my sister had become. But when my mother was ready to return to Indonesia to do her field work, and suggested that I go back with her and Maya to attend the international school there, I immediately said no. I doubted what Indonesia now had to offer and wearied of being new all over again. More than that, I’d arrived at an unspoken pact with my grandparents: I could live with them and they’d leave me alone so long as I kept my trouble out of sight. The arrangement suited my purpose, a purpose that I could barely articulate to myself, much less to them. Away from my mother, away from my grandparents, I was engaged in a fitful interior struggle. I was trying to raise myself to be a black man in America, and beyond the given of my appearance, no one around me seemed to know exactly what that meant.
 
-Over lunch, I explained to a group of boys that my father was a prince.
+My father’s letters provided few clues. They would arrive sporadically, on a single blue page with gummed-down flaps that obscured any writing at the margins. He would report that everyone was fine, commend me on my progress in school, and insist that my mother, Maya, and I were all welcome to take our rightful place beside him whenever we so desired. From time to time he would include advice, usually in the form of aphorisms I didn’t quite understand (“Like water finding its level, you will arrive at a career that suits you”). I would respond promptly on a wide-ruled page, and his letters would find their way into the closet, next to my mother’s pictures of him.
 
-“My grandfather, see, he’s a chief. It’s sort of like the king of the tribe, you know...like the Indians. So that makes my father a prince. He’ll take over when my grandfather dies.”
+Gramps had a number of black male friends, mostly poker and bridge partners, and before I got old enough not to care about hurting his feelings, I would let him drag me along to some of their games. They were old, neatly dressed men with hoarse voices and clothes that smelled of cigars, the kind of men for whom everything has its place and who figure
 
-“What about after that?” one of my friends asked as we emptied our trays into the trash bin. “I mean, will you go back and be a prince?”
+they’ve seen enough not to have to waste a lot of time talking about it. Whenever they saw me they would give me a jovial slap on the back and ask how my mother was doing; but once it was time to play, they wouldn’t say another word except to complain to their partner about a bid.
 
-“Well...if I want to, I could. It’s sort of complicated, see, ’cause the tribe is full of warriors. Like Obama...that means ‘Burning Spear.’ The men in our tribe all want to be chief, so my father has to settle these feuds before I can come.”
+There was one exception, a poet named Frank who lived in a dilapidated house in a run-down section of Waikiki. He had enjoyed some modest notoriety once, was a contemporary of Richard Wright and Langston Hughes during his years in Chicago-Gramps once showed me some of his work anthologized in a book of black poetry. But by the time I met Frank he must have been pushing eighty, with a big, dewlapped face and an ill-kempt gray Afro that made him look like an old, shaggy-maned lion. He would read us his poetry whenever we stopped by his house, sharing whiskey with Gramps out of an emptied jelly jar. As the night wore on, the two of them would solicit my help in composing dirty limericks. Eventually, the conversation would turn to laments about women.
 
-As the words tumbled out of my mouth, and I felt the boys readjust to me, more curious and familiar as we bumped into each other in the line back to class, a part of me really began to believe the story. But another part of me knew that what I was telling them was a lie, something I’d constructed from the scraps of information I’d picked up from my mother. After a week of my father in the flesh, I had decided that I preferred his more distant image, an image I could alter on a whim-or ignore when convenient. If my father hadn’t exactly disappointed me, he remained something unknown, something volatile and vaguely threatening.
+“They’ll drive you to drink, boy,” Frank would tell me soberly. “And if you let ’em, they’ll drive you into your grave.”
 
-My mother had sensed my apprehension in the days building up to his arrival-I suppose it mirrored her own-and so, in between her efforts to prepare the apartment we’d sublet for him, she would try to assure me that the reunion would go smoothly. She had maintained a correspondence with him throughout the time we had been in Indonesia, she explained, and he knew all about me. Like her, my father had remarried, and I now had five brothers and one sister living in Kenya. He had been in a bad car accident, and this trip was part of his recuperation after a long stay in the hospital.
+I was intrigued by old Frank, with his books and whiskey breath and the hint of hard-earned knowledge behind the hooded eyes. The visits to his house always left me feeling vaguely uncomfortable, though, as if I were witnessing some complicated, unspoken transaction between the two men, a transaction I couldn’t fully understand. The same thing I felt whenever Gramps took me downtown to one of his favorite bars, in Honolulu’s red-light district.
 
-“You two will become great friends,” she decided.
+“Don’t tell your grandmother,” he would say with a wink, and we’d walk past hard-faced, soft-bodied streetwalkers into a small, dark bar with a jukebox and a couple of pool tables. Nobody seemed to mind that Gramps was the only white man in the place, or that I was the only eleven- or twelve-year-old. Some of the men leaning across the bar would wave at us, and the bartender, a big, light-skinned woman with bare, fleshy arms, would bring a Scotch for Gramps and a Coke for me. If nobody else was playing at the tables, Gramps would spot me a few balls and teach me the game, but usually I would sit at the bar, my legs dangling from the high stool, blowing bubbles into my drink and looking at the pornographic art on the walls-the phosphorescent women on animal skins, the Disney characters in compromising positions. If he was around, a man named Rodney with a wide-brimmed hat would stop by to say hello.
 
-Along with news of my father, she began to stuff me with information about Kenya and its history-it was from a book about Jomo Kenyatta, the first president of Kenya, that I’d pilfered the name Burning Spear. But nothing my mother told me could relieve my doubts, and I retained little of the information she offered. Only once did she really spark my interest, when she told me that my father’s tribe, the Luo, were a Nilotic people who had migrated to Kenya from their original home along the banks of the world’s greatest river. This seemed promising; Gramps still kept a painting he had once done, a replica of lean, bronze Egyptians on a golden chariot drawn by alabaster steeds. I had visions of ancient Egypt, the great kingdoms I had read about, pyramids and pharaohs, Nefertiti and Cleopatra.
+“How’s school coming, captain?” “All right.”
 
-One Saturday I went to the public library near our apartment and, with the help of a raspy-voiced old librarian who appreciated my seriousness, I found a book on East Africa. Only there was no mention of pyramids. In fact, the Luos merited only a short paragraph. Nilote, it turned out, described a number of nomadic tribes that had originated in the Sudan along the White Nile, far south of the Egyptian empires. The Luo raised cattle and lived in mud huts and ate corn meal and yams and something called millet. Their traditional costume was a leather thong across the crotch. I left the book open-faced on a table and walked out without thanking the librarian.
+“You getting them A’s, ain’t you?” “Some.”
 
-The big day finally arrived, and Miss Hefty let me out early from class, wishing me luck. I left the school building feeling like a condemned man. My legs were heavy, and with each approaching step toward my grandparents’ apartment, the thump in my chest grew louder. When I entered the elevator, I stood without pressing the button. The door closed, then reopened, and an older Filipino man who lived on the fourth floor got on.
+“That’s good. Sally, buy my man here another Coke,” Rodney would say, peeling a twenty off a thick stack he had pulled from his pocket before he fell back into the shadows.
 
-“Your grandfather says your father is coming to visit you today,” the man said cheerfully. “You must be very happy.”
+I can still remember the excitement I felt during those evening trips, the enticement of darkness and the click of the cue ball, and the jukebox flashing its red and green lights, and the weary laughter that ran around the room. Yet even then, as young as I was, I had already begun to sense that most of the people in the bar weren’t there out of choice, that what my grandfather sought there was the company of people who could help him forget his own troubles, people who he believed would not judge him. Maybe the bar really did help him forget, but I knew with the unerring instincts of a child that he was wrong about not being judged. Our presence there felt forced, and by the time I had reached junior
 
-When-after standing in front of the door and looking out across the Honolulu skyline at a distant ship, and then squinting at the sky to watch sparrows spiral through the air-I could think of no possible means of escape, I rang the doorbell. Toot opened the door.
+high school I had learned to beg off from Gramps’s invitations, knowing that whatever it was I was after, whatever it was that I needed, would have to come from some other source.
 
-“There he is! Come on, Bar...come meet your father.”
-
-And there, in the unlit hallway, I saw him, a tall, dark figure who walked with a slight limp. He crouched down and put his arms around me, and I let my arms hang at my sides. Behind him stood my mother, her chin trembling as usual.
-
-“Well, Barry,” my father said. “It is a good thing to see you after so long. Very good.” He led me by the hand into the living room, and we all sat down.
-
-“So, Barry, your grandmama has told me that you are doing very well in school.”
-
-I shrugged.
-
-“He’s feeling a little shy, I think,” Toot offered. She smiled and rubbed my head.
-
-“Well,” my father said, “you have no reason to be shy about doing well. Have I told you that your brothers and sister have also excelled in their schooling? It’s in the blood, I think,” he said with a laugh.
-
-I watched him carefully as the adults began to talk. He was much thinner than I had expected, the bones of his knees cutting the legs of his trousers in sharp angles; I couldn’t imagine him lifting anyone off the ground. Beside him, a cane with a blunt ivory head leaned against the wall. He wore a blue blazer, and a white shirt, and a scarlet ascot. His horn- rimmed glasses reflected the light of the lamp so that I couldn’t see his eyes very well, but when he took the glasses off to rub the bridge of his nose, I saw that they were slightly yellow, the eyes of someone who’s had malaria more than once. There was a fragility about his frame, I thought, a caution when he lit a cigarette or reached for his beer. After an hour or so, my mother suggested that he looked tired and should take a nap, and he agreed. He gathered up his travel bag, then stopped in mid-stride and began to fish around in it, until he finally pulled out three wooden figurines-a lion, an elephant, and an ebony man in tribal dress beating a drum-and handed them to me.
+TV, movies, the radio; those were the places to start. Pop culture was color-coded, after all, an arcade of images from which you could cop a walk, a talk, a step, a style. I couldn’t croon like Marvin Gaye, but I could learn to dance all the Soul Train steps. I couldn’t pack a gun like Shaft or Superfly, but I could sure enough curse like Richard Pryor.
 

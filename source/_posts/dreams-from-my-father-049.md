@@ -1,63 +1,123 @@
 title: Dreams from My Father 049
-date: 2015-01-24 15:43:46
+date: 2015-01-25 03:45:28
 tags: dreams-from-my-father
 ---
 
-“Not just any r&#233;sum&#233;, Barack. His wife’s r&#233;sum&#233;. Seems she’s kinda bored around the house, see, and Dr. King thinks she’d make an ‘excellent’ director for our program. No pressure, you understand. Just once the money is allocated, some consideration, you know what I mean.”
+pair of university students who sip sweet, creamed tea and eat samosas in a dimly lit teahouse. I smell him in the cigarette smoke of the businessman who covers one ear and shouts into a pay phone; in the sweat of the day laborer who loads gravel into a wheelbarrow, his face and bare chest covered with dust. The Old Man’s here, I think, although he doesn’t say anything to me. He’s here, asking me to understand.
 
-“He gave you his wife’s r&#233;sum&#233;-”
+CHAPTER SIXTEEN
 
-“Not just his wife’s r&#233;sum&#233;.” Johnnie reached into his briefcase and pulled out another piece of paper, waving it in the air. “Got his daughter’s, too! Tells me she’d make an ‘excellent’ counselor-”
+B ERNARD RANG THE DOORBELL at ten o’clock sharp. He wore faded blue shorts and a T-shirt several sizes too small; in his hands was a bald orange basketball, held out like an offering.
 
-“Naw-”
+“Ready?” he asked.
 
-“I’m telling you, Barack, he had the whole thing figured out. And you know what? The whole time we’re talking, he’s not batting an eye. Acting like what he’s doing is the most natural thing in the world. It was unbelievable.” Johnnie shook his head, then suddenly shouted out like a preacher. “Yessuh! Doctah Lonnie King! Now there’s a brother with some nerve! An enterprising brother! Program hasn’t even started yet, he’s already thinking ahead.”
+“Almost. Give me a second to put on my shoes.”
 
-I started to laugh.
+He followed me into the apartment and stepped over to the desk where I had been working. “You’ve been reading
 
-“He don’t just want one job! He gotta have two! Go in to talk about some kids, he gonna hand you his whole goddamn family’s r&#233;sum&#233;....”
+again, Barry,” he said, shaking his head. “Your woman will get bored with you, always spending time with books.” I sat down to tie my sneakers. “I’ve been told.”
 
-I shouted out, catching the spirit. “Doctah Lonnie King!”
+He tossed the ball into the air. “Me, I’m not so interested in books. I’m a man of action. Like Rambo.”
 
-“Yessuh! Doctah Lonnie King!” Johnnie started to giggle, which made me laugh even harder, until soon we were doubled over in loud guffaws, catching our breath only long enough to repeat that name again-“Doctah Lonnie King!”- as if it now contained the most obvious truth, the most basic element in an elemental world. We laughed until our faces were hot and our sides hurt, until tears came to our eyes, until we felt emptied out and couldn’t laugh anymore, and decided to take the rest of the afternoon off and go find ourselves a beer.
+I smiled. “Okay, Rambo,” I said, standing up and opening the door. “Let’s see how you do running down to the
 
-That night, well past midnight, a car pulls up in front of my apartment building carrying a troop of teenage boys and a set of stereo speakers so loud that the floor of my apartment begins to shake. I’ve learned to ignore such disturbances- where else do they have to go? I say to myself. But on this particular evening I have someone staying over; I know that my neighbors next door have just brought home their newborn child; and so I pull on some shorts and head downstairs for a chat with our nighttime visitors. As I approach the car, the voices stop, the heads within all turn my way.
+courts.”
 
-“Listen, people are trying to sleep around here. Why don’t y’all take it someplace else.”
+Bernard looked at me doubtfully. “The courts are far away. Where’s the car?”
 
-The four boys inside say nothing, don’t even move. The wind wipes away my drowsiness, and I feel suddenly exposed, standing in a pair of shorts on the sidewalk in the middle of the night. I can’t see the faces inside the car; it’s too dark to know how old they are, whether they’re sober or drunk, good boys or bad. One of them could be Kyle. One of them could be Roy. One of them could be Johnnie.
+“Auma took it to work.” I went out onto the veranda and started stretching. “Anyway, she told me it’s just a mile.
 
-One of them could be me. Standing there, I try to remember the days when I would have been sitting in a car like that, full of inarticulate resentments and desperate to prove my place in the world. The feelings of righteous anger as I shout at Gramps for some forgotten reason. The blood rush of a high school brawl. The swagger that carries me into a classroom drunk or high, knowing that my teachers will smell beer or reefer on my breath, just daring them to say something. I start picturing myself through the eyes of these boys, a figure of random authority, and know the calculations they might now be making, that if one of them can’t take me out, the four of them certainly can.
+Good for warming up those young legs of yours.”
 
-That knotted, howling assertion of self-as I try to pierce the darkness and read the shadowed faces inside the car, I’m thinking that while these boys may be weaker or stronger than I was at their age, the only difference that matters is this: The world in which I spent those difficult times was far more forgiving. These boys have no margin for error; if they carry guns, those guns will offer them no protection from that truth. And it is that truth, a truth that they surely sense
+He followed me halfheartedly through a few stretching exercises before we started up the graveled driveway onto the
 
-but can’t admit and, in fact, must refuse if they are to wake up tomorrow, that has forced them, or others like them, eventually to shut off access to any empathy they may once have felt. Their unruly maleness will not be contained, as mine finally was, by a sense of sadness at an older man’s injured pride. Their anger won’t be checked by the intimation of danger that would come upon me whenever I split another boy’s lip or raced down a highway with gin clouding my head. As I stand there, I find myself thinking that somewhere down the line both guilt and empathy speak to our own buried sense that an order of some sort is required, not the social order that exists, necessarily, but something more fundamental and more demanding; a sense, further, that one has a stake in this order, a wish that, no matter how fluid this order sometimes appears, it will not drain out of the universe. I suspect that these boys will have to search long and hard for that order-indeed, any order that includes them as more than objects of fear or derision. And that suspicion terrifies me, for I now have a place in the world, a job, a schedule to follow. As much as I might tell myself otherwise, we are breaking apart, these boys and me, into different tribes, speaking a different tongue, living by a different code.
+main road. It was a perfect day, the sun cut with a steady breeze, the road empty except for a distant woman, walking with a basket of kindling on top of her head. After less than a quarter of a mile, Bernard stopped dead in his tracks, beads of sweat forming on his high, smooth forehead.
 
-The engine starts, and the car screeches away. I turn back toward my apartment knowing that I’ve been both stupid and lucky, knowing that I am afraid after all.
+“I’m warmed up, Barry,” he said, gulping for air. “I think now we should walk.”
 
-CHAPTER FOURTEEN
+The University of Nairobi campus took up a couple of acres near the center of town. The courts were above the athletic field on a slight rise, their pebbled asphalt cracked with weeds. I watched Bernard as we took turns shooting, and thought about what a generous and easy companion he’d been these last few days, taking it upon himself to guide me through the city while Auma was busy grading exams. He would clutch my hand protectively as we made our way through the crowded streets, infinitely patient whenever I stopped to look at a building or read a sign that he passed by every day, amused by my odd ways but with none of the elaborate gestures of boredom or resistance that I would have shown at his age.
 
-I T WAS AN OLD BUILDING, in one of the South Side’s older neighborhoods, still sound but badly in need of tuck- pointing and perhaps a new roof. The sanctuary was dark, with several pews that had cracked and splintered; the reddish carpet gave off a musty, damp odor; and at various points the floorboards beneath bucked and dipped like welts in a meadow. Reverend Philips’s office had this same chipped, worn quality, lit only by an antique desk lamp that cast the room in a dull, amber glow. And Reverend Philips himself-he was old. With the window shades drawn, surrounded by stacks of dusty old books, he seemed now to be receding into the wall, as still as a portrait, only his snow-white hair clearly visible, his voice sonorous and disembodied, like the voice of a dream.
+That sweetness, the lack of guile, made him seem much younger than his seventeen years. But he was seventeen, I reminded myself, an age where a little more independence, a sharper edge to his character, wouldn’t be such a bad thing. I realized that he had time for me partly because he had nothing better to do. He was patient because he had no
 
-We had been talking for close to an hour, mostly about the church. Not his church so much as the church, the historically black church, the church as an institution, the church as an idea. He was an erudite man and began our conversation with a history of slave religion, telling me about the Africans who, newly landed on hostile shores, had sat circled around a fire mixing newfound myths with ancient rhythms, their songs becoming a vessel for those most radical of ideas-survival, and freedom, and hope. The reverend went on to recall the Southern church of his own youth, a small, whitewashed wooden place, he said, built with sweat and pennies saved from share-cropping, where on bright, hot Sunday mornings all the quiet terror and open wounds of the week drained away in tears and shouts of gratitude; the clapping, waving, fanning hands reddening the embers of those same stubborn ideas-survival, and freedom, and hope. He discussed Martin Luther King’s visit to Chicago and the jealousy he had witnessed among some of King’s fellow ministers, their fear of being usurped; and the emergence of the Muslims, whose anger Reverend Philips understood: It was his own anger, he said, an anger that he didn’t expect he would ever entirely escape but that through prayer he had learned to control-and that he had tried not to pass down to his children.
+particular place he wanted to go. I needed to talk to him about that, as I’d promised Auma I would-a man-to-man talk....
 
-Now he was explaining the history of churches in Chicago. There were thousands of them, and it seemed as if he knew them all: the tiny storefronts and the large stone edifices; the high-yella congregations that sat stiff as cadets as they sang from their stern hymnals, and the charismatics who shook as their bodies expelled God’s unintelligible tongue. Most of the larger churches in Chicago had been a blend of these two forms, Reverend Philips explained, an example of segregation’s hidden blessings, the way it forced the lawyer and the doctor to live and worship right next to the maid and the laborer. Like a great pumping heart, the church had circulated goods, information, values, and ideas back and forth and back again, between rich and poor, learned and unlearned, sinner and saved.
+“You have seen Magic Johnson play?” Bernard asked me now, gathering himself for a shot. The ball went through the netless rim, and I passed the ball back out to him.
 
-He wasn’t sure, he said, how much longer his church would continue to serve that function. Most of his better-off members had moved away to tidier neighborhoods, suburban life. They still drove back every Sunday, out of loyalty or habit. But the nature of their involvement had changed. They hesitated to volunteer for anything-a tutoring program, a home visitation-that might keep them in the city after dark. They wanted more security around the church, a fenced-in parking lot to protect their cars. Reverend Philips expected that once he passed on, many of those members would stop coming back. They would start new churches, tidy like their new streets. He feared that the link to the past would be finally broken, that the children would no longer retain the memory of that first circle, around a fire....
+“Just on TV.”
 
-His voice began to trail off; I felt he was getting tired. I asked him for introductions to other pastors who might be interested in organizing, and he mentioned a few names-there was a dynamic young pastor, he said, a Reverend Jeremiah Wright, Jr., pastor of Trinity United Church of Christ, who might be worth talking to; his message seemed to appeal to young people like me. Reverend Philips gave me his number, and as I got up to leave, I said, “If we could bring just fifty churches together, we might be able to reverse some of the trends you’ve been talking about.”
+Bernard nodded. “Everybody has a car in America. And a telephone.” They were more statements than questions. “Most people. Not everybody.”
 
-Reverend Philips nodded and said, “You may be right, Mr. Obama. You have some interesting ideas. But you see, the churches around here are used to doing things their own way. Sometimes, the congregations even more than the pastors.” He opened the door for me, then paused. “By the way, what church do you belong to?”
+He shot again and the ball clanged noisily off the rim. “I think it is better there,” he said. “Maybe I will come to
 
-“I...I attend different services.”
+America. I can help you with your business.”
 
-“But you’re not a member anywhere?”
+“I don’t have a business right now. Maybe after I finish law school-”
 
-“Still searching, I guess.”
+“It must be easy to find work.”
 
-“Well, I can understand that. It might help your mission if you had a church home, though. It doesn’t matter where,
+“Not for everybody. Actually, lots of people have a tough time in the States. Black people especially.”
 
-really. What you’re asking from pastors requires us to set aside some of our more priestly concerns in favor of prophecy. That requires a good deal of faith on our part. It makes us want to know just where you’re getting yours from. Faith, that is.”
+He held the ball. “Not as bad as here.”
 
-Outside, I put on my sunglasses and walked past a group of older men who had set out their lawn chairs on the sidewalk for a game of bid whist. It was a gorgeous day, seventy-five in late September. Instead of driving straight to my next appointment, I decided to linger, letting my legs hang out the open car door, watching the old men play their game. They didn’t talk much, these men. They reminded me of the men Gramps used to play bridge with-the same thick, stiff hands; the same thin, natty socks and improbably slender shoes; the same beads of sweat along the folds of their necks, just beneath their flat caps. I tried to remember the names of those men back in Hawaii, what they had done for a living, wondering what residue of themselves they’d left in me. They had been mysteries to me then, those old
+We looked at each other, and I tried to picture the basketball courts back in the States. The sound of gunshots nearby,
+
+a guy peddling nickel hits in the stairwell-that was one picture. The laughter of boys playing in their suburban backyard, their mother calling them in for lunch. That was true, too. The two pictures collided, leaving me tongue-tied. Satisfied with my silence, Bernard returned to his dribbling.
+
+When the sun became too strong, we walked to an ice-cream parlor a few blocks from the university. Bernard ordered a chocolate sundae and began eating methodically, measuring out the ice cream half a teaspoon at a time. I lit a cigarette and leaned back in my chair.
+
+“Auma tells me that you’re thinking about trade school,” I said.
+
+He nodded, his expression noncommittal.
+
+“What kind of courses are you interested in?”
+
+“I don’t know.” He dipped his spoon in his sundae and thought for a moment. “Maybe auto mechanics. Yes...I think
+
+auto mechanics is good.”
+
+“Have you tried to get into some sort of program?”
+
+“No. Not really.” He stopped to take another bite. “You must pay fees.”
+
+“How old are you now, Bernard?”
+
+“Seventeen,” he said cautiously.
+
+“Seventeen.” I nodded, blowing smoke at the ceiling. “You know what that means, don’t you? It means you’re almost
+
+a man. Somebody with responsibilities. To your family. To yourself. What I’m trying to say is, it’s time you decided on something that interested you. Could be auto mechanics. Could be something else. But whatever it is, you’re gonna have to set some goals and follow through. Auma and I can help you with school fees, but we can’t live your life for you. You’ve got to put in some effort. You understand?”
+
+Bernard nodded. “I understand.”
+
+We both sat in silence for a while, watching Bernard’s spoon twirl through the now-liquid mess. I began to imagine how hollow my words must be sounding to this brother of mine, whose only fault was having been born on the wrong
+
+side of our father’s cloven world. He didn’t resent me for this, it seemed. Not yet. Only he must have been wondering why I was pretending that my rules somehow applied to him. All he wanted was a few tokens of our relationship-Bob Marley cassettes, maybe my basketball shoes once I was gone. So little to ask for, and yet anything else that I offered- advice, scoldings, my ambitions for him-would seem even less.
+
+I stamped out my cigarette and suggested we get going. As we stepped into the street, Bernard draped his arm over my shoulder.
+
+“It’s good to have a big brother around,” he said before waving good-bye and vanishing into the crowd.
+
+What is a family? Is it just a genetic chain, parents and offspring, people like me? Or is it a social construct, an economic unit, optimal for child rearing and divisions of labor? Or is it something else entirely: a store of shared memories, say? An ambit of love? A reach across the void?
+
+I could list various possibilities. But I’d never arrived at a definite answer, aware early on that, given my circumstances, such an effort was bound to fail. Instead, I drew a series of circles around myself, with borders that shifted as time passed and faces changed but that nevertheless offered the illusion of control. An inner circle, where love was constant and claims unquestioned. Then a second circle, a realm of negotiated love, commitments freely chosen. And then a circle for colleagues, acquaintances; the cheerful gray-haired lady who rang up my groceries back in Chicago. Until the circle finally widened to embrace a nation or a race, or a particular moral course, and the commitments were no longer tied to a face or a name but were actually commitments I’d made to myself.
+
+In Africa, this astronomy of mine almost immediately collapsed. For family seemed to be everywhere: in stores, at the post office, on streets and in the parks, all of them fussing and fretting over Obama’s long-lost son. If I mentioned in passing that I needed a notebook or shaving cream, I could count on one of my aunts to insist that she take me to some far-off corner of Nairobi to find the best bargains, no matter how long the trip took or how much it might inconvenience her.
+
+“Ah, Barry...what is more important than helping my brother’s son?”
+
+If a cousin discovered, much to his distress, that Auma had left me to fend for myself, he might walk the two miles to Auma’s apartment on the off chance that I was there and needed company.
+
+“Ah, Barry, why didn’t you call on me? Come, I will take you to meet some of my friends.”
+
+And in the evenings, well, Auma and I simply surrendered ourselves to the endless invitations that came our way from uncles, nephews, second cousins or cousins once removed, all of whom demanded, at the risk of insult, that we sit down for a meal, no matter what time it happened to be or how many meals we had already eaten.
+
+“Ah, Barry...we may not have much in Kenya-but so long as you are here, you will always have something to eat!”
+
+At first I reacted to all this attention like a child to its mother’s bosom, full of simple, unquestioning gratitude. It conformed to my idea of Africa and Africans, an obvious contrast to the growing isolation of American life, a contrast I understood, not in racial, but in cultural terms. A measure of what we sacrificed for technology and mobility, but that here-as in the kampongs outside Djakarta or in the country villages of Ireland or Greece-remained essentially intact: the insistent pleasure of other people’s company, the joy of human warmth.
+
+As the days wore on, though, my joy became tempered with tension and doubt. Some of it had to do with what Auma had talked about that night in the car-an acute awareness of my relative good fortune, and the troublesome questions such good fortune implied. Not that our relatives were suffering, exactly. Both Jane and Zeituni had steady jobs; Kezia made do selling cloth in the markets. If cash got too short, the children could be sent upcountry for a time; that’s where another brother, Abo, was staying, I was told, with an uncle in Kendu Bay, where there were always chores to perform, food on the table and a roof over one’s head.
+
+Still, the situation in Nairobi was tough and getting tougher. Clothes were mostly secondhand, a doctor’s visit reserved for the direst emergency. Almost all the family’s younger members were unemployed, including the two or three who had managed, against stiff competition, to graduate from one of Kenya’s universities. If Jane or Zeituni ever fell ill, if their companies ever closed or laid them off, there was no government safety net. There was only family, next of kin; people burdened by similar hardship.
+
+Now I was family, I reminded myself; now I had responsibilities. But what did that mean exactly? Back in the States, I’d been able to translate such feelings into politics, organizing, a certain self-denial. In Kenya, these strategies seemed hopelessly abstract, even self-indulgent. A commitment to black empowerment couldn’t help find Bernard a job. A faith in participatory democracy couldn’t buy Jane a new set of sheets. For the first time in my life, I found myself thinking deeply about money: my own lack of it, the pursuit of it, the crude but undeniable peace it could buy. A part of me wished I could live up to the image that my new relatives imagined for me: a corporate lawyer, an American businessman, my hand poised on the spigot, ready to rain down like manna the largesse of the Western world.
 

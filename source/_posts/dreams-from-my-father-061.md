@@ -1,117 +1,43 @@
 title: Dreams from My Father 061
-date: 2015-01-24 15:43:34
+date: 2015-01-25 03:45:16
 tags: dreams-from-my-father
 ---
 
-I decided to stop talking about David after that; I could tell that Auma found the memories too painful. But only a few days later, Auma and I came home to find a car waiting for us outside the apartment. The driver, a brown-skinned man with a prominent Adam’s apple, handed Auma a note.
+Before long, Onyango saw the shaman approaching, carrying a small suitcase of potions in one hand. When the shaman was within shouting distance, your grandfather stood in the center of the road and said, “Go back to where you come from.” The shaman didn’t know who Onyango was, and made like he was going to pass, but Onyango blocked his way and said, “If you are as powerful as you claim, you must strike me now with lightning. If not, you should run, for unless you leave this village now, I will have to beat you.” Again, the shaman made as if he was going to pass, but before he could take another step, Onyango had beaten him to the ground, taken his suitcase, and returned with it to his compound.
 
-“What is it?” I asked.
+Well, this was a very serious matter, especially when your grandfather refused to return the shaman’s potions. The next day, the council of elders gathered beneath a tree to resolve the dispute, and Onyango and the shaman were both told to appear and state their case. First the shaman stood and told the elders that if Onyango did not return the suitcase at once, a curse would be brought on the entire village. Then Onyango stood, and he repeated what he had said earlier. “If this man has strong magic, let him curse me now and strike me dead.” The elders leaned away from Onyango, fearful that the spirits might miss their target. But they soon saw that no spirits came. So Onyango turned to the man who had hired the shaman and said, “Go and find yourself a new woman, and let this other woman be with the one to
 
-“It’s an invitation from Ruth,” she said. “Mark’s back from America for the summer. She wants to have us over for lunch.”
+whom she is promised.” And to the shaman Onyango said, “Go back to where you came from, because there will be no killings in this place.”
 
-“Do you want to go?”
+To these things, all the elders agreed. But they insisted that Onyango must also return the shaman’s suitcase, for they did not want to take any chances. Onyango also agreed, and when the meeting was finished, he brought the shaman to his hut. He told me to slaughter a chicken so the shaman could eat, and even gave the shaman money so that his trip to Alego would not have been wasted. But before your grandfather let the shaman leave, he made the man show him the contents of his suitcase and explain the properties of every potion, so that he would know all the tricks that the shaman performed.
 
-Auma shook her head, a look of disgust on her face. “Ruth knows I’ve been here almost six months now. She doesn’t care about me. The only reason she’s invited us is because she’s curious about you. She wants to compare you to Mark.”
+Even if Onyango had used one of these potions on Akumu, I don’t think he could have made her happy. No matter how much he beat her, she would argue with him. She was also proud and scornful of me, and often refused to help in the household chores. She had a third child-named Auma, like this one sitting here-and as she nursed this new baby, she secretly planned her escape. One night, when Sarah was twelve and Barack was nine, she made her move. She woke up Sarah and said that she was running away to Kendu. She told Sarah that it was too difficult a journey for children to make at night, but said that they should follow her as soon as they were older. Then she disappeared with her baby into the darkness.
 
-“I think maybe I should go,” I said quietly.
+When Onyango found out what had happened, he was furious. At first he thought he should finally let Akumu go, but when he saw that Barack and Sarah were still young, and that even I, with two children of my own, was little more than a girl, he again went to Akumu’s family in Kendu and asked that she be returned. But this time the family refused. In fact, they had already accepted dowry for Akumu’s remarriage to another man, and together Akumu and her new husband had left for Tanganyika. There was nothing Onyango could do, so he returned to Alego. He said to himself, “It does not matter,” and he told me that I was now the mother of all his children.
 
-Auma looked at the note again, then handed it back to the driver and said something to him in Swahili. “We’ll both go,” she said, and walked into the apartment.
+Neither he nor I knew of Akumu’s last visit to Sarah. But Sarah had remembered her mother’s instructions, and only a few weeks passed before she woke up Barack in the middle of the night, just as her mother had done to her. She told Barack to be quiet, helped him get dressed, and together they began to walk down the road to Kendu. I still wonder that they both survived. They were gone for almost two weeks, walking many miles each day, hiding from those who passed them on the road, sleeping in fields and begging for food. Not far from Kendu, they became lost, and a woman finally saw them and took pity on them, for they were filthy and almost starved. The woman took them in and fed them, and asked them their names; and when she realized who they were she sent for your grandfather. And when Onyango came to get them, and saw how badly they looked, this is the only time that anyone ever saw him cry.
 
-Ruth lived in Westlands, an enclave of expensive homes set off by wide lawns and well-tended hedges, each one with a sentry post manned by brown-uniformed guards. It was raining as we drove toward her house, sending a soft, gentle spray through the big, leafy trees. The coolness reminded me of the streets around Punahou, Manoa, Tantalus, the streets where some of my wealthier classmates had lived back in Hawaii. Staring out Auma’s car window, I thought back to the envy I’d felt toward those classmates whenever they invited me over to play in their big backyards or swim in their swimming pools. And along with that envy, a different impression-the sense of quiet desperation those big, pretty houses seemed to contain. The sound of someone’s sister crying softly behind the door. The sight of a mother sneaking a tumbler of gin in midafternoon. The expression on a father’s face as he sat alone in his den, his features clenched as he flicked between college football games on TV. An impression of loneliness that perhaps wasn’t true, perhaps was just a projection of my own heart, but that, either way, had made me want to run, just as, an ocean away, David had run, back into the marketplace and noisy streets, back into disorder and the laughter disorder produced, back into the sort of pain a boy could understand.
+The children never tried to run away again. But I don’t think they ever forgot this journey they made. Sarah kept a careful distance from Onyango, and in her heart remained loyal to Akumu, for she was older, and perhaps had seen how the old man had treated her mother. I believe she also resented me for taking her mother’s place. Barack reacted differently. He could not forgive his abandonment, and acted as if Akumu didn’t exist. He told everyone that I was his mother, and although he would send Akumu money when he became a man, to the end of his life he would always act coldly towards her.
 
-We came to one of the more modest houses on the block and parked along the curve of a looping driveway. A white woman with a long jaw and graying hair came out of the house to meet us. Behind her was a black man of my height and complexion with a bushy Afro and horn-rimmed glasses.
+The strange thing was that in many ways Sarah was most like her father in personality. Strict, hardworking, easy to anger. Whereas Barack was wild and stubborn like Akumu. But of course such things one does not see in one’s self.
 
-“Come in, come in,” Ruth said. The four of us shook hands stiffly and entered a large living room, where a balding, older black man in a safari jacket was bouncing a young boy on his lap. “This is my husband,” Ruth said, “and this is Mark’s little brother, Joey.”
+As you might expect, Onyango was very strict with his children. He worked them hard, and would not allow them to play outside the compound, because he said other children were filthy and ill-mannered. Whenever Onyango went away, I would ignore these instructions, because children must play with other children, just as they must eat and sleep. But I would never tell your grandfather what I did, and I would have to scrub the children clean before your grandfather came home.
 
-“Hey, Joey,” I said, bending down to shake his hand. He was a beautiful boy, with honey-colored skin and two front teeth missing. Ruth tousled the boy’s big curls, then looked at her husband and said, “Weren’t you two on your way to the club?”
+This was not easy, especially with Barack. That boy was so mischievous! In Onyango’s presence, he appeared well- mannered and obedient, and never answered back when his father told him to do something. But behind the old man’s back, Barack did as he pleased. When Onyango was away on business, Barack would take off his proper clothes and go off with other boys to wrestle or swim in the river, to steal the fruit from the neighbors’ trees or ride their cows. The neighbors were afraid to go directly to Onyango, so they would come to me and complain about these things. But I could not get mad at Barack, and would always cover up his foolishness from Onyango, for I loved him as my own son.
 
-“Yes, yes,” the man said, standing up. “Come on, Joey...it was nice to meet you both.” The boy stood fast, staring up at Auma and me with a bright, curious smile until his father finally picked him up and carried him out the door.
+Although he did not like to show it, your grandfather was also very fond of Barack, because the boy was so clever. When Barack was only a baby, Onyango would teach him the alphabet and numbers, and it was not long before the son could outdo the father in these things. This pleased Onyango, for to him knowledge was the source of all the white man’s power, and he wanted to make sure that his son was as educated as any white man. He was less concerned with Sarah’s education, although she was also quick like Barack. Most men thought educating their daughters was a waste of money. When Sarah was finished with primary school, she came to Onyango begging for school fees to go on to secondary school. He said to her, “Why should I spend school fees on you when you will come to live in another man’s house? Go help your mother and learn how to be a proper wife.”
 
-“Well, here we are,” Ruth said, leading us to the couch and pouring lemonade. “I must say it was quite a surprise to find out you were here, Barry. I told Mark that we just had to see how this other son of Obama’s turned out. Your name is Obama, isn’t it? But your mother remarried. I wonder why she had you keep your name?”
+This created more friction between Sarah and her younger brother, especially because she knew that Barack was not always serious about his studies. Everything came too easily to him. At first he went to the mission school nearby, but he came back after the first day and told his father that he could not study there because his class was taught by a woman and he knew everything she had to teach him. This attitude he had learned from his father, so Onyango could say nothing. The next closest school was six miles away, and I began to walk him to this school every morning. His teacher there was a man, but Barack discovered this didn’t solve his problems. He always knew the answers, and sometimes would even correct the teacher’s mistakes before the whole class. The teacher would scold Barack for his insolence, but Barack would refuse to back down. This caused Barack many canings at the hand of the headmaster. But it also might have taught him something, because the next year, when he switched to a class with a woman teacher, I noticed that he didn’t complain.
 
-I smiled as if I hadn’t understood the question. “So, Mark,” I said, turning to my brother, “I hear you’re at Berkeley.”
+Still, he was bored with school, and when he became older, he would stop going to school altogether for weeks at a time. A few days before exams, he would find a classmate and read through the lessons. He could sit down and teach himself everything in just a few days, and when the marks came in, he would always be first. The few times he did not come in first, he came to me in tears, for he was so used to being the best. But this happened only once or twice-usually he would come home laughing and boasting of his cleverness.
 
-“Stanford,” he corrected. His voice was deep, his accent perfectly American. “I’m in my last year of the physics program there.”
+Barack did not mean his boasts cruelly-he was always good-natured towards his classmates, and would help them whenever they asked. His boasts were like those of a child who discovers that he can run fast or hunt well. So he did not understand that others might resent his ease. Even as a man, he did not understand such things. In a bar or a
 
-“It must be tough,” Auma offered.
+restaurant, he would see classmates of his who were now ministers or businessmen, and in front of everybody he would tell them their ideas were silly. He would say to them, “Oy, I remember that I had to teach you arithmetic, so how can you be such a big man now?” Then he would laugh and buy these men beers, for he was also fond of them. But these fellows would remember their school days, and know what Barack had said was true, and although they might not show it, his words made them angry.
 
-Mark shrugged. “Not really.”
+By the time your father was a teenager, things were changing rapidly in Kenya. Many Africans had fought in the Second World War. They had carried arms and distinguished themselves as great warriors in Burma and Palestine. They had seen the white man fight his own people, and had died beside white men, and had killed many white men themselves. They had learned that an African could work the white man’s machines and had met blacks from America who flew airplanes and performed surgery. When they returned to Kenya, they were eager to share this new knowledge and were no longer satisfied with the white man’s rule.
 
-“Don’t be so modest, dear,” Ruth said. “The things Mark studies are so complicated only a handful of people really understand it all.” She patted Mark on the hand, then turned to me. “And Barry, I understand you’ll be going to Harvard. Just like Obama. You must have gotten some of his brains. Hopefully not the rest of him, though. You know Obama was quite crazy, don’t you? The drinking made it worse. Did you ever meet him? Obama, I mean?”
+People began to talk about independence. Meetings and demonstrations were held, and petitions were presented to the administration complaining about land confiscation and the power of chiefs to commission free labor for government projects. Even Africans who had been educated in mission schools now rebelled against their home churches and accused whites of distorting Christianity to demean everything African. As before, most of this activity centered in Kikuyuland, for that tribe bore the white man’s yoke most heavily. But the Luo, too, were oppressed, a main source of forced labor. Men in our area began to join the Kikuyu in demonstrations. And later, when the British declared their Emergency, many men were detained, some never to be seen again.
 
-“Only once. When I was ten.”
-
-“Well, you were lucky then. It probably explains why you’re doing so well.”
-
-That’s how the next hour passed, with Ruth alternating between stories of my father’s failure and stories of Mark’s
-
-accomplishments. Any questions were directed exclusively to me, leaving Auma to fiddle silently with Ruth’s lasagna. I wanted to leave as soon as the meal was over, but Ruth suggested that Mark show us the family album while she brought out the dessert.
-
-“I’m sure they’re not interested, Mother,” Mark said.
-
-“Of course they’re interested,” Ruth said. Then, her voice oddly distant: “There are pictures of Obama. From when he was young....”
-
-We followed Mark to the bookcase, and he pulled down a large photo album. Together we sat on the couch, slowly thumbing through laminate pages. Auma and Roy, dark and skinny and tall, all legs and big eyes, holding the two smaller children protectively in their arms. The Old Man and Ruth mugging it up at a beach somewhere. The entire family dressed up for a night out on the town. They were happy scenes, all of them, and all strangely familiar, as if I were glimpsing some alternative universe that had played itself out behind my back. They were reflections, I realized, of my own long-held fantasies, fantasies that I’d kept secret even from myself. The fantasy of the Old Man’s having taken my mother and me back with him to Kenya. The wish that my mother and father, sisters and brothers, were all under one roof. Here it was, I thought, what might have been. And the recognition of how wrong it had all turned out, the harsh evidence of life as it had really been lived, made me so sad that after only a few minutes I had to look away.
-
-On the drive back, I apologized to Auma for having put her through the ordeal. She waved it off.
-
-“It could have been worse,” she said. “I feel sorry for Mark, though. He seems so alone. You know, it’s not easy being a mixed child in Kenya.”
-
-I looked out the window, thinking about my mother, Toot, and Gramps, and how grateful I was to them-for who they were, and for the stories they’d told. I turned back to Auma, and said, “She still hasn’t gotten over him, has she?”
-
-“Who?”
-
-“Ruth. She hasn’t gotten over the Old Man.”
-
-Auma thought for a moment. “No, Barack. I guess she hasn’t. Just like the rest of us.”
-
-The following week, I called Mark and suggested that we go out to lunch. He seemed a bit hesitant, but eventually agreed to meet me at an Indian restaurant downtown. He was more relaxed than he had been during our first meeting, making a few self-deprecatory jokes, offering his observations about California and academic infighting. As the meal wore on, I asked him how it felt being back for the summer.
-
-“Fine,” he said. “It’s nice to see my mom and dad, of course. And Joey-he’s really a great kid.” Mark cut off a bite of his samosa and put it into his mouth. “As for the rest of Kenya, I don’t feel much of an attachment. Just another poor African country.”
-
-“You don’t ever think about settling here?”
-
-Mark took a sip from his Coke. “No,” he said. “I mean, there’s not much work for a physicist, is there, in a country where the average person doesn’t have a telephone.”
-
-I should have stopped then, but something-the certainty in this brother’s voice, maybe, or our rough resemblance, like looking into a foggy mirror-made me want to push harder. I asked, “Don’t you ever feel like you might be losing something?”
-
-Mark put down his knife and fork, and for the first time that afternoon his eyes looked straight into mine.
-
-“I understand what you’re getting at,” he said flatly. “You think that somehow I’m cut off from my roots, that sort of thing.” He wiped his mouth and dropped the napkin onto his plate. “Well, you’re right. At a certain point, I made a decision not to think about who my real father was. He was dead to me even when he was still alive. I knew that he was a drunk and showed no concern for his wife or children. That was enough.”
-
-“It made you mad.”
-
-“Not mad. Just numb.”
-
-“And that doesn’t bother you? Being numb, I mean?”
-
-“Towards him, no. Other things move me. Beethoven’s symphonies. Shakespeare’s sonnets. I know-it’s not what an
-
-African is supposed to care about. But who’s to tell me what I should and shouldn’t care about? Understand, I’m not ashamed of being half Kenyan. I just don’t ask myself a lot of questions about what it all means. About who I really am.” He shrugged. “I don’t know. Maybe I should. I can acknowledge the possibility that if I looked more carefully at myself, I would...”
-
-For the briefest moment I sensed Mark hesitate, like a rock climber losing his footing. Then, almost immediately, he regained his composure and waved for the check.
-
-“Who knows?” he said. “What’s certain is that I don’t need the stress. Life’s hard enough without all that excess baggage.”
-
-We stood up to leave, and I insisted on paying the bill. Outside we exchanged addresses and promised to write, with a dishonesty that made my heart ache. When I got home, I told Auma how the meeting had gone. She looked away for a moment, then broke out with a short, bitter laugh.
-
-“What’s so funny?”
-
-“I was just thinking about how life is so strange. You know, as soon as the Old Man died, the lawyers contacted all those who might have a claim to the inheritance. Unlike my mum, Ruth has all the documents needed to prove who Mark’s father was. So of all of the Old Man’s kids, Mark’s claim is the only one that’s uncontested.”
-
-Again Auma laughed, and I looked up at the picture hanging on her wall, the same picture pasted inside Ruth’s album, of three brothers and a sister, smiling sweetly for the camera.
-
-CHAPTER SEVENTEEN
-
-T OWARD THE END OF my second week in Kenya, Auma and I went on a safari.
-
-Auma wasn’t thrilled with the idea. When I first showed her the brochure, she grimaced and shook her head. Like most Kenyans, she could draw a straight line between the game parks and colonialism. “How many Kenyans do you think can afford to go on a safari?” she asked me. “Why should all that land be set aside for tourists when it could be used for farming? These wazungu care more about one dead elephant than they do for a hundred black children.”
-
-For several days we parried. I told her she was letting other people’s attitudes prevent her from seeing her own country. She said she didn’t want to waste the money. Eventually she relented, not because of my persuasive powers but because she took pity on me.
-
-“If some animal ate you out there,” she said, “I’d never forgive myself.”
-
-And so, at seven o’clock on a Tuesday morning, we watched a sturdily built Kikuyu driver named Francis load our bags onto the roof of a white minivan. With us were a spindly cook named Rafael, a dark-haired Italian named Mauro, and a British couple in their early forties, the Wilkersons.
-
-We drove out of Nairobi at a modest pace, passing soon into countryside, green hills and red dirt paths and small shambas surrounded by plots of wilting, widely spaced corn. Nobody spoke, a discomfiting silence that reminded me of similar moments back in the States, the pause that would sometimes accompany my personal integration of a bar or hotel. It made me think about Auma and Mark, my grandparents back in Hawaii, my mother still in Indonesia, and the things Zeituni had told me.
+Like other boys, your father would be influenced by the early talk of independence, and he would come home from school talking about the meetings he had seen. Your grandfather agreed with many of the demands of the early parties like KANU, but he remained skeptical that the independence movement would lead to anything, because he thought Africans could never win against the white man’s army. “How can the African defeat the white man,” he would tell Barack, “when he cannot even make his own bicycle?” And he would say that the African could never win against the white man because the black man only wanted to work with his own family or clan, while all white men worked to increase their power. “The white man alone is like an ant,” Onyango would say. “He can be easily crushed. But like an ant, the white man works together. His nation, his business-these things are more important to him than himself. He will follow his leaders and not question orders. Black men are not like this. Even the most foolish black man thinks he knows better than the wise man. That is why the black man will always lose.”
 

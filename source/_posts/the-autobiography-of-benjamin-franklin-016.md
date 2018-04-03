@@ -1,59 +1,91 @@
 title: The Autobiography of Benjamin Franklin 016
-date: 2015-01-24 15:44:18
+date: 2015-01-25 03:46:01
 tags: the-autobiography-of-benjamin-franklin
 ---
 
-63
+It will be remark’d that, tho’ my scheme was not wholly without reli- gion, there was in it no mark of any of the distingishing tenets of any particular sect. I had purposely avoided them; for, being fully persuaded of the utility and excellency of my method, and that it might be service- able to people in all religions, and intending some time or other to pub- lish it, I would not have any thing in it that should prejudice any one, of any sect, against it. I purposed writing a little comment on each virtue, in which I would have shown the advantages of possessing it, and the mis- chiefs attending its opposite vice; and I should have called my book The Art of Virtue,* because it would have shown the means and manner of obtaining virtue, which would have distinguished it from the mere ex- hortation to be good, that does not instruct and indicate the means, but is like the apostle’s man of verbal charity, who only without showing to the naked and hungry how or where they might get clothes or victuals, exhorted them to be fed and clothed.—James ii. 15, 16.
+
+*Nothing so likely to make a man’s fortune as virtue. —[Marg. note.] 76
+
+￼The Autobiography of Benjamin Franklin
+
+But it so happened that my intention of writing and publishing this comment was never fulfilled. I did, indeed, from time to time, put down short hints of the sentiments, reasonings, etc., to be made use of in it, some of which I have still by me; but the necessary close attention to private business in the earlier part of thy life, and public business since, have occasioned my postponing it; for, it being connected in my mind with a great and extensive project, that required the whole man to ex- ecute, and which an unforeseen succession of employs prevented my at- tending to, it has hitherto remain’d unfinish’d.
+
+In this piece it was my design to explain and enforce this doctrine, that vicious actions are not hurtful because they are forbidden, but forbidden because they are hurtful, the nature of man alone considered; that it was, therefore, every one’s interest to be virtuous who wish’d to be happy even in this world; and I should, from this circumstance (there being always in the world a number of rich merchants, nobility, states, and princes, who have need of honest instruments for the management of their affairs, and such being so rare), have endeavored to convince young persons that no qualities were so likely to make a poor man’s fortune as those of probity and integrity.
+
+My list of virtues contain’d at first but twelve; but a Quaker friend having kindly informed me that I was generally thought proud; that my pride show’d itself frequently in conversation; that I was not content with being in the right when discussing any point, but was overbearing, and rather insolent, of which he convinc’d me by mentioning several instances; I determined endeavouring to cure myself, if I could, of this vice or folly among the rest, and I added Humility to my list) giving an extensive meaning to the word.
+
+I cannot boast of much success in acquiring the reality of this virtue, but I had a good deal with regard to the appearance of it. I made it a rule to forbear all direct contradiction to the sentiments of others, and all positive assertion of my own. I even forbid myself, agreeably to the old laws of our Junto, the use of every word or expression in the language that imported a fix’d opinion, such as certainly, undoubtedly, etc., and I adopted, instead of them, I conceive, I apprehend, or I imagine a thing to be so or so; or it so appears to me at present. When another asserted something that I thought an error, I deny’d myself the pleasure of contradicting him abruptly, and of showing immediately some absurdity in his proposition; and in answering I began by observing that in certain cases or circumstances his opinion would be right, but in the present case there appear’d or seem’d to me some
+
+77
 
 The Autobiography of Benjamin Franklin
 
-that man is not even at present a vicious and detestable animal; and still more to prove that good management may greatly amend him; and it is for much the same reason, that I am anxious to see the opinion estab- lished, that there are fair characters existing among the individuals of the race; for the moment that all men, without exception, shall be conceived abandoned, good people will cease efforts deemed to be hopeless, and perhaps think of taking their share in the scramble of life, or at least of making it comfortable principally for themselves. Take then, my dear sir, this work most speedily into hand: shew yourself good as you are good; temperate as you are temperate; and above all things, prove yourself as one, who from your infancy have loved justice, liberty and concord, in a way that has made it natural and consistent for you to have acted, as we have seen you act in the last seventeen years of your life. Let Englishmen be made not only to respect, but even to love you. When they think well of individuals in your native country, they will go nearer to thinking well of your country; and when your countrymen see themselves well thought of by Englishmen, they will go nearer to thinking well of England. Ex- tend your views even further; do not stop at those who speak the English tongue, but after having settled so many points in nature and politics, think of bettering the whole race of men. As I have not read any part of the life in question, but know only the character that lived it, I write somewhat at hazard. I am sure, however, that the life and the treatise I allude to (on the Art of Virtue) will necessarily fulfil the chief of my expectations; and still more so if you take up the measure of suiting these performances to the several views above stated. Should they even prove unsuccessful in all that a sanguine admirer of yours hopes from them, you will at least have framed pieces to interest the human mind; and whoever gives a feeling of pleasure that is innocent to man, has added so much to the fair side of a life otherwise too much darkened by anxiety and too much injured by pain. In the hope, therefore, that you will listen to the prayer addressed to you in this letter, I beg to subscribe myself, my dearest sir, etc., etc.,
+difference, etc. I soon found the advantage of this change in my manner; the conversations I engag’d in went on more pleasantly. The modest way in which I propos’d my opinions procur’d them a readier recep tion and less contradiction; I had less mortification when I was found to be in the wrong, and I more easily prevail’d with others to give up their mistakes and join with me when I happened to be in the right.
 
-“Signed, Benj. Vaughan.”
+And this mode, which I at first put on with some violence to natural inclination, became at length so easy, and so habitual to me, that perhaps for these fifty years past no one has ever heard a dogmatical expression escape me. And to this habit (after my character of integrity) I think it principally owing that I had early so much weight with my fellow- citi- zens when I proposed new institutions, or alterations in the old, and so much influence in public councils when I became a member; for I was but a bad speaker, never eloquent, subject to much hesitation in my choice of words, hardly correct in language, and yet I generally carried my points.
 
-Continuation of the Account of my Life, begun at Passy, near Paris,
+In reality, there is, perhaps, no one of our natural passions so hard to subdue as pride. Disguise it, struggle with it, beat it down, stifle it, mor- tify it as much as one pleases, it is still alive, and will every now and then peep out and show itself; you will see it, perhaps, often in this history; for, even if I could conceive that I had compleatly overcome it, I should prob- ably be proud of my humility.
 
-1784.
+[Thus far written at Passy, 1741.]
 
-It is some time since I receiv’d the above letters, but I have been too busy till now to think of complying with the request they contain. It
+[I am now about to write at home, August, 1788, but can not have the help expected from my papers, many of them being lost in the war. I have, however, found the following.]*
 
-64
+HAVING mentioned a great and extensive project which I had conceiv’d, it seems proper that some account should be here given of that project and its object. Its first rise in my mind appears in the following little paper, accidentally preserv’d, viz.:
+
+Observations on my reading history, in Library, May 19th, 1731.
+
+“That the great affairs of the world, the wars, revolutions, etc., are carried on and affected by parties.
+
+“That the view of these parties is their present general interest, or what they take to be such.
+
+“That the different views of these different parties occasion all confu- sion.
+
+*This is a marginal memorandum.—B. 78
+
+￼The Autobiography of Benjamin Franklin
+
+“That while a party is carrying on a general design, each man has his particular private interest in view.
+
+“That as soon as a party has gain’d its general point, each member becomes intent upon his particular interest; which, thwarting others, breaks that party into divisions, and occasions more confusion.
+
+“That few in public affairs act from a meer view of the good of their country, whatever they may pretend; and, tho’ their actings bring real good to their country, yet men primarily considered that their own and their country’s interest was united, and did not act from a principle of benevo- lence.
+
+“That fewer still, in public affairs, act with a view to the good of man- kind.
+
+“There seems to me at present to be great occasion for raising a United Party for Virtue, by forming the virtuous and good men of all nations into a regular body, to be govern’d by suitable good and wise rules, which good and wise men may probably be more unanimous in their obedience to, than common people are to common laws.
+
+“I at present think that whoever attempts this aright, and is well quali- fied, can not fail of pleasing God, and of meeting with success. B. F.”
+
+Revolving this project in my mind, as to be undertaken hereafter, when my circumstances should afford me the necessary leisure, I put down from time to time, on pieces of paper, such thoughts as occurr’d to me respecting it. Most of these are lost; but I find one purporting to be the substance of an intended creed) containing, as I thought, the essentials of every known religion, and being free of every thing that might shock the professors of any religion. It is express’d in these words, viz.:
+
+“That there is one God, who made all things.
+
+“That he governs the world by his providence.
+
+“That he ought to be worshiped by adoration, prayer, and thanksgiv-
+
+ing.
+
+“But that the most acceptable service of God is doing good to man. “That the soul is immortal.
+
+“And that God will certainly reward virtue and punish vice either here
+
+or hereafter.”*
+
+My ideas at that time were, that the sect should be begun and spread at
+
+first among young and single men only; that each person to be initiated should not only declare his assent to such creed, but should have exer-
+
+*In the Middle Ages, Franklin, if such a phenomenon as Franklin were possible in the Middle Ages, would probably have been the founder of a monastic order.—B.
+
+￼79
 
 The Autobiography of Benjamin Franklin
 
-might, too, be much better done if I were at home among my papers, which would aid my memory, and help to ascertain dates; but my return being uncertain and having just now a little leisure, I will endeavor to recollect and write what I can; if I live to get home, it may there be cor- rected and improv’d.
+cised himself with the thirteen weeks’ examination and practice of the virtues) as in the before-mention’d model; that the existence of such a society should he kept a secret, till it was become considerable, to prevent solicitations for the admission of improper persons, but that the mem- bers should each of them search among his acquaintance for ingenuous, well-disposed youths, to whom, with prudent caution, the scheme should be grad ually communicated; that the members should engage to afford their advice, assistance, and support to each other in promoting one another’s interests, business, and advancement in life; that, for distinc- tion, we should be call’d The Society of the Free and Easy: free, as being, by the general practice and habit of the virtues, free from the dominion of vice; and particularly by the practice of industry and frugality, free from debt, which exposes a man to confinement, and a species of slavery to his creditors.
 
-Not having any copy here of what is already written, I know not whether an account is given of the means I used to establish the Philadelphia public library, which, from a small beginning, is now become so consid- erable, though I remember to have come down to near the time of that transaction (1730). I will therefore begin here with an account of it, which may be struck out if found to have been already given.
+This is as much as I can now recollect of the project, except that I communicated it in part to two young men, who adopted it with some enthusiasm; but my then narrow circumstances, and the necessity I was under of sticking close to my business, occasion’d my postponing the further prosecution of it at that time; and my multifarious occupations, public and private, induc’d me to continue postponing, so that it has been omitted till I have no longer strength or activity left sufficient for such an enterprise; tho’ I am still of opinion that it was a practicable scheme, and might have been very useful, by forming a great number of good citizens; and I was not discourag’d by the seeming magnitude of the undertaking, as I have always thought that one man of tolerable abilities may work great changes, and accomplish great affairs among mankind, if he first forms a good plan, and, cutting off all amusements or other em- ployments that would divert his attention, makes the execution of that same plan his sole study and business.
 
-At the time I establish’d myself in Pennsylvania, there was not a good bookseller’s shop in any of the colonies to the southward of Boston. In New York and Philad’a the printers were indeed stationers; they sold only paper, etc., almanacs, ballads, and a few common school- books. Those who lov’d reading were oblig’d to send for their books from England; the members of the Junto had each a few. We had left the alehouse, where we first met, and hired a room to hold our club in. I propos’d that we should all of us bring our books to that room, where they would not only be ready to consult in our conferences, but become a common benefit, each of us being at liberty to borrow such as he wish’d to read at home. This was accordingly done, and for some time contented us.
-
-Finding the advantage of this little collection, I propos’d to render the benefit from books more common, by commencing a public subscrip- tion library. I drew a sketch of the plan and rules that would be necessary, and got a skilful conveyancer, Mr. Charles Brockden, to put the whole in form of articles of agreement to be subscribed, by which each subscriber engag’d to pay a certain sum down for the first purchase of books, and an annual contribution for increasing them. So few were the readers at that time in Philadelphia, and the majority of us so poor, that I was not able, with great industry, to find more than fifty persons, mostly young trades- men, willing to pay down for this purpose forty shillings each, and ten shillings per annum. On this little fund we began. The books were im- ported; the library wag opened one day in the week for lending to the subscribers, on their promissory notes to pay double the value if not duly returned. The institution soon manifested its utility, was imitated by other towns, and in other provinces. The libraries were augmented by dona- tions; reading became fashionable; and our people, having no publick amusements to divert their attention from study, became better acquainted with books, and in a few years were observ’d by strangers to be better
-
-65
-
-The Autobiography of Benjamin Franklin
-
-instructed and more intelligent than people of the same rank generally are in other countries.
-
-When we were about to sign the above-mentioned articles, which were to be binding upon us, our heirs, etc., for fifty years, Mr. Brockden, the scrivener, said to us, “You are young men, but it is scarcely probable that any of you will live to see the expiration of the term fix’d in the instru- ment.” A number of us, however, are yet living; but the instrument was after a few years rendered null by a charter that incorporated and gave perpetuity to the company.
-
-The objections and reluctances I met with in soliciting the subscriptions, made me soon feel the impropriety of presenting one’s self as the proposer of any useful project, that might be suppos’d to raise one’s reputation in the smallest degree above that of one’s neighbors, when one has need of their assistance to accomplish that project. I therefore put myself as much as I could out of sight, and stated it as a scheme of a number of friends, who had requested me to go about and propose it to such as they thought lovers of reading. In this way my affair went on more smoothly, and I ever after practis’d it on such occasions; and, from my frequent successes, can heartily recommend it. The present little sacrifice of your vanity will afterwards be amply repaid. If it remains a while uncertain to whom the merit belongs, some one more vain than yourself will be encouraged to claim it, and then even envy will be disposed to do you justice by plucking those assumed feathers, and restoring them to their right owner.
-
-This library afforded me the means of improvement by constant study, for which I set apart an hour or two each day, and thus repair’d in some degree the loss of the learned education my father once intended for me. Reading was the only amusement I allow’d myself. I spent no time in taverns, games, or frolicks of any kind; and my industry in my business continu’d as indefatigable as it was necessary. I was indebted for my print- ing-house; I had a young family coming on to be educated, and I had to contend with for business two printers, who were established in the place before me. My circumstances, however, grew daily easier. My original habits of frugality continuing, and my father having, among his instruc- tions to me when a boy, frequently repeated a proverb of Solomon, “Seest thou a man diligent in his calling, he shall stand before kings, he shall not stand before mean men,” I from thence considered industry as a means of obtaining wealth and distinction, which encourag’d me, tho’ I did not think that I should ever literally stand before kings, which, however, has since happened; for I have stood before five, and even had the honor of sitting down with one, the King of Denmark, to dinner.
-
-66
-
-The Autobiography of Benjamin Franklin
-
-We have an English proverb that says, “He that would thrive, must ask his wife.” It was lucky for me that I had one as much dispos’d to industry and frugality as myself. She assisted me cheerfully in my business, folding and stitching pamphlets, tending shop, purchasing old linen rags for the papermakers, etc., etc. We kept no idle servants, our table was plain and simple, our furniture of the cheapest. For instance, my breakfast was a long time bread and milk (no tea), and I ate it out of a twopenny earthen porringer, with a pewter spoon. But mark how luxury will enter families, and make a progress, in spite of principle: being call’d one morning to breakfast, I found it in a China bowl, with a spoon of silver! They had been bought for me without my knowledge by my wife, and had cost her the enormous sum of three-and-twenty shillings, for which she had no other excuse or apology to make, but that she thought her husband deserv’d a silver spoon and China bowl as well as any of his neighbors. This was the first appearance of plate and China in our house, which afterward, in a course of years, as our wealth increas’d, augmented gradually to several hundred pounds in value.
-
-I had been religiously educated as a Presbyterian; and tho’ some of the dogmas of that persuasion, such as the eternal decrees of God, election, reprobation, etc., appeared to me unintelligible, others doubtful, and I early absented myself from the public assemblies of the sect, Sunday be- ing my studying day, I never was without some religious principles. I never doubted, for instance, the existence of the Deity; that he made the world, and govern’d it by his Providence; that the most acceptable service of God was the doing good to man; that our souls are immortal; and that all crime will be punished, and virtue rewarded, either here or hereafter. These I esteem’d the essentials of every religion; and, being to be found in all the religions we had in our country, I respected them all, tho’ with different degrees of respect, as I found them more or less mix’d with other articles, which, without any tendency to inspire, promote, or confirm morality, serv’d principally to divide us, and make us unfriendly to one another. This respect to all, with an opinion that the worst had some good effects, induc’d me to avoid all discourse that might tend to lessen the good opinion another might have of his own religion; and as our province increas’d in people, and new places of worship were continually wanted, and generally erected by voluntary contributions, my mite for such purpose, whatever might be the sect, was never refused.
-
-Tho’ I seldom attended any public worship, I had still an opinion of its propriety, and of its utility when rightly conducted, and I regularly paid my annual subscription for the support of the only Presbyterian minister
-
-67
-
-The Autobiography of Benjamin Franklin
-
-or meeting we had in Philadelphia. He us’d to visit me sometimes as a friend, and admonish me to attend his administrations, and I was now and then prevail’d on to do so, once for five Sundays successively. Had he been in my opinion a good preacher, perhaps I might have continued, notwithstanding the occasion I had for the Sunday’s leisure in my course of study; but his discourses were chiefly either polemic arguments, or explications of the peculiar doctrines of our sect, and were all to me very dry, uninteresting, and unedifying, since not a single moral principle was inculcated or enforc’d, their aim seeming to be rather to make us Presby- terians than good citizens.
+In 1732 I first publish’d my Almanack, under the name of Richard Saunders; it was continu’d by me about twenty-five years, commonly call’d Poor Richard’s Almanac. I endeavor’d to make it both entertaining and useful, and it accordingly came to be in such demand, that I reap’d con- siderable profit from it, vending annually near ten thousand. And ob- serving that it was generally read, scarce any neighborhood in the prov- ince being without it, I consider’d it as a proper vehicle for conveying instruction among the common people, who bought scarcely any other books; I therefore filled all the little spaces that occurr’d between the re- markable days in the calendar with proverbial sentences, chiefly such as inculcated industry and frugality, as the means of procuring wealth, and
 

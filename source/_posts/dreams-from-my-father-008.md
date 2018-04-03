@@ -1,73 +1,99 @@
 title: Dreams from My Father 008
-date: 2015-01-24 15:44:26
+date: 2015-01-25 03:46:08
 tags: dreams-from-my-father
 ---
 
-Lolo was there to greet us, a few pounds heavier, a bushy mustache now hovering over his smile. He hugged my mother, hoisted me up into the air, and told us to follow a small, wiry man who was carrying our luggage straight past the long line at customs and into an awaiting car. The man smiled cheerfully as he lifted the bags into the trunk, and my mother tried to say something to him but the man just laughed and nodded his head. People swirled around us, speaking rapidly in a language I didn’t know, smelling unfamiliar. For a long time we watched Lolo talk to a group of brown- uniformed soldiers. The soldiers had guns in their holsters, but they appeared to be in a jovial mood, laughing at something that Lolo had said. When Lolo finally joined us, my mother asked if the soldiers needed to check through our bags.
+The world was violent, I was learning, unpredictable and often cruel. My grandparents knew nothing about such a world, I decided; there was no point in disturbing them with questions they couldn’t answer. Sometimes, when my mother came home from work, I would tell her the things I had seen or heard, and she would stroke my forehead, listening intently, trying her best to explain what she could. I always appreciated the attention-her voice, the touch of her hand, defined all that was secure. But her knowledge of floods and exorcisms and cockfights left much to be desired. Everything was as new to her as it was to me, and I would leave such conversations feeling that my questions had only given her unnecessary cause for concern.
 
-“Don’t worry...that’s been all taken care of,” Lolo said, climbing into the driver’s seat. “Those are friends of mine.”
+So it was to Lolo that I turned for guidance and instruction. He didn’t talk much, but he was easy to be with. With his family and friends he introduced me as his son, but he never pressed things beyond matter-of-fact advice or pretended that our relationship was more than it was. I appreciated this distance; it implied a manly trust. And his knowledge of the world seemed inexhaustible. Not just how to change a flat tire or open in chess. He knew more elusive things, ways of managing the emotions I felt, ways to explain fate’s constant mysteries.
 
-The car was borrowed, he told us, but he had bought a brand-new motorcycle-a Japanese make, but good enough for now. The new house was finished; just a few touch-ups remained to be done. I was already enrolled in a nearby school, and the relatives were anxious to meet us. As he and my mother talked, I stuck my head out the backseat window and stared at the passing landscape, brown and green uninterrupted, villages falling back into forest, the smell of diesel oil and wood smoke. Men and women stepped like cranes through the rice paddies, their faces hidden by their wide straw hats. A boy, wet and slick as an otter, sat on the back of a dumb-faced water buffalo, whipping its haunch with a stick of bamboo. The streets became more congested, small stores and markets and men pulling carts loaded with gravel and timber, then the buildings grew taller, like buildings in Hawaii-Hotel Indonesia, very modern, Lolo said, and the new shopping center, white and gleaming-but only a few were higher than the trees that now cooled the road. When we passed a row of big houses with high hedges and sentry posts, my mother said something I couldn’t entirely make out, something about the government and a man named Sukarno.
+Like how to deal with beggars. They seemed to be everywhere, a gallery of ills-men, women, children, in tattered clothing matted with dirt, some without arms, others without feet, victims of scurvy or polio or leprosy walking on their hands or rolling down the crowded sidewalks in jerry-built carts, their legs twisted behind them like contortionists’. At first, I watched my mother give over her money to anyone who stopped at our door or stretched out an arm as we passed on the streets. Later, when it became clear that the tide of pain was endless, she gave more selectively, learning
 
-“Who’s Sukarno?” I shouted from the backseat, but Lolo appeared not to hear me. Instead, he touched my arm and motioned ahead of us. “Look,” he said, pointing upward. There, standing astride the road, was a towering giant at least ten stories tall, with the body of a man and the face of an ape.
+to calibrate the levels of misery. Lolo thought her moral calculations endearing but silly, and whenever he caught me following her example with the few coins in my possession, he would raise his eyebrows and take me aside.
 
-“That’s Hanuman,” Lolo said as we circled the statue, “the monkey god.” I turned around in my seat, mesmerized by the solitary figure, so dark against the sun, poised to leap into the sky as puny traffic swirled around its feet. “He’s a great warrior,” Lolo said firmly. “Strong as a hundred men. When he fights the demons, he’s never defeated.”
+“How much money do you have?” he would ask.
 
-The house was in a still-developing area on the outskirts of town. The road ran over a narrow bridge that spanned a wide brown river; as we passed, I could see villagers bathing and washing clothes along the steep banks below. The road then turned from tarmac to gravel to dirt as it wound past small stores and whitewashed bungalows until it finally petered out into the narrow footpaths of the kampong. The house itself was modest stucco and red tile, but it was open and airy, with a big mango tree in the small courtyard in front. As we passed through the gate, Lolo announced that he had a surprise for me; but before he could explain we heard a deafening howl from high up in the tree. My mother and I jumped back with a start and saw a big, hairy creature with a small, flat head and long, menacing arms drop onto a low branch.
+I’d empty my pocket. “Thirty rupiah.”
 
-“A monkey!” I shouted.
+“How many beggars are there on the street?”
 
-“An ape,” my mother corrected.
+I tried to imagine the number that had come by the house in the last week. “You see?” he said, once it was clear I’d
 
-Lolo drew a peanut from his pocket and handed it to the animal’s grasping fingers. “His name is Tata,” he said. “I
+lost count. “Better to save your money and make sure you don’t end up on the street yourself.”
 
-brought him all the way from New Guinea for you.”
+He was the same way about servants. They were mostly young villagers newly arrived in the city, often working for
 
-I started to step forward to get a closer look, but Tata threatened to lunge, his dark-ringed eyes fierce and suspicious. I
+families not much better off than themselves, sending money to their people back in the country or saving enough to start their own businesses. If they had ambition, Lolo was willing to help them get their start, and he would generally tolerate their personal idiosyncrasies: for over a year, he employed a good-natured young man who liked to dress up as a woman on weekends-Lolo loved the man’s cooking. But he would fire the servants without compunction if they were clumsy, forgetful, or otherwise cost him money; and he would be baffled when either my mother or I tried to protect them from his judgment.
 
-decided to stay where I was.
+“Your mother has a soft heart,” Lolo would tell me one day after my mother tried to take the blame for knocking a radio off the dresser. “That’s a good thing in a woman. But you will be a man someday, and a man needs to have more sense.”
 
-“Don’t worry,” Lolo said, handing Tata another peanut. “He’s on a leash. Come-there’s more.”
+It had nothing to do with good or bad, he explained, like or dislike. It was a matter of taking life on its own terms.
 
-I looked up at my mother, and she gave me a tentative smile. In the backyard, we found what seemed like a small zoo:
+I felt a hard knock to the jaw, and looked up at Lolo’s sweating face.
 
-chickens and ducks running every which way, a big yellow dog with a baleful howl, two birds of paradise, a white cockatoo, and finally two baby crocodiles, half submerged in a fenced-off pond toward the edge of the compound. Lolo stared down at the reptiles. “There were three,” he said, “but the biggest one crawled out through a hole in the fence. Slipped into somebody’s rice field and ate one of the man’s ducks. We had to hunt it by torchlight.”
+“Pay attention. Keep your hands up.”
 
-There wasn’t much light left, but we took a short walk down the mud path into the village. Groups of giggling neighborhood children waved from their compounds, and a few barefoot old men came up to shake our hands. We stopped at the common, where one of Lolo’s men was grazing a few goats, and a small boy came up beside me holding a dragonfly that hovered at the end of a string. When we returned to the house, the man who had carried our luggage was standing in the backyard with a rust-colored hen tucked under his arm and a long knife in his right hand. He said something to Lolo, who nodded and called over to my mother and me. My mother told me to wait where I was and sent Lolo a questioning glance.
+We sparred for another half hour before Lolo decided it was time for a rest. My arms burned; my head flashed with a
 
-“Don’t you think he’s a little young?”
+dull, steady throb. We took a jug full of water and sat down near the crocodile pond.
 
-Lolo shrugged and looked down at me. “The boy should know where his dinner is coming from. What do you think, Barry?” I looked at my mother, then turned back to face the man holding the chicken. Lolo nodded again, and I watched the man set the bird down, pinning it gently under one knee and pulling its neck out across a narrow gutter.
+“Tired?” he asked me.
 
-For a moment the bird struggled, beating its wings hard against the ground, a few feathers dancing up with the wind. Then it grew completely still. The man pulled the blade across the bird’s neck in a single smooth motion. Blood shot out in a long, crimson ribbon. The man stood up, holding the bird far away from his body, and suddenly tossed it high into the air. It landed with a thud, then struggled to its feet, its head lolling grotesquely against its side, its legs pumping wildly in a wide, wobbly circle. I watched as the circle grew smaller, the blood trickling down to a gurgle, until finally the bird collapsed, lifeless on the grass.
+I slumped forward, barely nodding. He smiled, and rolled up one of his pant legs to scratch his calf. I noticed a series
 
-Lolo rubbed his hand across my head and told me and my mother to go wash up before dinner. The three of us ate quietly under a dim yellow bulb-chicken stew and rice, and then a dessert of red, hairy-skinned fruit so sweet at the center that only a stomachache could make me stop. Later, lying alone beneath a mosquito net canopy, I listened to the crickets chirp under the moonlight and remembered the last twitch of life that I’d witnessed a few hours before. I could barely believe my good fortune.
+of indented scars that ran from his ankle halfway up his shin.
 
-“The first thing to remember is how to protect yourself.”
+“What are those?”
 
-Lolo and I faced off in the backyard. A day earlier, I had shown up at the house with an egg-sized lump on the side of my head. Lolo had looked up from washing his motorcycle and asked me what had happened, and I told him about my tussle with an older boy who lived down the road. The boy had run off with my friend’s soccer ball, I said, in the middle of our game. When I chased after him, the boy picked up a rock. It wasn’t fair, I said, my voice choking with aggrievement. He had cheated.
+“Leech marks,” he said. “From when I was in New Guinea. They crawl inside your army boots while you’re hiking
 
-Lolo had parted my hair with his fingers and silently examined the wound. “It’s not bleeding,” he said finally, before returning to his chrome.
+through the swamps. At night, when you take off your socks, they’re stuck there, fat with blood. You sprinkle salt on them and they die, but you still have to dig them out with a hot knife.”
 
-I thought that had ended the matter. But when he came home from work the next day, he had with him two pairs of boxing gloves. They smelled of new leather, the larger pair black, the smaller pair red, the laces tied together and thrown over his shoulder.
+I ran my finger over one of the oval grooves. It was smooth and hairless where the skin had been singed. I asked Lolo if it had hurt.
 
-He now finished tying the laces on my gloves and stepped back to examine his handiwork. My hands dangled at my sides like bulbs at the ends of thin stalks. He shook his head and raised the gloves to cover my face.
+“Of course it hurt,” he said, taking a sip from the jug. “Sometimes you can’t worry about hurt. Sometimes you worry only about getting where you have to go.”
 
-“There. Keep your hands up.” He adjusted my elbows, then crouched into a stance and started to bob. “You want to keep moving, but always stay low-don’t give them a target. How does that feel?” I nodded, copying his movements as best I could. After a few minutes, he stopped and held his palm up in front of my nose.
+We fell silent, and I watched him out of the corner of my eye. I realized that I had never heard him talk about what he was feeling. I had never seen him really angry or sad. He seemed to inhabit a world of hard surfaces and well-defined thoughts. A queer notion suddenly sprang into my head.
 
-“Okay,” he said. “Let’s see your swing.”
+“Have you ever seen a man killed?” I asked him.
 
-This I could do. I took a step back, wound up, and delivered my best shot. His hand barely wobbled.
+He glanced down, surprised by the question. “Have you?” I asked again.
 
-“Not bad,” Lolo said. He nodded to himself, his expression unchanged. “Not bad at all. Agh, but look where your
+“Yes,” he said.
 
-hands are now. What did I tell you? Get them up....”
+“Was it bloody?”
 
-I raised my arms, throwing soft jabs at Lolo’s palm, glancing up at him every so often and realizing how familiar his
+“Y es.”
 
-face had become after our two years together, as familiar as the earth on which we stood. It had taken me less than six months to learn Indonesia’s language, its customs, and its legends. I had survived chicken pox, measles, and the sting of my teachers’ bamboo switches. The children of farmers, servants, and low-level bureaucrats had become my best friends, and together we ran the streets morning and night, hustling odd jobs, catching crickets, battling swift kites with
+I thought for a moment. “Why was the man killed? The one you saw?”
 
-razor-sharp lines-the loser watched his kite soar off with the wind, and knew that somewhere other children had formed a long wobbly train, their heads toward the sky, waiting for their prize to land. With Lolo, I learned how to eat small green chill peppers raw with dinner (plenty of rice), and, away from the dinner table, I was introduced to dog meat (tough), snake meat (tougher), and roasted grasshopper (crunchy). Like many Indonesians, Lolo followed a brand of Islam that could make room for the remnants of more ancient animist and Hindu faiths. He explained that a man took on the powers of whatever he ate: One day soon, he promised, he would bring home a piece of tiger meat for us to share.
+“Because he was weak.”
 
-That’s how things were, one long adventure, the bounty of a young boy’s life. In letters to my grandparents, I would faithfully record many of these events, confident that more civilizing packages of chocolate and peanut butter would surely follow. But not everything made its way into my letters; some things I found too difficult to explain. I didn’t tell Toot and Gramps about the face of the man who had come to our door one day with a gaping hole where his nose should have been: the whistling sound he made as he asked my mother for food. Nor did I mention the time that one of my friends told me in the middle of recess that his baby brother had died the night before of an evil spirit brought in by the wind-the terror that danced in my friend’s eyes for the briefest of moments before he let out a strange laugh and punched my arm and broke off into a breathless run. There was the empty look on the faces of farmers the year the rains never came, the stoop in their shoulders as they wandered barefoot through their barren, cracked fields, bending over every so often to crumble earth between their fingers; and their desperation the following year when the rains lasted for over a month, swelling the river and fields until the streets gushed with water and swept as high as my waist and families scrambled to rescue their goats and their hens even as chunks of their huts washed away.
+“That’s all?”
+
+Lolo shrugged and rolled his pant leg back down. “That’s usually enough. Men take advantage of weakness in other
+
+men. They’re just like countries in that way. The strong man takes the weak man’s land. He makes the weak man work in his fields. If the weak man’s woman is pretty, the strong man will take her.” He paused to take another sip of water, then asked, “Which would you rather be?”
+
+I didn’t answer, and Lolo squinted up at the sky. “Better to be strong,” he said finally, rising to his feet. “If you can’t be strong, be clever and make peace with someone who’s strong. But always better to be strong yourself. Always.”
+
+My mother watched us from inside the house, propped up at her desk grading papers. What are they talking about? she wondered to herself. Blood and guts, probably; swallowing nails. Cheerful, manly things.
+
+She laughed aloud, then caught herself. That wasn’t fair. She really was grateful for Lolo’s solicitude toward me. He wouldn’t have treated his own son very differently. She knew that she was lucky for Lolo’s basic kindness. She set her papers aside and watched me do push-ups. He’s growing so fast, she thought. She tried to picture herself on the day of our arrival, a mother of twenty-four with a child in tow, married to a man whose history, whose country, she barely knew. She had known so little then, she realized now, her innocence carried right along with her American passport. Things could have turned out worse. Much worse.
+
+She had expected it to be difficult, this new life of hers. Before leaving Hawaii, she had tried to learn all she could about Indonesia: the population, fifth in the world, with hundreds of tribes and dialects; the history of colonialism, first the Dutch for over three centuries, then the Japanese during the war, seeking control over vast stores of oil, metal, and timber; the fight for independence after the war and the emergence of a freedom fighter named Sukarno as the country’s first president. Sukarno had recently been replaced, but all the reports said it had been a bloodless coup, and that the people supported the change. Sukarno had grown corrupt, they said; he was a demagogue, totalitarian, too comfortable with the Communists.
+
+A poor country, underdeveloped, utterly foreign-this much she had known. She was prepared for the dysentery and fevers, the cold water baths and having to squat over a hole in the ground to pee, the electricity’s going out every few weeks, the heat and endless mosquitoes. Nothing more than inconveniences, really, and she was tougher than she looked, tougher than even she had known herself to be. And anyway, that was part of what had drawn her to Lolo after Barack had left, the promise of something new and important, helping her husband rebuild a country in a charged and challenging place beyond her parents’ reach.
+
+But she wasn’t prepared for the loneliness. It was constant, like a shortness of breath. There was nothing definite that she could point to, really. Lolo had welcomed her warmly and gone out of his way to make her feel at home, providing her with whatever creature comforts he could afford. His family had treated her with tact and generosity, and treated her son as one of their own.
+
+Still, something had happened between her and Lolo in the year that they had been apart. In Hawaii he had been so full of life, so eager with his plans. At night when they were alone, he would tell her about growing up as a boy during the war, watching his father and eldest brother leave to join the revolutionary army, hearing the news that both had been killed and everything lost, the Dutch army’s setting their house aflame, their flight into the countryside, his mother’s selling her gold jewelry a piece at a time in exchange for food. Things would be changing now that the Dutch had been driven out, Lolo had told her; he would return and teach at the university, be a part of that change.
+
+He didn’t talk that way anymore. In fact, it seemed as though he barely spoke to her at all, only out of necessity or when spoken to, and even then only of the task at hand, repairing a leak or planning a trip to visit some distant cousin. It was as if he had pulled into some dark hidden place, out of reach, taking with him the brightest part of himself. On some nights, she would hear him up after everyone else had gone to bed, wandering through the house with a bottle of imported whiskey, nursing his secrets. Other nights he would tuck a pistol under his pillow before falling off to sleep. Whenever she asked him what was wrong, he would gently rebuff her, saying he was just tired. It was as if he had come to mistrust words somehow. Words, and the sentiments words carried.
+
+She suspected these problems had something to do with Lolo’s job. He was working for the army as a geologist, surveying roads and tunnels, when she arrived. It was mind-numbing work that didn’t pay very much; the refrigerator alone cost two months’ salary. And now with a wife and child to provide for...no wonder he was depressed. She hadn’t traveled all this way to be a burden, she decided. She would carry her own weight.
+
+She found herself a job right away teaching English to Indonesian businessmen at the American embassy, part of the U.S. foreign aid package to developing countries. The money helped but didn’t relieve her loneliness. The Indonesian businessmen weren’t much interested in the niceties of the English language, and several made passes at her. The Americans were mostly older men, careerists in the State Department, the occasional economist or journalist who would mysteriously disappear for months at a time, their affiliation or function in the embassy never quite clear. Some of them were caricatures of the ugly American, prone to making jokes about Indonesians until they found out that she was married to one, and then they would try to play it off-Don’t take Jim too seriously, the heat’s gotten to him, how’s your son by the way, fine, fine boy.
+
+These men knew the country, though, or parts of it anyway, the closets where the skeletons were buried. Over lunch or casual conversation they would share with her things she couldn’t learn in the published news reports. They explained how Sukarno had frayed badly the nerves of a U.S. government already obsessed with the march of communism through Indochina, what with his nationalist rhetoric and his politics of nonalignment-he was as bad as Lumumba or Nasser, only worse, given Indonesia’s strategic importance. Word was that the CIA had played a part in the coup, although nobody knew for sure. More certain was the fact that after the coup the military had swept the countryside for supposed Communist sympathizers. The death toll was anybody’s guess: a few hundred thousand, maybe; half a million. Even the smart guys at the Agency had lost count.
 

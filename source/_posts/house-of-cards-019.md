@@ -1,113 +1,95 @@
 title: House of Cards 019
-date: 2015-01-24 15:44:15
+date: 2015-01-25 03:45:58
 tags: house-of-cards
 ---
 
-Somewhat donnishly Spence explained the foibles of opinion polling, the margin of error you should always remember, the rogue polls which in spite of all the pollsters' efforts still sneaked through and simply got it wrong. like the one I've just seen’ Mattie remarked with a twinge, still tender from her earlier embarrassment,
+'But that's all bloody Horlicks, Frankie, and you know it. I put my whole newspaper chain behind your lot at the last election and I've moved my entire worldwide headquarters to London. I've invested millions in the country. And if you lot don't pull your fingers out, the whole bloody performance is going down the drain at the next election. Those buggers in the Opposition will crucify me if they get in because I've been so good to you, but you lot
 
-'What do you mean?' Spence enquired sharply.
+￼seem to be falling over yourselves to open the damned door for them.'
 
-Mattie looked at him and saw that the affable official had now developed a flush which even as she looked was spreading from the collar up to the
+He paused to produce a large silk handkerchief from within the folds of his trousers and wipe his brow, while Urquhart goaded him on. 'Surely it's not as bad as that, Ben. All Governments go through sticky patches. We've been through this all before - we'll pull out of it!'
 
-￼eyes. The eyes themselves had lost their eagerness. Spence was not a trained politician and was not adept at hiding his feelings, and the confusion was flowing through. Why was he so flustered? Mattie mentally kicked herself. Surely the damned figures couldn't be right after all? The dynamic young reporter of the year had already jumped several somersaults that morning, and feeling rather sour with herself decided that one more leap could scarcely dent her professional pride any further.
+'Horlicks, Horlicks, bloody Horlicks. That's complacent crap, and you know it, Frankie. Haven't you seen your own latest poll? They phoned it through to me earlier this afternoon. You're down another 3 per cent, that's 10 per cent since the election. If you held it today, you'd get thrashed. Bloody annihilated!'
 
-‘I understand, Kevin, that your latest figures are quite disappointing. In fact, somebody mentioned a figure of 31 per cent.'
+Urquhart relished the thought of the Telegraph headline tomorrow, but could not afford to show it. 'Damn. How on earth did you get hold of that? That will really hurt us at the by-election tomorrow.'
 
-Spence, whose cheeks had been getting even redder as Mattie spoke, reached for his tea to give himself time to think, but his hand was trembling.
+'Don't worry. I've told Preston to pull it. It'll leak, of course, and we'll probably get some flak in Private Eye about a politically inspired cover-up, but it'll be after the by-election and it will save your conference being turned into a bear pit' He sighed deeply. It's more than you bloody deserve,' he said more quietly, and Urquhart knew he meant it.
 
-'And the PM personally is down to 24 per cent’ she ventured. ‘I can't remember any Prime Minister being as unpopular as that.'
+‘I know the PM will be grateful, Ben,' said Urquhart, feeling sick with disappointment.
 
-At this point the tea began to spill from the cup, and Spence returned it quickly to the saucer.
+'Course he will, but the gratitude of the most unpopular Prime Minister since polls began isn't something you can put in the bank.' 'What do you mean?'
 
-‘I don't know what you're talking about’ he muttered, addressing the napkin which he was using to mop up the tea.
+‘Political popularity is cash. While you lot are in, I should be able to get on with my business and do what I do best -make money. That's why I've supported you. But as soon as your popularity begins to fade, the whole thing begins to clam up. The Stock Market sinks. People don't want to invest. Unions get bolshy. I can't look ahead. And it's been happening ever since June. The PM couldn't organise a farting contest in a baked bean factory. His unpopularity is dragging the whole Party down, and my business with it. Unless you do something about it, we're all going to disappear down a bloody great hole.' Do you really feel like that?'
 
-'Aren't these your latest figures?' Mattie reached once more inside her bag and pulled out the mysterious sheet of paper which she proceeded to smooth on the table cloth. As she did so, she noticed for the first time .the initials KJS typed along the bottom.
+Landless paused, just to let Urquhart know it wasn't the champagne speaking. 'Passionately,' he growled. Then it looks as if we have a problem.' 'You do so long as he goes on like he is.' 'But if he won't change...' Then get rid of him!'
 
-Spence reached out and tried to push the paper away from him, seemingly afraid to get too near to it 'Where on earth did you get that?' He looked around desperately to see whether anyone had noticed the exchange.
+Urquhart raised his eyebrows sharply, but Landless was not to be deflected, life's too short to spend it propping up losers. I haven't spent the last twenty years working my guts out just to watch your boss piss it all away.'
 
-Mattie picked up the piece of paper and began reading it out loud.' "Opinion Research Survey Number 40" - this is yours, isn't it?' Yes, but... Please, Miss Storin!'
+Urquhart found his arm gripped painfully by his guest's huge fingers. There was real strength behind the enormous girth, and Urquhart began to realise how Landless always seemed to get his way. Those he could not dominate with his wealth or commercial muscle he would trap with his physical strength and sharp tongue. Urquhart had always hated being called Frankie, and this was the only man in the world who insisted on using it. But tonight of all nights he did not think he would object. This was one argument he was going to enjoy losing.
 
-He was not used to dissembling. Spence was clearly deeply upset, and seeing no way of escape decided to throw himself on the mercy of his breakfast companion. In a hushed voice, and still looking nervously around the room, he pleaded with her.
+'Let me give you one example, in confidence. OK, Frankie?' He pinned Urquhart still tighter in the comer. 'Very shortly I expect that United Newspapers will be up for sale. If it is, I want to buy it. In fact, I've already had some serious discussions with them. But the lawyers are telling me that I already own one newspaper group and that the Government isn't going to allow me to buy another. I said to them, you are telling me that I can't become the biggest newspaper owner in the country, even if I commit all of the titles to supporting the Government!'
 
-I'm not supposed to talk to you about any opinion research. It's strictly confidential.'
+Perspiration was slipping freely from his face, but he ignored it. You know what they said, Frankie? It's precisely because ‘I do support the Government that I'm in trouble. If I moved to take over United Newspapers the Opposition would kick up the most godawful stink. No one would have the guts to stand up and defend me. The takeover would be referred to the Monopolies and Mergers Commission where it would get bogged down for months with a herd of expensive lawyers stuck in a bloody committee room, with me having to listen to a bunch of closet queen bureaucrats lecturing me on how to run my own business. And whatever arguments I use, in the end the Government will bow to pressure and refuse to allow the deal to go through, because they haven't got the stomach for a public fight.'
 
-‘But Kevin, it's only one piece of paper.'
+He blew cigar smoke in Urquhart's face.
 
-You don't know what it's like. If these figures get out, and I'm the one thought to have given them to you, I'd be out on my ear. Everyone's looking for scapegoats. There are so many rumours flooding around. The PM doesn't trust the Chairman. The Chairman doesn't trust us. Everybody says that heads are going to roll. I like my job, Miss Storin. I can't afford to be blamed for leaking confidential figures to you.'
+In other words, Mr Chief Whip, because your Government doesn't have the balls, my company is going to go through the wringer. Because you're buggering up your own business, you're going to bugger up mine as well!'
 
-‘I didn't realise morale was so bad.'
+The point had been forcefully made and the pressure applied. It was not a subtle way to lobby a Minister, but he had always found the direct approach to be far more effective than complicated minuets. Politicians could be bullied like any other men. He paused to refresh himself from his glass, waiting for a reply.
 
-Spence looked utterly miserable. I've never known it worse. Everyone was exhausted after the election, and there was a lot of bad feeling flying around because the result wasn't as good as we expected. Then all those leaks and reports that the Cabinet were at each other's throats, so instead of a long break during the summer Lord Williams kept us all hard at it. Frankly, all most of us are trying to do is to keep our heads down so that when it hits the fan we get as little of it as possible.'
+Urquhart framed his response slowly, to emphasise that he too, like Landless, was speaking in earnest.
 
-He looked at Mattie eye-to-eye for the first time. 'Please don't drag me into this.'
+'That would be a tremendous pity, Ben. You have been a great friend of the Party, and it would be a great shame if we were unable to repay that friendship. I cannot speak for the Prime Minister. In fact, I find myself increasingly unable to speak for him nowadays. But from my point of view, I would do everything I could to support you when you needed it.'
 
-'Kevin, you did not leak this report to me and I shall confirm that to anyone who wants to know. But if I'm to help you I shall need a little help myself. This is your latest polling report, right?'
+'That's good to know, Frankie. I appreciate it, very much. If only Henry could be so decisive, but I know that's simply not his nature. If it were up to me, he'd be out.'
 
-She slipped the paper back across the table. Spence took another anguished look at it and nodded in confirmation.
+'But isn't it up to you?'
 
-They are prepared, by you and circulated on a tightly restricted basis?’ Another nod.
+￼'Me?'
 
-'All I need to know from you, Kevin, is who gets them. That can't be a state secret, can it?'
+'You have your newspapers. They are tremendously influential, and you control them. One headline can make news and break politicians. You were saying that the polls show the public's dislike for the PM is undermining the whole Party. It's personal, not political.'
 
-There was no more fight left in Spence. He seemed to hold his breath for a long time before replying.
+Landless nodded his assent.
 
-'Numbered copies are circulated in double-sealed envelopes solely to Cabinet Ministers and five senior headquarters personnel: the Deputy Chairman and four senior directors.'
+‘Let you say you are not going to publish because it will turn the conference into a bear fight. Do you really think you are going to be able to sort this out without one hell of a fight?'
 
-He tried to moisten his mouth with another drink of tea, but discovered he had already spilt most of it. How on earth did you get hold of it?'
+The bullying Landless of a few moments ago had disappeared, to be replaced by a subtle man who understood every nuance of what was being suggested to him.
 
-‘Let's just say someone got a little careless, shall we?'
+‘I think I see your point, Frankie. And I think we understand each other.' ‘I think we do.'
 
-'Not my office?' he gasped, his insecurity flooding out.
+They shook hands. Urquhart almost winced as his hand disappeared inside the vice-like grip of Landless. He knew the other's handshake was distinctly ambiguous - an expression of friendship, by all means, but also a promise to crush anyone who reneged on a deal.
 
-'No, Kevin. You've just given me the names of over two dozen people who receive the figures, and with their secretaries it would bring the possible number of sources to well over fifty.' She gave him one of her most reassuring, warm smiles. Don't worry, I won't involve you. But let's keep in touch.'
+'Then I have some work to do, Frankie. The Telegraph first edition is closing in less than thirty minutes and I shall have to make a telephone call.' He grabbed his jacket and draped it over his arm.
 
-Mattie left the breakfast room. She should have been feeling elated about the front page story she was now able to write but she was wondering too hard how the devil she was ever going to identify the turncoat.
+'Thanks for the party. It's been most stimulating.'
 
-￼Room 561 in the hotel could not be described as five star. It was one of the smallest rooms, far away from the main entrance and at the end of the top floor corridor under the eaves. The party hierarchy did not stay here, it was definitely a room for the workers.
+Urquhart watched silently as the industrialist, damp shirt sticking closely to his broad back, shuffled across the crowded room and disappeared through the door.
 
-Penny Guy hadn't heard the steps outside in the corridor before the door burst open. She sat bolt upright in bed, startled and exposing two perfectly formed breasts.
+Across the other side of the room beyond the dignitaries, journalists and hangers-on who were squashed together, Roger O'Neill was huddled on a small sofa with a young and attractive conference-goer. O'Neill was in an excited and very nervous state. He fidgeted incessantly and his words rattled out at an alarming pace. The young girl from Rotherham had already been overwhelmed with the names O'Neill had skilfully dropped and the passion of his words, and she looked on with wide-eyed astonishment, an innocent bystander in a one-way conversation.
 
-'Shit, Roger, don't you ever bloody knock?' She threw a pillow at the intruder. 'And what the hell are you doing up so early? You don't normally surface until lunchtime.'
+The Prime Minister's under constant surveillance by our security men. There's always a threat. Irish. Arabs. Black Militants. One of them's trying to get me, too. They've been trying for months, and the Special Branch boys insisted on giving me protection throughout the election. Apparently, they'd found a hit list; if the PM were too well protected they might turn to targets close to the PM like me. So they gave me twenty-four-hour cover. It's not public knowledge, of course, but all the journos know.'
 
-She did not bother to cover herself as O'Neill sat down at the end of the bed. There was an ease between them suggesting an absence of any sexual threat which would have startled most people. O'Neill constantly flirted with her, particularly in public, but on the two occasions when Penny had offered, O'Neill had been very affectionate and warm but had complained of being too exhausted. She guessed he had a deep streak of sexual insecurity running through him, which he hid beneath flattery and innuendo. Penny had heard from other women who had spent time with O'Neill that he was frequently too exhausted - attentive, Very forward, suggestive, but rarely able to commit himself fully. She was very fond of him, and longed to ease the insecurities out of him with her long, electric fingers, but she knew he would not drop his guard long enough to let her weave her magic. She had worked for O'Neill for nearly three years and had seen him slowly change as he found the pressures of political and public life increasingly infatuating, yet steadily more difficult to cope with.
+He dragged furiously at a cigarette and started coughing. He took out a soiled handkerchief and blew his nose loudly, inspecting it before returning it to his pocket.
 
-To those who did not know him well he was extrovert, amusing, full of charm, ideas and energy. But Penny had watched him become increasingly erratic. He rarely came into the office nowadays before noon,’ he had started making many private phone calls, getting agitated, disappearing suddenly. His constant hay fever and sneezing were unpleasant, but Penny was devoted to him. She did not understand many of the odd ways he had developed -particularly why he would not sleep with her. She had that strange blindness for him which comes with daily familiarity and strong affections. But she knew he depended on her. If he didn't need her in bed, he needed her practically every other moment of his day. It wasn't the same as love, but her warm heart responded anyway. She would do
+'But why you, Roger?' his companion ventured.
 
-almost anything for him.
+'Soft target. Easy access. High publicity hit,' he rattled. If they can't get the PM, they'll go for someone like me.' He looked around nervously, his eyes fluttering wildly.
 
-‘You got up this early just to come and woo me, didn't you? You can't resist me after all,' she teased.
+'Can you keep a confidence? A real secret?' He took another deep drag. They think I've been followed all week. And this morning I found my car had been tampered with, so the Bomb Squad boys went over it with a fine tooth comb. They found the wheel nuts on one of the front wheels had been all but removed. Straight home on the motorway, the wheel comes off at eighty miles an hour and - more work for the road sweepers! They think it was deliberate. The Murder Squad are on their way over to interview me right now.'
 
-'Shut up, you little tart, and cover up those gorgeous tits. That's not fair.'
+'Roger, that's awful’ she gasped.
 
-Smiling wickedly, she lifted her breasts up towards him, goading him. 'Can't resist them after all. Well, who am I to refuse an order from the boss?'
+'Mustn't tell anyone. The SB don't want to frighten them off if there's a chance of catching them unawares.'
 
-Playfully she threw the bedclothes off her naked body and moved over on the mattress to make room for him. O'Neill's eyes couldn't help but follow the line of her long legs, and for the first time since Penny had known him he began to blush. She giggled as she noticed him staring hypnotically at her body, and he made a grab for the bedclothes to try and cover her up but instead succeeded only in losing his balance and getting tangled up in her long brown arms. As he lifted his head off the mattress, he found a rigid dark nipple staring at him from less than three inches away, and he had to use all of his strength to tear himself free. He retreated to the other side of the small room, visibly shaking.
+‘I hadn't realised you were so close to the Prime Minister’ she said with growing awe. 'What a terrible time for...' She suddenly gasped. 'Are you all right, Roger? You are looking very upset. Your, your eyes...' she stammered.
 
-‘Pen, please! You know I'm not at my best this early in the morning.'
+O'Neill's eyes were flickering wildly, flashing still further lurid hallucinations into his brain. His attention seemed to have strayed elsewhere; he was no longer with her but in some other world, with some other conversation. His eyes wavered back to her, but they were gone again in an instant. They were bloodshot and watering, and were having difficulty in finding something on which to focus. His nose was dribbling like an old man in winter, and he gave it a cursory and unsuccessful wipe with the back of his hand.
 
-'OK, Roger. Don't worry. I'm not going to rape you.' She was laughing playfully as she pulled the sheets loosely around her. ‘But what are you doing up so early?'
+As she watched, his face turned to an ashen grey, his body twitched and he stood up sharply. He appeared terrified, as if the walls were falling in on him. She looked round helplessly, unsure what he needed, too embarrassed to make a public scene. She moved to take his arm and support him, but as she did so he turned on her and lost his balance. He grabbed at her to steady himself, caught her blouse and a button popped.
 
-I've just left this incredibly beautiful Brazilian gymnast who has spent all night teaching me a whole series of new exercises. We didn't have any gymnastic rings, so we used the chandelier. OK?'
+'Get out of my way, get out of my way’ he snarled.
 
-She shook her head firmly.
+He thrust her violently backwards, and she fell heavily into a table laden with glasses before sprawling back onto the sofa. The crash of glass onto the floor stopped all conversation in the room as everyone looked round. Three more buttons had gone, and her left breast stood exposed amidst the torn silk.
 
-'How could one so young and beautiful be so cynical?' he protested. 'All right. I had to make a delivery in the vicinity and I thought I'd come and say good morning.'
-
-He didn't bother to add that Mattie Storin had nearly caught him as he was placing the document amongst the newspapers, and he welcomed the chance to lie low in his secretary's room for a while. He was still elated at the trouble which the leaked poll would cause the Party Chairman, who had been openly hostile to him in the last few weeks. Through his paranoia, worked on by Urquhart, he had failed to notice that the hard-pressed Williams had been short with most of his colleagues as well.
-
-Penny tried to bring him back down to earth. 'Yeah, but next time you come to say good morning, try knocking first. And make it after 8.30’ 'Don't give me a hard time. You know I can't live without you.'
-
-'Enough passion, Roger. What do you want? You have to want something, don't you, even if not my body?'
-
-'Actually, I did come to ask you something. It's a bit delicate really...'
-
-'Go ahead, Roger. You can be frank. You've already seen there's no one else in the bed!' She started laughing again.
-
-O'Neill began to recover his salesman's charms, and started upon the story which Urquhart had drummed into him me previous evening.
-
-'Pen, you remember Patrick Woolton, the Foreign Secretary. You typed a couple of his speeches during the election, and he certainly remembers you. He asked after you when I saw him last night and I think he's rather smitten with you. Anyway, he wondered if you would be interested in dinner with him but he didn't want to upset or offend you by asking direct, so I sort of offered to have a quiet word as it might be easier for you to say no to me rather than to him personally, you see’
-
-￼'OK, Roger’ 'OK what, Pen?'
-
-'OK. I'll have dinner with him. What's the big deal?' 'Nothing. Except... Woolton's got a bit of a reputation with the ladies. He might just want more than - dinner.' Hoger, every man I've ever been out with since the age of fourteen has always wanted more than dinner. I can handle it. Might be interesting. He could improve my French!' She burst into fits of giggles once again, and threw her last pillow at him. O'Neill retreated through the door as Penny was looking around for something else to throw.
+￼There was absolute silence as O'Neill stumbled towards the door, pushing still more people out of the way as he tumbled into the night. The young girl clutched at her tattered clothing and was fighting back the tears of humiliation as he disappeared. An elderly guest was helping her rearrange herself and shepherding her towards the bathroom and, as the bathroom door shut behind the two women, a ripple of speculation began which quickly grew into a broad sea of gossip, washing backwards and forwards over the gathering. It would go on all evening. - Penny Guy did not join in the gossip. A moment before she had been laughing merrily, thoroughly enjoying the engaging wit and Merseyside charm of Patrick Woolton. Urquhart had introduced them more than an hour earlier, and had ensured that the champagne flowed as easily as their conversation. But the magic had been smashed with the uproar. As Penny had taken in O'Neill's stumbling departure, the sobbing girl's dishevelled clothing and the ensuing speculation and chatter, her face had dissolved into a picture of misery. She fought a losing battle to control the tears which had welled up and spilled down her cheeks and, although Woolton provided a large handkerchief and considerable support, the pain in Penny's face was all too real.
 

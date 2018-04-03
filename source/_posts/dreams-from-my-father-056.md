@@ -1,95 +1,99 @@
 title: Dreams from My Father 056
-date: 2015-01-24 15:43:39
+date: 2015-01-25 03:45:21
 tags: dreams-from-my-father
 ---
 
-But of course that wasn’t possible. We finished our sodas. Money changed hands. We left the marketplace. The moment slipped away.
+I studied the pictures for some time, until I noticed one last picture on the wall. It was a vintage print, the kind that grace old Coca-Cola ads, of a white woman with thick dark hair and slightly dreamy eyes. I asked what the print was doing there, and Auma turned to Granny, who answered in Luo.
 
-We turned onto Kimathi Street, named after one of the leaders of the Mau-Mau rebellion. I had read a book about Kimathi before leaving Chicago and remembered a photograph of him: one in a group of dreadlocked men who lived in the forest and spread secret oaths among the native population-the prototype guerrilla fighter. It was a clever costume he had chosen for himself (Kimathi and the other Mau-Mau leaders had served in British regiments in their previous lives), an image that played on all the fears of the colonial West, the same sort of fear that Nat Turner had once evoked in the antebellum South and coke-crazed muggers now evoked in the minds of whites in Chicago.
+“She says that that is a picture of one of our grandfather’s wives. He told people that he had married her in Burma when he was in the war.”
 
-Of course, the Mau-Mau lay in Kenya’s past. Kimathi had been captured and executed. Kenyatta had been released from prison and inaugurated Kenya’s first president. He had immediately assured whites who were busy packing their bags that businesses would not be nationalized, that landholdings would be kept intact, so long as the black man controlled the apparatus of government. Kenya became the West’s most stalwart pupil in Africa, a model of stability, a useful contrast to the chaos of Uganda, the failed socialism of Tanzania. Former freedom fighters returned to their villages or joined the civil service or ran for a seat in Parliament. Kimathi became a name on a street sign, thoroughly tamed for the tourists.
+Roy laughed. “She doesn’t look very Burmese, eh, Barack?”
 
-I took the opportunity to study these tourists as Auma and I sat down for lunch in the outdoor caf&#233; of the New Stanley Hotel. They were everywhere-Germans, Japanese, British, Americans-taking pictures, hailing taxis, fending off street peddlers, many of them dressed in safari suits like extras on a movie set. In Hawaii, when we were still kids, my friends and I had laughed at tourists like these, with their sunburns and their pale, skinny legs, basking in the glow of our obvious superiority. Here in Africa, though, the tourists didn’t seem so funny. I felt them as an encroachment, somehow; I found their innocence vaguely insulting. It occurred to me that in their utter lack of self-consciousness, they were expressing a freedom that neither Auma nor I could ever experience, a bedrock confidence in their own parochialism, a confidence reserved for those born into imperial cultures.
+I shook my head. She looked like my mother.
 
-Just then I noticed an American family sit down a few tables away from us. Two of the African waiters immediately sprang into action, both of them smiling from one ear to the other. Since Auma and I hadn’t yet been served, I began to
+We sat down in the living room and Granny made us some tea. She explained that things were well, although she had
 
-wave at the two waiters who remained standing by the kitchen, thinking they must have somehow failed to see us. For some time they managed to avoid my glance, but eventually an older man with sleepy eyes relented and brought us over two menus. His manner was resentful, though, and after several more minutes he showed no signs of ever coming back. Auma’s face began to pinch with anger, and again I waved to our waiter, who continued in his silence as he wrote down our orders. At this point, the Americans had already received their food and we still had no place settings. I overheard a young girl with a blond ponytail complain that there wasn’t any ketchup. Auma stood up.
+given away some of the land to relatives, since she and Yusuf could not work it all by themselves. She made up the lost income by selling lunches to the children at the nearby school and bringing goods from Kisumu to the local market whenever she had some spare cash. Her only real problems were with the roof of the house-she pointed to a few threads of sunlight that ran from the ceiling to the floor-and the fact that she hadn’t heard anything from her son Omar in over a year. She asked if I had seen him, and I had to say no. She grunted something in Luo, then started to gather up our cups.
 
-“Let’s go.”
+“She says when you see him, you should tell him she wants nothing from him,” Auma whispered. “Only that he should come visit his mother.”
 
-She started heading for the exit, then suddenly turned and walked back to the waiter, who was watching us with an impassive stare.
+I looked at Granny, and for the first time since our arrival, her age showed on her face.
 
-“You should be ashamed of yourself,” Auma said to him, her voice shaking. “You should be ashamed.”
+After we unpacked our bags, Roy gestured for me to follow him out into the backyard. At the edge of a neighboring cornfield, at the foot of a mango tree, I saw two long rectangles of cement jutting out of the earth like a pair of
 
-The waiter replied brusquely in Swahili.
+exhumed coffins. There was a plaque on one of the graves: HUSSEIN ONYANGO OBAMA, B. 1895. D. 1979. The other was covered with yellow bathroom tiles, with a bare space on the headstone where the plaque should have been. Roy bent down and brushed away a train of ants that marched along the length of the grave.
 
-“I don’t care how many mouths you have to feed, you cannot treat your own people like dogs. Here...” Auma snapped
+“Six years,” Roy said. “Six years, and there’s still nothing to say who is buried here. I tell you now, Barack-when I die, you make sure that my name is on the grave.” He shook his head slowly before heading back toward the house.
 
-open her purse and took out a crumpled hundred-shilling note. “You see!” she shouted. “I can pay for my own damn food.”
+How to explain the emotions of that day? I can summon each moment in my mind almost frame by frame. I remember Auma and myself joining Granny at the afternoon market, the same clearing where the matatu had first dropped us off, only now full of women who sat on straw mats, their smooth brown legs sticking straight out in front of them from under wide skirts; the sound of their laughter as they watched me help Granny pick stems off collard greens that she’d brought from Kisumu, and the nutty-sweet taste of a sugarcane stalk that one of the women put into my hand. I remember the rustle of corn leaves, the concentration on my uncles’ faces, the smell of our sweat as we mended a hole in the fence bounding the western line of the property. I remember how, in the afternoon, a young boy named Godfrey appeared in the compound, a boy who Auma explained was staying with Granny because his family lived in a village where there was no school; I remember Godfrey’s frantic steps as he chased a big black rooster through the banana and papaya trees, the knot in his young brow as the bird kept flapping out of his reach, the look in his eyes when finally Granny grabbed the rooster from behind with one hand and unceremoniously drew her knife across the bird’s neck-a look that I remembered as my own.
 
-She threw the note to the ground, then marched out onto the street. For several minutes we wandered without apparent direction, until I finally suggested we sit down on a bench beside the central post office.
+It wasn’t simply joy that I felt in each of these moments. Rather, it was a sense that everything I was doing, every touch and breath and word, carried the full weight of my life; that a circle was beginning to close, so that I might finally recognize myself as I was, here, now, in one place. Only once that afternoon would I feel that mood broken, when, on our way back from the market, Auma ran ahead to get her camera, leaving Granny and me alone in the middle of the road. After a long pause, Granny looked at me and smiled. “Halo!” she said. “Musawa!” I said. Our mutual vocabulary exhausted, we stared ruefully down at the dirt until Auma finally returned. And Granny then turned to Auma and said, in a tone I could understand, that it pained her not to be able to speak to the son of her son.
 
-“You okay?” I asked her.
+“Tell her I’d like to learn Luo, but it’s hard to find time in the States,” I said. “Tell her how busy I am.”
 
-She nodded. “That was stupid, throwing away money like that.” She set down her purse beside her and we watched the traffic pass. “You know, I can’t go to a club in any of these hotels if I’m with another African woman,” she said eventually. “The askaris will turn us away, thinking we are prostitutes. The same in any of these big office buildings. If you don’t work there, and you are African, they will stop you until you tell them your business. But if you’re with a German friend, then they’re all smiles. ‘Good evening, miss,’ they’ll say. ‘How are you tonight?’” Auma shook her head. “That’s why Kenya, no matter what its GNP, no matter how many things you can buy here, the rest of Africa laughs. It’s the whore of Africa, Barack. It opens its legs to anyone who can pay.”
+“She understands that,” Auma said. “But she also says that a man can never be too busy to know his own people.” I looked at Granny, and she nodded at me, and I knew then that at some point the joy I was feeling would pass and
 
-I told Auma she was being too hard on the Kenyan, that the same sort of thing happened in Djakarta or Mexico City- just an unfortunate matter of economics. But as we started back toward the apartment, I knew my words had done nothing to soothe her bitterness. I suspected that she was right: not all the tourists in Nairobi had come for the wildlife. Some came because Kenya, without shame, offered to re-create an age when the lives of whites in foreign lands rested comfortably on the backs of the darker races; an age of innocence before Kimathi and other angry young men in Soweto or Detroit or the Mekong Delta started to lash out in street crime and revolution. In Kenya, a white man could still walk through Isak Dinesen’s home and imagine romance with a mysterious young baroness, or sip gin under the ceiling fans of the Lord Delamare Hotel and admire portraits of Hemingway smiling after a successful hunt, surrounded by grim-faced coolies. He could be served by a black man without fear or guilt, marvel at the exchange rate, and leave a generous tip; and if he felt a touch of indigestion at the sight of leprous beggars outside the hotel, he could always administer a ready tonic. Black rule has come, after all. This is their country. We’re only visitors.
+that that, too, was part of the circle: the fact that my life was neither tidy nor static, and that even after this trip hard choices would always remain.
 
-Did our waiter know that black rule had come? Did it mean anything to him? Maybe once, I thought to myself. He would be old enough to remember independence, the shouts of “Uhuru!” and the raising of new flags. But such
+Night fell quickly, the wind making swift tracks through the darkness. Bernard, Roy, and I went to the water tank and bathed ourselves in the open air, our soapy bodies glowing from the light of an almost full moon. When we returned to the house, the food was waiting for us, and we ate purposefully, without words. After dinner, Roy left, muttering that he had some people he wanted to visit. Yusuf went to his hut and brought back an old transistor radio that he said had once belonged to our grandfather. Fiddling with the knob, he caught a scratchy BBC newscast, fading in and out of range, the voices like hallucinatory fragments from another world. A moment later we heard a strange, low-pitched moan off in the distance.
 
-memories may seem almost fantastic to him now, distant and naive. He’s learned that the same people who controlled the land before independence still control the same land, that he still cannot eat in the restaurants or stay in the hotels that the white man has built. He sees the money of the city swirling above his head, and the technology that spits out goods from its robot mouth. If he’s ambitious he will do his best to learn the white man’s language and use the white man’s machines, trying to make ends meet the same way the computer repairman in Newark or the bus driver back in Chicago does, with alternating spurts of enthusiasm or frustration but mostly with resignation. And if you say to him that he’s serving the interests of neocolonialism or some other such thing, he will reply that yes, he will serve if that is what’s required. It is the lucky ones who serve; the unlucky ones drift into the murky tide of hustles and odd jobs; many will drown.
+“The night runners must be out tonight,” Auma said.
 
-Then again, maybe that’s not all that the waiter is feeling. Maybe a part of him still clings to the stories of Mau-Mau, the same part of him that remembers the hush of a village night or the sound of his mother grinding corn under a stone pallet. Something in him still says that the white man’s ways are not his ways, that the objects he may use every day are not of his making. He remembers a time, a way of imagining himself, that he leaves only at his peril. He can’t escape the grip of his memories. And so he straddles two worlds, uncertain in each, always off balance, playing whichever game staves off the bottomless poverty, careful to let his anger vent itself only on those in the same condition.
+“What are night runners?”
 
-A voice says to him yes, changes have come, the old ways lie broken, and you must find a way as fast as you can to feed your belly and stop the white man from laughing at you.
+“They’re like warlocks,” Auma said. “Spirit men. When we were children, these people here”-she pointed at Granny
 
-A voice says no, you will sooner burn the earth to the ground.
+and Zeituni-would tell us stories about them to make us behave. They told us that in daylight the night runners are like ordinary men. You might pass them in the market, or even have them to your house for a meal, and never know their true natures. But at night they take on the shape of leopards and speak to all the animals. The most powerful night runners can leave their bodies and fly to faraway places. Or hex you with only a glance. If you ask our neighbors, they will tell you that there are still many night runners around here.”
 
-That evening, we drove east to Kariako, a sprawling apartment complex surrounded by dirt lots. The moon had dropped behind thick clouds, and light drizzle had begun to fall. As we climbed the dark stairwell, a young man bounded past us onto the broken pavement and into the night. At the top of three flights, Auma pushed against a door that was slightly ajar.
+“Auma! You act as if it is not true!”
 
-“Barry! You’ve finally come!”
+In the flickering light of the kerosene lamp, I couldn’t tell if Zeituni was joking. “Let me tell you, Barry,” she said, “When I was young the night runners caused people many problems. They would steal our goats. Sometimes they took even our cattle. Only your grandfather was not afraid of them. I remember one time he heard his goats bleating in their pen, and when he went to check on them, he saw what looked like a huge leopard standing on its hind legs, like a man. It had a baby goat in its jaws, and when it saw your grandfather, it cried out in Luo before running into the forest. Your grandfather chased it deep into the hills, but just as he was about to strike it with his panga, the night runner flew up into the trees. Luckily, it dropped the goat when it jumped, and the goat suffered only a broken leg. Your grandfather brought the goat back to the compound and showed me how to make a splint. I cared for that goat myself until it was back to health.”
 
-A short, stocky woman with a cheerful brown face gave me a tight squeeze around the waist. Behind her were fifteen or so people, all of them smiling and waving like a crowd at a parade. The short woman looked up at me and frowned.
+We became quiet again; lamplight grew low and people began drifting off to bed. Granny brought out blankets and a twin-sized cot for Bernard and me, and we arranged ourselves on the narrow bed before blowing out the lamp. My body ached from exhaustion; inside Granny’s bedroom, I could hear the murmur of her and Auma talking. I wondered where Roy had gone to, and thought about the yellow tiles on the Old Man’s grave.
 
-“You don’t remember me, do you?”
+“Barry,” Bernard whispered. “Are you awake?”
 
-“I...”
+“Y eah.”
 
-“I’m your Aunt Jane. It is me that called you when your father died.” She smiled and took me by the hand. “Come.
+“Did you believe what Zeituni told you? About night runners?”
 
-You must meet everybody here. Zeituni you have already met. This...” she said, leading me to a handsome older woman in a green patterned dress, “this is my sister, Kezia. She is mother to Auma and to Roy Obama.”
+“I don’t know.”
 
-Kezia took my hand and said my name together with a few words of Swahili.
+“Myself, I think there is no such thing as a night runner. They are probably just thieves who use these stories to make
 
-“She says her other son has finally come home,” Jane said.
+people afraid.”
 
-“My son,” Kezia repeated in English, nodding and pulling me into a hug. “My son has come home.”
+“You may be right.”
 
-We continued around the room, shaking hands with aunts, cousins, nephews, and nieces. Everyone greeted me with
+There was a long pause.
 
-cheerful curiosity but very little awkwardness, as if meeting a relative for the first time was an everyday occurrence. I
+“Barry?”
 
-had brought a bag of chocolates for the children, and they gathered around me with polite stares as the adults tried to explain who I was. I noticed a young man, sixteen or seventeen, standing against the wall with a watchful expression.
+“What?”
 
-“That’s one of your brothers,” Auma said to me. “Bernard.”
+“What made you finally come home?”
 
-I went over to the young man and we shook hands, studying each other’s faces. I found myself at a loss for words but managed to ask him how he had been.
+“I’m not sure, Bernard. Something told me it was time.”
 
-“Fine, I guess,” he answered softly, which brought a round of laughter from everyone.
+Bernard rolled over onto his side without answering. A moment later, I heard his soft snores beside me, and I opened
 
-After the introductions were over, Jane pushed me toward a small table set with bowls of goat curry, fried fish, collards, and rice. As we ate, people asked me about everyone back in Hawaii, and I tried to describe my life in Chicago and my work as an organizer. They nodded politely but seemed a bit puzzled, so I mentioned that I’d be studying law at Harvard in the fall.
+my eyes to the darkness, waiting for Roy to return.
 
-“Ah, this is good, Barry,” Jane said as she sucked on a bone from the curry. “Your father studied at this school, Harvard. You will make us all proud, just like him. You see, Bernard, you must study hard like your brother.”
+In the morning, Sayid and Yusuf suggested that Auma and I take a tour of the lands. As we followed them across the backyard and down a dirt path, through fields of corn and millet, Yusuf turned to me and said, “It must seem very primitive to you, compared to farms in America.”
 
-“Bernard thinks he’s going to be a football star,” Zeituni said.
+I told him that I didn’t know much about farming but that, as far as I could tell, the land seemed quite fertile.
 
-I turned to Bernard. “Is that right, Bernard?”
+“Yes, yes,” Yusuf said, nodding. “The land is good. The problem is that people here are uneducated. They don’t understand much about development. Proper agricultural techniques and so forth. I try to explain to them about capital improvements and irrigation, but they refuse to listen. The Luo are very stubborn in this way.”
 
-“No,” he said, uncomfortable that he’d attracted attention. “I used to play, that’s all.”
+I noticed Sayid frowning at his brother, but he said nothing. After a few minutes we came to a small, brown stream. Sayid shouted out a warning, and two young women emerged on the opposite bank, wrapped in their kangas, their hair still gleaming from their morning baths. They smiled shyly and stepped behind an island of rushes, and Sayid pointed to the hedges running alongside the water.
 
-“Well...maybe we can play sometime.”
+“This is where the land ends,” he said. “Before, when my father lived, the fields were much bigger. But as my mother said, much of the land has now been given away.”
 
-He shook his head. “I like to play basketball now,” he said earnestly. “Like Magic Johnson.”
+Yusuf decided to go back at this point, but Sayid led Auma and me along the stream for a while, then across more fields, past the occasional compound. In front of some huts, we saw women sorting through millet spread across square strips of cloth, and we stopped to talk to one of them, a middle-aged woman in a faded red dress and red, laceless sneakers. She set aside her work to shake our hands and told us that she remembered our father-they had herded goats together as children, she said. When Auma asked how life had been treating her, she shook her head slowly.
 
-The meal smothered some of the initial excitement, and the children turned to a large black-and-white TV that was
+“Things have changed,” she said in a flat voice. “The young men leave for the city. Only the old men, women, and children remain. All the wealth has left us.” As she spoke, an old man with a rickety bicycle came up beside us, then a spindly man whose breath smelled of liquor. They immediately picked up the woman’s refrain about the hardness of life in Alego, and the children who had left them behind. They asked if we might give them something to tide them over, and Auma dropped a few shillings into each of their hands before we excused ourselves and started back toward the house.
+
+“What’s happened here, Sayid?” Auma said after we were out of earshot. “There never used to be such begging.”
+
+Sayid leaned down and cleared away a few fallen branches from between the rows of corn. “You are right,” he said. “I believe they have learned this thing from those in the city. People come back from Nairobi or Kisumu and tell them, ‘You are poor.’ So now we have this idea of poverty. We didn’t have this idea before. You look at my mother. She will never ask for anything. She has always something that she is doing. None of it brings her much money, but it is something, you see. It gives her pride. Anyone could do the same, but many people here, they prefer to give up.”
 

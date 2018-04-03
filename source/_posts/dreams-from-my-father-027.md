@@ -1,63 +1,121 @@
 title: Dreams from My Father 027
-date: 2015-01-24 15:44:08
+date: 2015-01-25 03:45:50
 tags: dreams-from-my-father
 ---
 
-“So you’ve been following Harold’s career,” Marty said. “I’m surprised you haven’t gone to work for him.”
+“We’re quitting,” Angela said.
 
-“I tried. His office didn’t write back.”
+“Who’s quitting?”
 
-Marty smiled and took off his glasses, cleaning them with the end of his tie. “Well, that’s the thing to do, isn’t it, if
+Angela shrugged. “Well...I am, I guess. I can’t speak for everybody else.”
 
-you’re young and black and interested in social issues? Find a political campaign to work for. A powerful patron- somebody who can help you with your own career. And Harold’s powerful, no doubt about it. Lots of charisma. He has almost monolithic support in the black community. About half the Hispanics, a handful of white liberals. You’re right about one thing, though. The whole atmosphere in the city is polarized. A big media circus. Not much is getting done.”
+I looked around the room. The other leaders averted their eyes, like a jury that’s delivered an unfavorable verdict. “I’m sorry, Barack,” Angela continued. “It has nothing to do with you. The truth is, we’re just tired. We’ve all been at
 
-I leaned back in my seat. “And whose fault is that?”
+this for two years, and we’ve got nothing to show for it.”
 
-Marty put his glasses back on and met my stare. “It’s not a question of fault,” he said. “It’s a question of whether any politician, even somebody with Harold’s talent, can do much to break the cycle. A polarized city isn’t necessarily a bad thing for a politician. Black or white.”
+“I understand you’re frustrated, Angela. We’re all a little frustrated. But you need to give it more time. We-” “We don’t have more time,” Shirley broke in. “We can’t keep on making promises to our people, and then have
 
-He offered to start me off at ten thousand dollars the first year, with a two-thousand-dollar travel allowance to buy a car; the salary would go up if things worked out. After he was gone, I took the long way home, along the East River promenade, and tried to figure out what to make of the man. He was smart, I decided. He seemed committed to his work. Still, there was something about him that made me wary. A little too sure of himself, maybe. And white-he’d said himself that that was a problem.
+nothing happen. We need something now.”
 
-The old fluted park lamps flickered to life; a long brown barge rolled through the gray waters toward the sea. I sat down on a bench, considering my options, and noticed a black woman and her young son approach. The boy yanked the woman up to the railing, and they stood side by side, his arm wrapped around her leg, a single silhouette against the twilight. Eventually the boy’s head craned upward with what looked like a question. The woman shrugged her shoulders and the boy took a few steps toward me.
+I fidgeted with my coffee cup, trying to think of something else to say. Words jumbled up in my head, and for a
 
-“Excuse me, mister,” he shouted. “You know why sometimes the river runs that way and then sometimes it goes this way?”
+moment I was gripped with panic. Then the panic gave way to anger. Anger at Marty for talking me into coming to Chicago. Anger at the leaders for being short-sighted. Anger at myself for believing I could have ever bridged the gap between them. I suddenly remembered what Frank had told me that night back in Hawaii, after I had heard that Toot was scared of a black man.
 
-The woman smiled and shook her head, and I said it probably had to do with the tides. The answer seemed to satisfy the boy, and he went back to his mother. As I watched the two of them disappear into dusk, I realized I had never noticed which way the river ran.
+That’s the way it is, he had said. You might as well get used to it.
 
-A week later, I loaded up my car and drove to Chicago.
+In this peevish mood, I looked out the window and saw a group of young boys gathered across the street. They were tossing stones at the boarded-up window of a vacant apartment, their hoods pulled over their heads like miniature monks. One of the boys reached up and started yanking at a loose piece of plywood nailed across the apartment door, then stumbled and fell, causing the others to laugh. A part of me suddenly felt like joining them, tearing apart the whole dying landscape, piece by piece. Instead, I turned back toward Angela.
 
-CHAPTER EIGHT
+“Let me ask you something,” I said, pointing out the window. “What do you suppose is going to happen to those boys out there?”
 
-I HAD BEEN TO CHICAGO once before. It was during the summer after my father’s visit to Hawaii, before my eleventh birthday, when Toot had decided it was time I saw the mainland of the United States. Perhaps the two things were connected, her decision and my father’s visit-his presence (once again) disturbing the world she and Gramps had made for themselves, triggering in her a desire to reclaim antecedents, her own memories, and pass them on to her grandchildren.
+“Barack...”
 
-We traveled for over a month, Toot and my mother and Maya and I-Gramps had lost his taste for traveling by this time and chose to stay behind. We flew to Seattle, then went down the coast to California and Disneyland, east to the Grand Canyon, across the Great Plains to Kansas City, then up to the Great Lakes before heading back west through Yellowstone Park. We took Greyhound buses, mostly, and stayed at Howard Johnson’s, and watched the Watergate hearings every night before going to bed.
+“No, I’m just asking you a question. You say you’re tired, the same way most folks out here are tired. So I’m just trying to figure out what’s going to happen to those boys. Who’s going to make sure they get a fair shot? The alderman? The social workers? The gangs?”
 
-We were in Chicago for three days, in a motel in the South Loop. It must have been sometime in July, but for some reason I remember the days as cold and gray. The motel had an indoor swimming pool, which impressed me; there were no indoor pools in Hawaii. Standing beneath the el tracks, I closed my eyes as a train passed and shouted as loud as I could. At the Field Museum, I saw two shrunken heads that were kept on display. They were wrinkled but well preserved, each the size of my palm, their eyes and mouths sewn shut, just as I would have expected. They appeared to be of European extraction: The man had a small goatee, like a conquistador; the female had flowing red hair. I stared at them for a long time (until my mother pulled me away), feeling-with the morbid glee of a young boy-as if I had stumbled upon some sort of cosmic joke. Not so much the fact that the heads had been shrunk-that I could understand; it was the same idea as eating tiger meat with Lolo, a form of magic, a taking of control. Rather, the fact that these little European faces were here in a glass case, where strangers, perhaps even descendants, might observe the details of their gruesome fate. That no one seemed to think that odd. It was a different sort of magic, these harsh museum lights, the neat labels, the seeming indifference of the visitors who passed; another effort at control.
+I could hear my voice rising, but I didn’t let up. “You know, I didn’t come here ’cause I needed a job. I came here ’cause Marty said there were some people who were serious about doing something to change their neighborhoods. I don’t care what’s happened in the past. I know that I’m here, and committed to working with you. If there’s a problem, then we’ll fix it. If you don’t think anything’s happened after working with me, then I’ll be the first one to tell you to quit. But if you all are planning to quit now, then I want you to answer my question.”
 
-Fourteen years later, the city appeared much prettier. It was another July, and the sun sparkled through the deep green trees. The boats were out of their moorings, their distant sails like the wings of doves across Lake Michigan. Marty had told me that he would be busy those first few days, and so I was left on my own. I had bought a map, and I followed Martin Luther King Drive from its northernmost to its southernmost point, then went back up Cottage Grove, down byways and alleys, past the apartment buildings and vacant lots, convenience stores and bungalow homes. And as I drove, I remembered. I remembered the whistle of the Illinois Central, bearing the weight of the thousands who had come up from the South so many years before; the black men and women and children, dirty from the soot of the railcars, clutching their makeshift luggage, all making their way to Canaan Land. I imagined Frank in a baggy suit and wide lapels, standing in front of the old Regal Theatre, waiting to see Duke or Ella emerge from a gig. The mailman I saw was Richard Wright, delivering mail before his first book sold; the little girl with the glasses and pigtails was Regina, skipping rope. I made a chain between my life and the faces I saw, borrowing other people’s memories. In this way I tried to take possession of the city, make it my own. Yet another sort of magic.
+I stopped there, trying to read each of their faces. They seemed surprised at my outburst, though none of them was as surprised as me. I knew I was on precarious ground; I wasn’t close enough to any of them to be sure my play wouldn’t backfire. At that particular moment, though, I had no other hand to play. The boys outside moved on down the street. Shirley went to get herself more coffee. After what seemed like ten minutes, Will finally spoke up.
 
-On the third day I passed Smitty’s Barbershop, a fifteen-by-thirty-foot storefront on the edge of Hyde Park with four barber’s chairs and a card table for LaTisha, the part-time manicurist. The door was propped open when I walked in, the barbershop smells of hair cream and antiseptic mingling with the sound of men’s laughter and the hum of slow fans. Smitty turned out to be an older black man, gray-haired, slender and stooped. His chair was open and so I took a seat, soon joining in the familiar barbershop banter of sports and women and yesterday’s headlines, conversation at once intimate and anonymous, among men who’ve agreed to leave their troubles outside.
+“I don’t know about the rest of you, but I think we’ve talked about this same old mess long enough. Marty knows we got problems. That’s why he hired Barack. Ain’t that right, Barack?”
 
-Somebody had just finished telling a story about his neighbor-the man had been caught in bed with his wife’s cousin and chased at the point of a kitchen knife, buck naked, out into the street-when the talk turned to politics.
+I nodded cautiously.
 
-“Vrdolyak and the rest of them crackers don’t know when to quit,” the man with the newspaper said, shaking his head in disgust. “When Old Man Daley was mayor, didn’t nobody say nothing about him putting all them Irish up in City Hall. But the minute Harold tries to hire some black people, just to even things out, they call it reverse racism-”
+“Things still bad out here. Ain’t nothing gone away. So what I wanna know,” he said, turning to me, “is what we gonna do from here on out.”
 
-“Man, that’s how it always is. Whenever a black man gets into power, they gonna try and change the rules on him.” “Worse part is, newspapers acting like it was black folks that started this whole mess.”
+I told him the truth. “I don’t know, Will. You tell me.”
 
-“What you expect from the white man’s paper?”
+Will smiled, and I sensed that the immediate crisis had passed. Angela agreed to give it another few months. I agreed to concentrate more time on Altgeld. We spent the next half hour talking strategy and handing out assignments. On our way out, Mona came up and took me by the arm.
 
-“You right. Harold knows what he’s doing, though. Just biding his time till the next election.”
+“You handled that meeting pretty good, Barack. Seems like you know what you’re doing.” “I don’t, Mona. I don’t have a clue.”
 
-That’s how black people talked about Chicago’s mayor, with a familiarity and affection normally reserved for a relative. His picture was everywhere: on the walls of shoe repair shops and beauty parlors; still glued to lampposts from the last campaign; even in the windows of the Korean dry cleaners and Arab grocery stores, displayed prominently, like some protective totem. From the barbershop wall, that portrait looked down on me now: the handsome, grizzled face, the bushy eyebrows and mustache, the twinkle in the eyes. Smitty noticed me looking at the picture and asked if I’d been in Chicago during the election. I told him I hadn’t. He nodded his head.
+She laughed. “Well, I promise I won’t tell nobody.”
 
-“Had to be here before Harold to understand what he means to this city,” Smitty said. “Before Harold, seemed like we’d always be second-class citizens.”
+“I appreciate that, Mona. I sure do appreciate that.”
 
-“Plantation politics,” the man with the newspaper said.
+That evening, I called Marty and told him some of what had happened. He wasn’t surprised: several of the suburban churches were already starting to drop out. He gave me a few suggestions for approaching the job issue in Altgeld, then advised me to pick up the pace of my interviews.
 
-“That’s just what it was, too,” Smitty said. “A plantation. Black people in the worst jobs. The worst housing. Police brutality rampant. But when the so-called black committeemen came around election time, we’d all line up and vote the straight Democratic ticket. Sell our soul for a Christmas turkey. White folks spitting in our faces, and we’d reward ’em with the vote.”
+“You’re going to need to find some new leaders, Barack. I mean, Will’s a terrific guy and all that, but do you really want to depend on him to keep the organization afloat?”
 
-Clumps of hair fell into my lap as I listened to the men recall Harold’s rise. He had run for mayor once before, shortly after the elder Daley died, but the candidacy had faltered-a source of shame, the men told me, the lack of unity within the black community, the doubts that had to be overcome. But Harold had tried again, and this time the people were ready. They had stuck with him when the press played up the income taxes he’d failed to pay (“Like the white cats don’t cheat on every damn thing every minute of their lives”). They had rallied behind him when white Democratic committeemen, Vrdolyak and others, announced their support for the Republican candidate, saying that the city would go to hell if it had a black mayor. They had turned out in record numbers on election night, ministers and gang-bangers, young and old.
+I understood Marty’s point. As much as I liked Will, as much as I appreciated his support, I had to admit that some of his ideas were...well, eccentric. He liked to smoke reefer at the end of a day’s work (“If God didn’t want us to smoke the stuff, he wouldn’t have put it on this here earth”). He would walk out of any meeting that he decided was boring. Whenever I took him along to interview members of his church, he’d start arguing with them about their incorrect
 
-And their faith had been rewarded. Smitty said, “The night Harold won, let me tell you, people just ran the streets. It was like the day Joe Louis knocked out Schmeling. Same feeling. People weren’t just proud of Harold. They were proud of themselves. I stayed inside, but my wife and I, we couldn’t get to bed until three, we were so excited. When I woke up the next morning, it seemed like the most beautiful day of my life....”
+reading of Scripture, their choice of lawn fertilizer, or the constitutionality of the income tax (he felt that tax violated the Bill of Rights, and conscientiously refused to pay).
 
-Smitty’s voice had fallen to a whisper, and everyone in the room began to smile. From a distance, reading the newspapers back in New York, I had shared in their pride, the same sort of pride that made me root for any pro football team that fielded a black quarterback. But something was different about what I was now hearing; there was a fervor in Smitty’s voice that seemed to go beyond politics. “Had to be here to understand,” he had said. He’d meant here in Chicago; but he could also have meant here in my shoes, an older black man who still burns from a lifetime of insults, of foiled ambitions, of ambitions abandoned before they’ve been tried. I asked myself if I could truly understand that. I assumed, took for granted, that I could. Seeing me, these men had made the same assumption. Would they feel the same way if they knew more about me? I wondered. I tried to imagine what would happen if Gramps walked into the barbershop at that moment, how the talk would stop, how the spell would be broken; the different assumptions at work.
+“Maybe if you listened to other people a little more,” I had told him once, “they’d be more responsive.”
+
+Will had shaken his head. “I do listen. That’s the problem. Everything they say is wrong.”
+
+Now, after the meeting in Altgeld, Will had a new idea. “These mixed-up Negroes inside St. Catherine’s ain’t never
+
+gonna do nothing,” he said. “If we wanna get something done, we gonna have to take it to the streets!” He pointed out that many of the people who lived in the immediate vicinity of St. Catherine’s were jobless and struggling; those were the people we should be targeting, he said. And because they might not feel comfortable attending a meeting hosted by a foreign church, we should conduct a series of street corner meetings around West Pullman, allowing them to gather on neutral turf.
+
+I was skeptical at first, but unwilling as I was to discourage any initiative, I helped Will and Mary prepare a flyer, for distribution along the block closest to the church. A week later, the three of us stood out on the corner in the late autumn wind. The street remained empty at first, the shades drawn down the rows of brick bungalows. Then, slowly, people began to emerge, one or two at a time, women in hair nets, men in flannel shirts or windbreakers, shuffling through the brittle gold leaves, edging toward the growing circle. When the gathering numbered twenty or so, Will explained that St. Catherine’s was part of a larger organizing effort and that “we want you to talk to your neighbors about all the things y’all complain about when you’re sitting at the kitchen table.”
+
+“Well, all I can say is, it’s about time,” one woman said.
+
+For almost an hour, people talked about potholes and sewers, stop signs and abandoned lots. As the afternoon fell to dusk, Will announced that we’d be moving the meetings to St. Catherine’s basement starting the following month. Walking back to the church, I heard the crowd still behind us, a murmur in the fading light. Will turned to me and smiled.
+
+“Told you.”
+
+We repeated these street corner meetings on three, four, five blocks-Will at the center with his priest’s collar and Chicago Cubs jacket, Mary with her sign-in sheets circling the edges of the crowd. By the time we moved the meetings indoors, we had a group of close to thirty people, prepared to work for little more than a cup of coffee.
+
+It was before such a meeting that I found Mary alone in the church hall, making a pot of coffee. The evening’s agenda was neatly printed on a sheet of butcher’s paper taped to the wall; the chairs were all set up. Mary waved at me while searching a cupboard for sugar and creamer, and told me Will was running a little late.
+
+“Need any help?” I asked her.
+
+“Can you reach this?”
+
+I pulled down the sugar from the top shelf. “Anything else?”
+
+“No. I think we’re all set.”
+
+I took a seat and watched Mary finish arranging the cups. She was a hard person to know, Mary was; she didn’t like to
+
+talk much, about herself or her past. I knew that she was the only white person from the city who worked with us, one of maybe five white people left in West Pullman. I knew that she had two daughters, one ten and one twelve; the younger one had a disability that made walking difficult and required regular therapy.
+
+And I knew that the father was absent, although Mary never mentioned him. Only in bits and pieces, over the course of many months, would I learn that she had grown up in a small Indiana town, part of a big, working-class Irish family. Somehow she had met a black man there; they had dated secretly, were married; her family refused to speak to her again, and the newlyweds moved to West Pullman, where they bought a small house. Then the man left, and Mary found herself beached in a world she knew little of, without anything but the house and two manila-hued daughters, unable to return to the world she had known.
+
+Sometimes I would stop by Mary’s house just to say hello, drawn perhaps by the loneliness I sensed there, and the easy parallels between my own mother and Mary; and between myself and Mary’s daughters, such sweet and pretty girls whose lives were so much more difficult than mine had ever been, with grandparents who shunned them, black classmates who teased them, all the poison in the air. Not that the family had no support; after Mary’s husband left, the neighbors had shown her and her children solicitude, helping them fix a leaky roof, inviting them to barbecues and birthday parties, commending Mary on all her good works. Still, there were limits to how far the neighbors could accept the family, unspoken boundaries to the friendships that Mary could make with the women-specially the married ones-that she met. Her only real friends were her daughters-and now Will, whose own fall, and idiosyncratic faith, gave them something private to share.
+
+With nothing left to do for the meeting, Mary sat down and watched me scribble some last-minute notes to myself. “Do you mind if I ask you something, Barack?”
+
+“No, go ahead.”
+
+“Why are you here? Doing this work, I mean.”
+
+“For the glamour.”
+
+“No, I’m serious. You said yourself you don’t need this job. And you’re not very religious, are you?”
+
+“Well...”
+
+“So why do you do it? That’s why Will and I do this, you know. Because it’s part of our faith. But with you, I don’t-” At that moment, the door opened and Mr. Green walked in. He was an older man in a hunting jacket and a cap whose
+
+earflaps hung stiffly against his chin.
+
+“How you doing, Mr. Green.”
+
+“Fine, just fine. Getting chilly, though....”
+
+Mrs. Turner and Mr. Albert quickly followed, then the rest of the group, all bundled up against the hint of an early
+
+winter. They unbuttoned their coats, prepared coffee for themselves, and engaged in the small, unhurried talk that helped warm up the room. Finally Will walked in wearing cut-off jeans and a red T-shirt with “Deacon Will” across the front, and after asking Mrs. Jeffrey to lead us in prayer, he started the meeting. While everyone talked, I took notes to myself, speaking up only when things started to wander. In fact, I thought the meeting had already dragged on too long- a few people had slipped out after an hour-when Will added a new item to the agenda.
 

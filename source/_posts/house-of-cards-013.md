@@ -1,89 +1,105 @@
 title: House of Cards 013
-date: 2015-01-24 15:44:21
+date: 2015-01-25 03:46:04
 tags: house-of-cards
 ---
 
-￼The Prime Minister rose ponderously to his feet and glanced at the red briefing folder already open on the Despatch Box in front of him. He read in a monotone.
+If the PM had trouble in controlling his Cabinet before this, his task now is going to be - what, a nightmare? Impossible?'
 
-‘I refer the Honourable Member to the reply I gave some moments ago to Questions One, Two and Four’ Since his earlier reply had said no more than that he would spend the day holding meetings with ministerial colleagues and hosting a dinner for the visiting Belgian Prime Minister, no one had yet learned anything of interest about the Prime Minister's activities - which was precisely his intention.
+‘It is not unusual for Prime Ministers to change their minds. But to be forced to change your mind publicly, simply because you are unable to defend your own decision, is...'
 
-Collingridge resumed his seat, and the Speaker summoned Kendrick once more to place his supplementary question. The gladiatorial courtesies were now over, and battle was about to commence. Kendrick rose to his feet from the rear row of the Opposition benches.
+Mattie waited in vain for Urquhart to finish, but realised he would not do so. He would not condemn his Prime Minister, not openly on the stairs, but it was clear there would be no justification either. She prompted the Chief Whip yet again. Isn't the Government getting accident prone - the second major leak in a matter of weeks? Where are these leaks coming from?'
 
-Kendrick was a gambler, a man who had found professional success in an industry which emphasised ostentatious reward, yet who had decided to risk his expense account and sports car by fighting a marginal parliamentary seat. Not that he had really expected or indeed wanted to win; after all, the Government had been sitting on a pretty reasonable majority. Fighting the seat, he reasoned, would give him a platform and a prominence which would help him both socially and professionally, and would certainly give him a higher profile in the public relations trade magazines. The man with the social conscience' always made good copy in an aggressively commercial industry, and the ability to be able to drop a name or two usually helped.
+'As Chief Whip I am responsible only for discipline on the Government backbenches. You can scarcely expect me to play headmaster to my own Cabinet colleagues as well.'
 
-His majority of 76, after three recounts, at first had come as an unpleasant shock as suddenly he was forced to contemplate the reduced income and additional hours of a parliamentary career. It would not be much of a career at that, either, since he knew the odds were that after the next election he would probably be looking for a new seat or a new job. In either case he knew that the plodding progress of a loyal and patient backbencher was not for him. He would have to make his mark, and make it quickly.
+‘But if it's coming from Cabinet - who, and why?'
 
-Kendrick had spent all of the previous evening and much of that morning turning over O'Neill's remarks in his mind. Why cancel a publicity campaign promoting a vote-winning policy which had been sold heavily during the election, when the campaign was all set to go? Whichever way he looked at it, the pieces would only fit together into a pattern suggesting that it was the policy rather than the publicity campaign which was in trouble. But should he enquire or accuse? To question or condemn? Or simply take the course expected of new Members and be completely anodyne? He knew that if he got it wrong, the first and lasting impression he made would be that of the House fool.
+‘I simply don't know, Mattie. But doubtless the Prime Minister will instruct me to find out who and why.'
 
-His momentary uncertainty caused the general commotion of the House to die away as MPs sensed indecision and surprise. Had the new Member frozen? But Kendrick felt calm and at ease. He remembered his small majority, and he knew he must gamble. What had he got to lose, except his dignity, which in any event was a commodity of little practical value in the modem House of Commons? He took a deep breath.
+'Formally or informally?'
 
-'Will the Prime Minister explain to the House why he is not implementing the promised hospital expansion programme?'
+‘I can't comment on that,' muttered Urquhart, and continued up the stairs pursued by Mattie.
 
-No criticism. No elaboration. No added phrase or rambling comment which would allow the Prime Minister to dodge or divert the question. Kendrick had thrown his grenade and he knew that if his gamble were wrong the grenade would be picked up by a grateful Prime Minister and thrown directly back to explode in his own lap.
+'So we have got to the point where the Prime Minister is about to launch an inquiry into which of his own Cabinet colleagues is leaking sensitive information. Is that what you are saying?'
 
-A murmur went up as he resumed his seat. The sport had taken an interesting new turn, and the 300-odd spectators turned as one to look towards Collingridge. He rose aware that there was nothing in his red briefing folder from which to draw inspiration. The whole House could see the broad smile with which Collingridge accepted the challenge; only those sitting very close to him could see the whites of his knuckles as he gripped the Despatch Box.
+'Oh, Mattie. It seems I have already said too much. You're a damn sight quicker on the uptake than most of your colleagues. It seems to me that your logic rather than my words has led you to your conclusions, eh? And I trust that you will be keeping my name out of this.'
 
-‘I hope that the Honourable Gentleman will be careful to avoid being carried away by the summer silly season, at least before August arrives. As he is a new Member, may I remind him that in the last four years under this Government the health service has enjoyed a substantial real increase in spending of some 6 to 8 per cent?' Collingridge knew he was being inexcusably patronising, but he could not find the right words. 'The health service has gained more than any Government service from our success and continuing determination in defeating inflation, which compares...'
+'Usual lobby terms, Mr Urquhart,' she assured him. 'Just let me get this perfectly clear. You are not denying, indeed you are confirming that the Prime Minister will order an investigation into his Cabinet members' conduct?'
 
-'Answer the bloody question,' came the irreverent growl from below the gangway on the Opposition benches, which was immediately echoed by several Members around the interrupter. Kendrick was no longer alone.
+'If you keep my name out of it - yes.'
 
-‘I shall answer the question in my own way and in my own time,' snapped the Prime Minister. It is a pathetic sham for the Opposition to whine on about such matters when they know that electors have reached their own conclusions and only recently voted with their feet for this Government. They support us and I can repeat our determination to protect them and their hospital service’
+‘Jesus, this will set them all flapping,' Mattie gasped. She could already see her front page lead taking shape. 'June 10th does seem a long time ago, doesn't it, Mattie?'
 
-Increasingly rude shouts of disapproval began to rise from the Opposition benches, most of which would go unrecorded by Hansard but which were clearly audible to the Prime Minister. His own backbenchers began to shift uneasily, uncertain as to why Collingridge did not simply reaffirm often stated party policy.
+Urquhart continued up the stairs which led to the Strangers Gallery, where members of the public perched on rows of cramped, narrow benches to view the proceedings of the House, usually with a considerable degree of discomfort and a still larger degree of astonishment. He caught the eye of a small and impeccably dressed Indian for whom he had previously obtained a seat in the Gallery, and signalled to him. The man struggled past the outstretched knees of other visitors packed into the benches, and emerged with obvious embarrassment past two extremely buxom middle-aged ladies. Before he had any opportunity to speak Urquhart motioned to him for silence and led him towards the small hallway behind the gallery.
 
-The House will be aware that it is not the custom of Governments to discuss the specifics of new spending plans in advance, and we shall make an announcement about our intentions at the appropriate time’
+'Mr Urquhart, sir, it has been a most exciting and highly educational ninety minutes. I am deeply indebted to you for assisting me to obtain such a
 
-You have. You've bloody dropped it, haven't you?' the Honourable and usually disrespectful Member for Newcastle West shouted, so loudly that even Hansard could not claim to have missed it.
+￼comfortable position.'
 
-The Opposition Front Bench smiled and chuckled, beginning to appreciate that the Prime Minister's increasingly taut smile hid inner turmoil. The Leader of the Opposition, not six feet from where Collingridge stood, turned to his nearest colleague and whispered loudly. T)o you know I think he's fluffed it. He's running away!' Opposition Members began taunting him from all around, slapping their thighs and chortling like old hags around a guillotine.
+Urquhart, who knew that even small Indian gentlemen such as Firdaus Jhabwala found the seats acutely uncomfortable, smiled knowingly. ‘I know you are being very polite in not complaining about the discomfort of the seating. I only wish I could have found you some more comfortable position.'
 
-The tension and pain of a thousand such encounters in the House welled up inside Collingridge. He was unprepared for this. He could not bring
+They chatted politely while Jhabwala secured the release of his black hide attaché case from the attendant. When he had arrived he had firmly refused to hand it over until he discovered that his entry to the Gallery would be forbidden unless he lodged it with the security desk.
 
-￼himself to admit the truth, yet neither could he lie to the House, and he could find no form of words which would tread that delicate line between honesty and outright deceit. As he observed the sneers and smugness on the faces in front of him and listened to their jeers, he remembered all the many lies they had told about him in the past, the cruelty they had shown and the tears they had caused his wife to shed. As he gazed at the sea of waving Order Papers and contorted faces just a few feet in front of him, his patience vanished. He had to bring it to an end, and he no longer cared how. He threw his hands in the air.
+‘I am so glad that we British can still trust ordinary working chaps with our possessions,' he stated very seriously, patting the case for comfort.
 
-‘I don't have to take comments like that from a pack of dogs’ he snarled, and sat down.
+'Quite’ replied Urquhart, who trusted neither the ordinary working chap nor Jhabwala. Still, he was a constituent who seemed to have various flourishing local businesses, and had provided a £500 donation towards his election campaign expenses and had asked for nothing, in return except, shortly afterwards, a personal interview and private meeting in the House of Commons.
 
-Even before the shout of triumph and rage had a chance to rise from the Opposition benches, Kendrick was back on his feet.
+'Not in the constituency,' he had explained to Urquhart's secretary on the phone. It's a matter of national rather than local attention.'
 
-'On a point of order, Mr Speaker. The Prime Minister's remarks are an absolute disgrace. I asked a perfectly straightforward question about why the Prime Minister had reneged on his election promise to patients and nurses, and all I have got are insults and evasion. While I understand the Prime Minister's reluctance to admit to the House that he has perpetrated a gigantic and disgraceful fraud, is there nothing you can do to protect the right of Members of this House to get a straight answer to a straight question?'
+Urquhart led the way under the great vaulted oak ceiling of Westminster Hall, at which point Jhabwala asked to stand for a while. ‘I would be grateful for a silent moment in this great hall in which Charles I was tried and condemned and Winston Churchill lay in state.'
 
-A roar of approval grew from Opposition members as the Speaker struggled to be heard above the commotion. "The Honourable Member, although he is new, seems already to have developed a sharp eye for parliamentary procedure, in which case he will know that I am no more responsible for the content or tone of the Prime Minister's replies than I am for the questions which are put to him. Next business!'
+He noticed the condescending smile appearing at the corner of Urquhart's mouth.
 
-As the Speaker tried to move matters on, a red-faced Collingridge rose and strode angrily out of the Chamber, gesticulating for the Chief Whip to follow him. The very unparliamentary taunt of 'Coward!' rang after him across the floor. From the Government benches there was an uncertain silence.
+'Mr Urquhart. Please do not think me pretentious. My own family associations with British institutions go back nearly 250 years to the days of the Honourable East India Company and Lord Clive, whom my ancestors advised and to whom they loaned considerable funds. Both before and since my family has occupied prestigious positions in the judicial and administrative branches of Indian Government.'
 
-'How in Christ's name did he know? How did that son-of-a-bitch know?'
+Jhabwala's eyes lowered, and a strong sense of sadness filled his voice. 'But since Independence, Mr Urquhart, that once great subcontinent has slowly crumbled into a new dark age. Muslim has been set against Hindu, worker against employer, pupil against teacher. You may not agree, but the modem Gandhi dynasty is less inspired and far more corrupt than any my family ever served in colonial days. I am a Parsee, a cultural minority which has found little comfort under the new Raj, and the fortunes of my family have declined. So I moved to Great Britain, where my father and grandfather were educated. I can tell you without a trace of insincerity, Mr Urquhart, that I feel more at home and more attached to this country and its culture than ever I could back in modem India. I wake up grateful every day that I can call myself a British citizen and educate my children in British universities’
 
-The door had barely closed upon the Prime Minister's .office just off the rear of the Chamber when the screaming began. The normally suave exterior of Her Majesty's First Minister had been drawn back to reveal a wild Warwickshire ferret.
+Urquhart saw his opportunity to interrupt this impassioned and obviously heartfelt monologue. 'Where are your children educated?'
 
-'Francis, it's simply not good enough. It's not bloody good enough I tell you. We get the Chancellor's report in Cabinet Committee yesterday, the full Cabinet discusses it for the first time today, and by this afternoon it's known to every snivelling creep in the Opposition. Less than two dozen Cabinet Ministers knew, only a handful of civil servants knew, but now every single Member of the Opposition knows. Who leaked it, Francis, who? I'm damned if I know, but you're Chief Whip and I want you to find out who the hell it was.'
+‘I have a son just finishing a law degree at Jesus College, Cambridge, and an elder son who is undertaking an MBA at the Wharton Business School in Philadelphia. It is my earnest hope that my younger son will soon qualify to read medicine at Cambridge’
 
-Urquhart breathed a huge sigh of relief. Until the Prime Minister's outburst he had no idea if the finger of blame was already pointing at him, and the last couple of minutes had been distinctly uncomfortable.
+They were now walking towards the interview rooms beneath the Great Hall, their shoes clipping across the worn flagstoned floor where Henry VHI had played tennis and which now was splattered with shafts of bright sunlight slanting through the ancient windows. It was a scene centuries old, and the Indian was clearly in great awe.
 
-It simply astonishes me that one of our Cabinet colleagues would want deliberately to leak something like this,' Urquhart began, implicitly ruling out the possibility of a civil service leak and narrowing the circle of suspicion to include each and every one of his Cabinet colleagues.
+'And what precisely do you do?' asked Urquhart.
 
-They've got us by the balls now, and it's going to hurt. Whoever is responsible had humiliated me, and I want him out, Francis. I want-I insist- that you find the worm. And men I want him fed to the crows.'
+‘I, sir, am a trader, not an educated man. I left behind any hope of that during the great turmoil of Indian Independence. I have therefore had to find my way not with my brain but by diligence and hard work. I am happy to say that I have been moderately successful’
 
-I'm afraid there's been too much bickering amongst our colleagues since the election. Too many of them seem to want someone else's job.'
+'What sort of trade?'
 
-‘I know they all want my job, damn them, but who would be so - cretinous...' — the words were spat out — 'as to deliberately leak something like that?'
+‘I have several business interests, Mr Urquhart. Property. Wholesaling. A little local finance. But I am no narrow minded capitalist. I am well aware of my duty to the community. It is about that I wished to speak with you.'
 
-‘I can't say for sure, Prime Minister.'
+By now they had arrived at the interview room and at Urquhart's invitation Jhabwala seated himself in one of the green leather chairs, fingering with delight the gold embossed portcullis which embellished the upright back of this and all the other chairs in the room.
 
-'Can't you even give me an educated guess, for Chris-sake?'
+'Mr Urquhart. I was not born in this country, and I know that of necessity I must work particularly hard to gain respectability in the community. That is important, not so much for me but for my children. I wish them to have the advantages which my father could not secure for me at a time of civil war. So I try to participate. I assist the local Rotary Club. I help with many local charities. And as you know, I am an ardent supporter of the Prime Minister’ {
 
-That would not be fair.'
+‘I am afraid that you did not see him to best advantage this afternoon’ Then I suspect he needs his friends and supporters more than ever’
 
-'Life's not fair, Francis. Tell me about it.'
+There was a short silence. Urquhart struggled to find the meaning and direction behind his guest's remarks, but it eluded him, although meaning and direction he knew there must be. Jhabwala began again, a little more slowly.
 
-'But...'
+'Mr Urquhart. You know that I have great admiration for you. I was happy to assist in a modest way with your election appeal and would be happy to do so again. I am also a fervent admirer of the entire Government. I would wish to help you all’
 
-‘No "buts", Francis. If it's happened once it can and almost certainly will happen again. Accuse, imply, whatever you damned well like. There are no minutes being taken here. But I want some names!' Collingridge kicked a chair in frustration.
+'May I know how?'
 
-If you insist, I'll speculate. But I hope I’ll not live to regret anything I'm going to say. I know nothing for sure, you understand... let's work from deduction. Given die time scale involved, it seems more likely to have leaked from yesterday's Cabinet Committee rather than from today's full Cabinet. Agreed?'
+‘I know election campaigns are expensive, and perhaps I could make a small donation to Party coffers. I imagine that funds must be short at times
 
-Collingridge nodded his assent.
+￼like these.'
 
-'And apart from you and me, who is on that Committee?'
+Indeed, indeed,' said Urquhart. 'Could I ask how much you were thinking of giving?'
 
-'Chancellor of the Exchequer, Financial Secretary, Health, Education, Environment, Trade and Industry.' The Prime Minister reeled off those Cabinet Ministers who had attended.
+Jhabwala lifted his case onto the table top, twirled the combination and flipped the two brass catches. The lid sprang open and he slid the black leather case around to Urquhart.
+
+'I would be delighted if the Party could accept £50,000 as a gesture of my support.'
+
+Urquhart resisted the ferocious temptation to pick up one of the bundles of notes and start counting. He noticed that all the wads were of used £20 notes and were tied with rubber bands rather than bank cashiers' wrappers.
+
+'This is ... most generous, Mr Jhabwala.' He found himself using his guest's name for the first time since they had met earlier in the afternoon. 'But it is a little unusual for me to accept such a large donation on behalf of the Party, particularly in cash.'
+
+‘You will understand that during the civil war in India my family lost everything. Our house and business were destroyed, and we narrowly escaped with our lives. In 1947 a Muslim mob burned my local bank to the ground - with all its deposits and records. The bank's head office apologised, of course, but without any records could only provide my father with their regrets rather than the funds he had deposited with them. It may seem a little old fashioned of me, but I still prefer to trust cash rather than cashiers’
+
+The businessman's smile shone reassuringly from beneath his dark features. Urquhart did not trust him or his story.
+
+‘I see.' Urquhart took a deep breath. 'May I be blunt, Mr Jhabwala, and ask if there is anything you wish from us in exchange for your support? It is sometimes the case with first-time donors that they believe there is something the Party can do for them, when in reality our powers are very limited...'
+
+Jhabwala beamed and shook his head to halt Urquhart's question. There is nothing I wish to do other than to be a firm supporter of the Prime Minister and yourself, Mr Urquhart. You will understand as a local MP that my business interests often bring me into friendly contact with local authorities for planning permission or tendering for contracts and so forth. I cannot guarantee that you will never find my name in the local press or that I will not ask at some point to seek your guidance through the maze of local decision makers, but I assure you I am looking for no favours. I want nothing in exchange, other than to request that I and my wife have the honour of meeting with the Prime Minister at some suitable time, particularly if he should ever come to the constituency. It would mean a great deal to my wife, as you will appreciate.'
+
+And the photographs of Jhabwala closeted with the Prime Minister would go down remarkably well in the local and ethnic press, as Urquhart well knew. He didn't care for the hint about local planning or contract decisions, but he was an experienced hand at dealing with such requests when they arose. Urquhart began to relax and to return the Indian's smile.
 

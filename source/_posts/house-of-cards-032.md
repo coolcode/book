@@ -1,153 +1,137 @@
 title: House of Cards 032
-date: 2015-01-24 15:44:03
+date: 2015-01-25 03:45:45
 tags: house-of-cards
 ---
 
-'OK, Clark Kent. Seems fair enough. Look, I can get a hard copy of the face off the video tape and show it around. We could try old Freddie, one of our staff photographers. Not only does he have an excellent memory for faces, he is also an alcoholic who dried out a couple of years ago. He still goes religiously every week to Alcoholics Anonymous, and he might well be able to put us on the right track. There aren't that many treatment centres, we should be able to make some progress - but I still don't accept your conspiracy theory, Mattie. It's still all much more likely to be circumstance and coincidence.'
+'Look, Mattie. Let's not be hasty. Let's be mature about this - friends! I want you to get wider experience on the
 
-You cynical bastard, what do I have to do to convince you?'
+paper, you've got talent, even if I think you haven't quite fitted in on the political side. We want to keep you here, so
 
-'Come here and show me a little more of that feminine intuition of yours,' he growled.
+think over the weekend what other part of the paper you might like to work on.' He saw her steely, determined eyes
 
-At almost exactly the same time in the private booth of a fashionable and overpriced restaurant in the West End of London, Landless and Urquhart were also locked together, in an embrace of an entirely mercenary kind.
+and knew it wasn't working. 'But if you really feel you must go, don't rush into anything. Sort out what you want
 
-Interesting times, Frankie, interesting times,' mused Landless.
+to do, let me know, we'll try to assist you and give you six months' salary to help you on your way. I don't want any hard feelings. Think about it.'
 
-In China, I believe, it is a curse to live in interesting times.'
+I've thought about it. And if you are not printing my story, I'm resigning. Here and now.'
 
-I'm sure Collingridge agrees!' said Landless, bursting into gruff laughter.
+She had never seen him so apoplectic. His words came spitting out. In which case I must remind you that your contract of employment stipulates that you must give me three months' notice of departure, and that until that time has elapsed we retain exclusive rights over all your journalistic work If you insist, we shall rigidly enforce that provision, in the courts if necessary which would ruin your career once and for all. Face it, your copy isn't going to get printed here or anywhere else. Wise up, Mattie, accept the offer. It's the best one you are going to get!'
 
-He tapped the ash off his thick Havana cigar and savoured the large cognac before returning to his guest.
+She knew now what her grandfather must have felt as he set out from his fishing village on the Norwegian fjord, knowing that once he had started he could never turn back even though ahead of him lay enemy patrol boats, mine fields, and nearly a thousand miles of hostile, stormy seas. She would need some of his courage, and his good fortune.
 
-‘Frankie, I invited you here this evening to ask just one question. I shan't beat around the bush, and I shall thank you to be absolutely blunt with me. Are you going to stand for the leadership?' He glared directly at Urquhart, trying to intimidate him into total frankness.
+She gathered up the papers on Preston's desk and ripped them slowly in half before letting them flutter back into his lap.
 
-‘I can't tell yet. The situation is very unclear, and I shall have to wait for the dust to settle a little...'
+'You can keep the words. But you don't own the truth. I'm not sure you would even recognise it. I still quit.' This time she slammed the door.
 
-'OK, Frankie, let me put it this way. Do you want it? Because if you do, old son, I can be very helpful to you.'
+SUNDAY 14th NOVEMBER -MONDAY 15th NOVEMBER
 
-Urquhart returned his host's direct stare, looking deep into the protruding, bloodshot eyes.
+Some two weeks earlier, immediately after the Telegraph had published the Landless opinion poll, Urquhart in his
 
-‘I want it very, very much.'
+capacity as Chief Whip had written to all of his parliamentary colleagues on the weekly Whips7 circular which is sent to party MPs.
 
-It was the first time he admitted to anyone other than himself his burning desire to hold the reins of 'Prime
+During the course of the leadership election, newspapers and opinion pollsters will undoubtedly be
 
-Ministerial power, yet with Landless, who wore his naked ambition on his sleeve, he felt no embarrassment in the confession.
+trying to obtain your view as to whom you are likely to support. I would encourage you not to cooperate,
 
-'That's good. Let's start from there. Let me tell you what the Telegraph will be running tomorrow. It's an analysis
+since at best the results of these surveys can only ‘ serve to disrupt the proper conduct of what is supposed to be a confidential ballot, and at worst will be used by the less responsible press to make mischief
 
-piece by our political correspondent, Mattie Storin. Pretty blonde girl with long legs and big blue eyes - d'you know her, Frankie?'
+and subject our affairs to lurid headlines and comment. The best interests of the Party can only be served by discouraging such activity.
 
-'Yes,' mused Urquhart. 'Only professionally, of course,'
+The majority of the Parliamentary Party was more than happy to cooperate, although it is a well established fact that at least a third of MPs are constitutionally incapable of keeping anything quiet, even state secrets.
 
-he hastened to add as he saw the fleshy lips of his companion preparing a lewd comment. 'Bright, too. I'm interested to discover how she sees things.'
+As a result, the two opinion polls which appeared in the Sunday press following Mattie's abrupt departure from Preston's office were profoundly incomplete, leaving the pollsters scratching their heads at the Telegraph's earlier persuasiveness. Less than 40 per cent of the 337 Government MPs who constituted the electorate for the ballot had responded to the polling companies' pestering telephone calls, which gave the impression that the Parliamentary
 
-'Says it is an open race for the leadership, that Collingridge's resignation has come so quickly and unexpectedly that no potential successor has got his public case prepared very well. So almost anything could happen.'
+Party was still a long way from making up its mind. Moreover, the small sample of those who had agreed to
 
-￼‘I believe she is right,' nodded Urquhart. 'Which worries me. The whole election process could be over in less than
+respond gave no clear indication as to the likely result. Samuel was ahead, but only narrowly and to a degree which the pollsters emphasised was 'not statistically significant'. Woolton, McKenzie and Earle followed in close order, with the four other declared candidates a little further behind.
 
-three weeks, and it's the slick, flashy television performers who will gain the best start. The tide is eveiything in
+The conclusions to be drawn from such insubstantial evidence were flimsy, but made excellent headlines, just four days before the close of nominations.
 
-winning these contests; if it's with you, it will sweep you home; flowing against you, then no matter how good a swimmer you are, you'll still drown’
+'Samuel slipping - early lead lost', roared the Mail on Sunday, while the Observer was scarcely less restrained in declaring 'Party in turmoil as poll reveals great uncertainty'.
 
-'Which slick, flashy television performers in particular?' Try Michael Samuel’
+Tlie inevitable result was a flurry of editorials hostile to the Party, criticising both the quality of the candidates and their campaigns. 'This country has a right to expect more of the governing Party than the undignified squabbling we have been subjected to in recent days and the lacklustre and uninspired manner in which it is deciding its fate,'
 
-'Mmmm, young, impressive, principled, seems intelligent — not at all to my liking. He wants to interfere in
+the Sunday Express intoned. 'We may be witnessing a governing Party which is finally running out of steam,
 
-everything, rebuild the world. Got too much of a conscience for my liking, and not enough experience in taking hard, sound decisions.'
+ideas and leadership after too long in power.'
 
-'So what do we do?' asked Urquhart.
+The following day's edition of the Daily Telegraph was intended to resolve all that. Just three days before the close
 
-Landless cupped the crystal goblet in his huge hands, swirled the dark liquor and chuckled quietly.
+of nominations, it put aside convention and for the first time in its history ran its editorial on the front page. Its
 
-'Frankie, tides turn. You can be swimming strongly for the shore one minute, and the next be swept out to sea.. ‘
+print run was increased and a copy was hand delivered to the London addresses of all Government MPs. No punches were pulled in its determination to make its views heard throughout the corridors of Westminster.
 
-He took a huge gulp of cognac, raised his finger to order another round, and settled his bulk as comfortably as he could into his chair before resuming the conversation.
+This paper has consistently supported the Government, not through blind prejudice but because we felt that they served the interests of the nation better than the alternatives. Throughout the Thatcher years our convictions were well supported by the progress which was made in restoring the economy to health and the inroads which began to be made in some of the more pressing social problems.
 
-'Frankie, this afternoon I instructed a small and extremely confidential team at the Telegraph to start contacting as many of the Government's Members of Parliament as they can get hold of in the next twenty-four hours to ask which way they are going to vote. In the next
+In recent months we began to feel that Henry Collingridge was not the best leader to write the next
 
-edition of the Telegraph, they will publish the results -which I confidently predict will show Mr Samuel with
+chapter, and we supported his decision to resign. However, there is now a grave danger that the lack of judgement being shown by all the present contenders for his job will threaten a return to the bad old ways of weakness and indecisiveness which we hoped had been left behind for good.
 
-a small but clear lead over the rest of the field’
+Instead of the steadying hand which we need oh the tiller in order to consolidate the economic and social
 
-'What?' exclaimed Urquhart in horror. 'How do you know this? The poll hasn't even been finished yet...' 'Frankie, I know what the poll is going to say because I am the publisher of the bloody newspaper’ 'You mean you've fixed it? But why are you pushing Samuel?'
+advances of recent years, we have so far been offered a
 
-'Because although the poll will show a very reasonable level of support for you, at the moment you can't win the
+choice between youthful inexperience, environmental upheaval and injudicious outbursts bordering ‘ on racial intolerance.
 
-contest. You're the Chief Whip, you don't have any great public platform from which to preach, and if it becomes a free-for- all you're going to get trampled in the rush’
+This choice is insufficient. The Government and the country need a leader who has maturity, who has
 
-Urquhart had to acknowledge the weakness of his position as the faceless man of Government.
+a sense of discretion, who has a proven capacity for working with all his colleagues in the Parliamentary Party.
 
-'So we push Mr Samuel, get him off to a roaring start, which means instead of a free-for-all we have a target at which everyone is going to shoot. In a couple of weeks' time, he's going to be amazed at the number of bad friends he's got within the Party, all trying to do him down. Hell be on the defensive. Fighting the tide.'
+There is at least one senior figure in the Party who not only enjoys all of these attributes, but who in recent weeks has been almost unique in remembering the need to uphold the dignity of Government and who, so rare in present day politics, has shown himself capable of putting aside his own personal ambition for what he perceives as being the wider interests of his Party.
 
-Urquhart was astonished at the clarity of the Landless analysis, and began to understand why the East-Ender had become such a striking success in the business world.
+He has announced that it is not his intention to seek election as Leader of the Party, but he still has time to reconsider before nominations close on Thursday. We believe it would be in the best interests of all concerned if the Chief Whip, Francis Urquhart, were to stand and to be elected.
 
-'So where do I come into this great plan?'
+There were forty press, television and radio men waiting outside Urquhart's home in Cambridge Street when he emerged at 8.10 that morning. He had been waiting rather nervously inside, wanting to ensure that the timing of his exit enabled BBC radio's Today programme and all breakfast television channels to take it live. Attracted by the scramble of newsmen, a host of passers-by and commuters from nearby Victoria Station had gathered to discover the cause for the commotion, and the live television pictures suggested a crowd showing considerable interest in the
 
-'You've got to develop a unique selling proposition for yourself, something which will be attractive to your fellow MPs and set you apart from your rivals.'
+man who now emerged onto the doorstep, looking down on the throng.
 
-'Such as?' asked the bewildered Urquhart.
+The shouted questions from the journalists were identical, and he waved a hand to quieten them so that his
 
-'Frankie, you become the archetypal compromise candidate. While all those other bastards are shooting and stabbing each other in public, you slip quietly through as the man they all hate least.'
+answer could be heard. The hand also contained a copy of that morning's Telegraph, and for a moment it looked as if he were giving a victory salute which only encouraged the scramble still further, but eventually he managed to bring a degree of calm to the proceedings.
 
-'That's what the Social Democrats used to pin their hopes on. Remember them? And frankly I'm not sure I have much of a reputation as being the obvious compromise candidate.'
+'Ladies and Gentlemen, as Chief Whip I would like to think you had gathered here because of your interest in
 
-'But the Social Democrats didn't have my help or my bunch of newspapers behind them. You will. High risks, I know, Frankie. But then they are high rewards.'
+the details of the Government's forthcoming legislative programme, but I suspect you have other things on your mind.'
 
-'What do I have to do?'
+The gentle quip brought a chuckle from the journalists and put Urquhart firmly in control.
 
-To catch the tide, your timing has to be right Frankly, I would be happier if there were a little time - perhaps a
+'I have read with considerable surprise and obvious interest this morning's edition of the Telegraph.' He held it
 
-month - between now and when the voting starts to give the other contenders time to tire, for their campaigns to ship a little water and to get everyone bored with the choice of candidates on offer. Then you discover a large press campaign promoting your late and unexpected entry into the race, which brings back an element of excitement and relief. The tide starts running with you, Francis.'
+up again so that the cameras could get a clear shot. ‘I am
 
-Urquhart rioted that Landless had called him by his proper name for the first time. The man was absolutely serious about his proposal. 'So you want me to see if I can slow the election procedure down a little’
+honoured that such a significant and authoritative newspaper should hold a high opinion of my personal capabilities — one which goes far beyond my own judgement of the matter. As you know, I had made it clear that I had no
 
-'Can you do it?'
+intention of standing, that I thought it was in the Party's best interest that the Chief Whip should stand above this particular contest.' He cleared his throat. 'Generally that is still my view.
 
-'Although Humphrey Newlands runs the election, according to the Party's constitution the timing of the
+However, the Telegraph raises some important points which should be considered carefully. You will forgive me
 
-￼ballot is entirely in the hands of the Prime Minister, and he would do nothing to help Teddy Williams' favoured candidate. So I think there's a damned good chance...'
+if I don't come to an instant or snap judgement out here on the pavement. I want to spend a little time consulting with
 
-TUESDAY 26th OCTOBER
+a few colleagues to obtain their opinions, and also to have a long and serious discussion with my wife, whose views
 
-'Prime Minister, I haven't had a chance to speak with you since your announcement yesterday. I can't tell you how shocked and - devastated I was.'
+will be most important of all. I shall then sleep upon it, and let you all know tomorrow what decision I have reached. In
 
-'Francis, that's very kind of you. But no sympathy, please. I feel absolutely content with the situation. In
+the meantime, I hope you will allow me and my family a few hours of peace to think about things. I shall have nothing more to say until tomorrow.'
 
-any event, I have little time today for second thoughts. Humphrey Newlands is coming in twenty minutes so we
+With one final wave of his hand, still clutching the newspaper and held for many seconds to satisfy the screaming photographers, Urquhart withdrew into his house and shut the door firmly.
 
-can get the leadership election process under way, then I'm off to spend the rest of the day with my brother Charles. It's marvellous to have time for such things!' he exclaimed.
+By Monday evening, Mattie was beginning to wonder
 
-Urquhart was astonished to see he meant every word of it.
+whether she had been too hasty. After storming out of
 
-'Prime Minister, you don't appear to be in a mood for maudlin sentiments, so I shan't spend any time adding to them. But you must know how deeply saddened I am. As I listened to you yesterday I felt as if I... were falling out of the sky, quite literally. But enough- Let's look forward, not back. It seems to me that some of our colleagues have served you rather badly in recent months, not showing the support you deserved. Now while you have already said you will not support any particular candidate in the election, I suspect you have some clear views as to whom you do not wish to get his hands on the leadership. As things stand at the moment I have no intention of becoming a candidate myself, so I thought you might like me to keep
+Preston's office she had persuaded herself that she had
 
-you informed of what's going on and give you some feedback from the Parliamentary Party on the state of play. I know you are not going to interfere, but perhaps that won't stop you taking a close interest...'
+resolved all her personal and professional problems in one
 
-They both knew that even a failed Party Leader in his last days still has enough influence to sway a crucial body of opinion within the Parliamentary Party. It is not only the favours he has accumulated from placemen over time, but also the not inconsiderable matter of his nominations for the Resignation Honours List, which every retiring Prime Minister is allowed to make. For many senior members of the Party, this would be their last chance to rise above the mob of ordinary parliamentarians and achieve the social status to which their wives had so long aspired.
+grand gesture - no more Krajewski, certainly no more
 
-'Francis, that's most understanding’ Collingridge was clearly in a relaxed and very trusting mood.' You know, the
+Preston, just the story to concentrate on. Yet now she was
 
-Prime Minister is expected to be aware of everything that's going on but, as I have discovered to my cost, it's so easy to
+not so sure. She had spent a lonely weekend identifying the
 
-get isolated, to have events just slip past you without making any contact with them. I suspect dear old Sir
+newspapers for which she would like to work, but as she did so she quickly realised that none of them had any obvious gaps in their political reporting teams which she could hope to fill. The newspaper world is highly competitive, and although she could offer youthful energy and talent in abundance, she had just thrown away the track record of experience on which most editors hire their staff.
 
-Humphrey is past giving the best intelligence on the state of parliamentary opinion, so I would very much welcome
+She had made many telephone calls but they had led to few appointments; she began to discover that somebody was spreading a story that she had stormed out in tears when Preston had questioned her judgement, and sensitive feminine outbursts do not generally commend themselves to the heavily male-dominated club of newspaper editors.
 
-your advice. As you so delicately put it, I shall certainly take a close interest in the matter of who is to succeed me. So tell me, how do things look?'
-
-Tarry days yet, very difficult to tell. I trunk most of the press are right to suggest it's an open race. But I would expect things to develop quickly once they get going.'
-
-'No front runners yet, then?'
-
-'Well, one perhaps who seems to have something of a head start. Michael Samuel.' 'Michael! Why so?'
-
-'Simply that it's going to be a short and furious race, with little room for developing solid arguments or issues. In
-
-those circumstances, the ones who use television well are going to have a strong advantage. And, of course, he's going to have the strong if subtle support of Teddy and party headquarters.'
-
-Collingridge's face clouded. 'Yes. I see what you mean.' He drummed his fingers loudly on the arm of his chair, weighing his words carefully.
-
-'Francis, I shall be absolutely scrupulous in not favouring any candidate in this race. My only concern is to let the Party have a fair and free leadership election so they can make their own choice. But you make it sound as if the election won't be as open as it perhaps should be, with party headquarters playing too influential a role’
-
-He chose his words carefully, and uttered them slowly and softly. ‘I would not welcome that. I don't think Teddy's
+It did not help her mood that the Bank of England had pushed up interest rates sharply to protect sterling from speculators while a new Prime Minister was selected, leading the building societies that morning to threaten a rise in the mortgage rate. It made her realise that she would have no apparent means of paying for it. It was difficult enough with a salary. Without one, her affairs could very soon become impossible.
 

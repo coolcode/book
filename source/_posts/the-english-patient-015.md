@@ -1,101 +1,125 @@
 title: The English Patient 015
-date: 2015-01-24 15:44:19
+date: 2015-01-25 03:46:02
 tags: the-english-patient
 ---
 
-“I’ll take them back in a minute.”
+Earlier, when she saw that he had left the window alcove, she had been enraged. Knowing that he was protecting them like children from the mine. She had clung closer to Caravag-gio. It had been an insult. And tonight the growing exhilaration of the evening didn’t permit her to read after Caravaggio had gone to bed, stopping to rifle through her medicine box first, and after the English patient had plucked at the air with his bony finger and, when she had bent over, kissed her cheek.
 
-第54页共162页 http://www.en8848.com.cn/ 原版英语阅读网
+She had blown out the other candles, lit just the night stub at the bedside table and sat there, the Englishman’s body facing her in silence after the wildness of his drunken speeches. “Sometime a horse I’ll be, sometime a hound. A hog, a headless bear, sometime a fire.” She could hear the spill of the wax into the metal tray beside her. The sapper had gone through town to some reach of the hill where the explosion had taken place, and his unnecessary silence still angered her.
 
-￼￼￼“It’s okay.” “Keep very still.”
+She could not read. She sat in the room with her eternally dying man, the small of her back still feeling bruised from an accidental slam against the wall during her dance with Caravaggio.
 
-He opened up his satchel for the Geiger counter and mag¬net. He ran the dial up and along the wires she was holding. No swerve to negative. No clue. Nothing. He stepped back¬wards, wondering where the trick could be.
+Now if he moves towards her she will stare him out, will treat him to a similar silence. Let him guess, make a move. She has been approached before by soldiers.
 
-“Let me tape those to the tree, and you leave.” “No. I’ll hold it. They won’t reach the tree.” “No.”
+But what he does is this. He is halfway across the room, his hand sunk to the wrist in his open satchel which still hangs off his shoulder. His walk silent. He turns and pauses beside the bed. As the English patient completes one of his long exhalations he snips the wire of his hearing aid with the cut¬ters and drops them back into the satchel. He turns and grins towards her.
 
-“Kip—I can hold them.”
+“I’ll rewire him in the morning.”
 
-“We have an impasse. There’s a joke. I don’t know where to go from here. I don’t know how complete the trick is.”
+He puts his left hand on her shoulder.
 
-Leaving her, he ran back to where he had first sighted the wire. He raised it and followed it all the way this time, the Geiger counter alongside it. Then he was crouched about ten yards from her, thinking, now and then looking up, looking right through her, watching only the two tributaries of wire she held in her hands. I don’t know, he said out loud, slowly, / don’t know. I think I have to cut the wire in your left hand, you must leave. He was pulling the radio earphones on over his head, so the sound came back into him fully, filling him with clarity. He schemed along the different paths of the wire and swerved into the convolutions of their knots, the sudden corners, the buried switches that translated them from positive to negative. The tinderbox. He remembered the dog, whose eyes were as big as saucers. He raced with the music along the wires, and all the while he was staring at the girl’s hands, which were very still holding onto them.
+David Caravaggio—an absurd name for you, of course ...” “At least I have a name.”
 
-“You’d better go.”
+“Yes.”
 
-“You need another hand to cut it, don’t you?” “I can attach it to the tree.”
+Caravaggio sits in Hana’s chair. Afternoon sun fills the room, revealing the swimming motes. The Englishman’s dark lean face with its angular nose has the appearance of a still hawk swaddled in sheets. The coffin of a hawk, Caravaggio thinks.
 
-“I’ll hold it.”
+第63页共162页 http://www.en8848.com.cn/ 原版英语阅读网
 
-He picked the wire like a thin adder from her left hand. Then the other. She didn’t move away. He said nothing more, he now had to think as clearly as he could, as if he were alone. She came up to him and took back one of the wires. He was not conscious of this at all, her presence erased. He travelled the path of the bomb fuze again, alongside the mind that had choreographed this, touching all the key points, seeing the X ray of it, the band music filling everything else.
+￼￼￼The Englishman turns to him.
 
-第55页共162页 http://www.en8848.com.cn/ 原版英语阅读网
+“There’s a painting by Caravaggio, done late in his life. David with the Head of Goliath. In it, the young warrior holds at the end of his outstretched arm the head of Goliath, ravaged and old. But that is not the true sadness in the picture. It is assumed that the face of David is a portrait of the youthful Caravaggio and the head of Goliath is a portrait of him as an older man, how he looked when he did the painting. Youth judging age at the end of its outstretched hand. The judging of one’s own mortality. I think when I see him at the foot of my bed that Kip is my David.”
 
-￼￼￼Stepping up to her, he cut the wire below her left fist before the theorem faded, the sound like something bitten through with a tooth. He saw the dark print of her dress along her shoulder, against her neck. The bomb was dead. He dropped the cutters and put his hand on her shoulder, needing to touch something human. She was saying something he couldn’t hear, and she reached forward and pulled the earphones off so silence invaded. Breeze and a rustle. He realized the click of the wire being cut had not been heard at all, just felt, the snap of it, the break of a small rabbit bone. Not letting go of her, he moved his hand down her arm and pulled the seven inches of wire out of her still tight grip.
+Caravaggio sits there in silence, thoughts lost among the floating motes. War has unbalanced him and he can return to no other world as he is, wearing these false limbs that mor¬phine promises. He is a man in middle age who has never become accustomed to families. All his life he has avoided permanent intimacy. Till this war he has been a better lover than husband. He has been a man who slips away, in the way lovers leave chaos, the way thieves leave reduced houses.
 
-She was looking at him, quizzical, waiting for his answer to what she had said, but he hadn’t heard her. She shook her head and sat down. He started collecting various objects around himself, putting them into his satchel. She looked up into the tree and then only by chance looked back down and saw his hands shaking, tense and hard like an epileptic’s, his breathing deep and fast, over in a moment. He was crouched over.
+He watches the man in the bed. He needs to know who this Englishman from the desert is, and reveal him for Hana’s sake. Or perhaps invent a skin for him, the way tannic acid camouflages a burned man’s rawness.
 
-“Did you hear what I said?”
+Working in Cairo during the early days of the war, he had been trained to invent double agents or phantoms who would take on flesh. He had been in charge of a mythical agent named “Cheese,” and he spent weeks clothing him with facts, giving him qualities of character—such as greed and a weak¬ness for drink when he would spill false rumours to the enemy. Just as some in Cairo he worked for invented whole platoons in the desert. He had lived through a time of war when everything offered up to those around him was a lie. He had felt like a man in the darkness of a room imitating the calls of a bird.
 
-“No. What was it?”
+But here they were shedding skins. They could imitate nothing but what they were. There was no defence but to look for the truth in others.
 
-“I thought I was going to die. I wanted to die. And I thought if I was going to die I would die with you. Someone like you, young as I am, I saw so many dying near me in the last year. I didn’t feel scared. I certainly wasn’t brave just now. I thought to myself, We have this villa this grass, we should have lain down together, you in my arms, before we died. I wanted to touch that bone at your neck, collarbone, it’s like a small hard wing under your skin. I wanted to place my fingers against it. I’ve always liked flesh the colour of rivers and rocks or like the brown eye of a Susan, do you know what that flower is? Have you seen them? I am so tired, Kip, I want to sleep. I want to sleep under this tree, put my eye against your collarbone I just want to close my eyes without thinking of others, want to find the crook of a tree and climb into it and sleep. What a careful mind! To know which wire to cut. How did you know? You kept saying I don’t know I don’t know, but you did. Right? Don’t shake, you have to be a still bed for me, let me curl up as if you were a good grandfather I could hug, I love the word ‘curl,’ such a slow word, you can’t rush it...”
+She pulls down the copy of Kim from the library shelf and, standing against the piano, begins to write into the flyleaf in its last pages.
 
-Her mouth was against his shirt. He lay with her on the ground as still as he had to, his eyes clear, looking up into a branch. He could hear her deep breath. When he had put his arm around her shoulder she was already asleep but had gripped it against herself. Glancing down he noticed she still had the wire, she must have picked it up again.
+He says the gun—the Zam-Zammah cannon—is still there outside the museum in Lahore. There were two guns, made up of metal cups and bowls taken from every Hindu household in the city—as jizya, or tax. These were melted down and made into the guns. They were used in many battles in the eighteenth and nineteenth centuries against Sikhs. The other gun was lost during a battle crossing in the Chenab River—
 
-It was her breath that was most alive. Her weight seemed so light she must have balanced most of it away from him. How long could he lie like this, unable to move or turn to busyness. It was essential to remain still, the way he had relied on statues during those months when they moved up the coast fighting into and beyond each fortress town until there was no difference in them, the same narrow streets everywhere that became sewers of blood so he would dream that if he lost balance he would slip down those slopes on the red liquid and be flung off the cliff into the valley. Every night he had walked into the coldness of a captured church and found a statue
+She closes the book, climbs onto a chair and nestles the book into the high, invisible shelf. She enters the painted bedroom with a new book and an¬nounces the title.
 
-第56页共162页 http://www.en8848.com.cn/ 原版英语阅读网
+“No books now, Hana.”
 
-￼￼￼for the night to be his sentinel. He had given his trust only to this race of stones, moving as close as possible against them in the darkness, a grieving angel whose thigh was a woman’s perfect thigh, whose line and shadow appeared so soft. He would place his head on the lap of such creatures and release himself into sleep.
+第64页共162页 http://www.en8848.com.cn/ 原版英语阅读网
 
-She suddenly let more weight onto him. And now her breathing stretched deeper, like the voice of a cello. He watched her sleeping face. He was still annoyed the girl had stayed with him when he defused the bomb, as if by that she had made him owe her something. Making him feel in retro¬spect responsible for her, though there was no thought of that at the time. As if that could usefully influence what he chose to do with a mine.
+￼￼￼She looks at him. He has, even now, she thinks, beautiful eyes. Everything occurs there, in that grey stare out of his darkness. There is a sense of numerous gazes that flicker onto her for a moment, then shift away like a lighthouse.
 
-But he felt he was now within something, perhaps a paint¬ing he had seen somewhere in the last year. Some secure couple in a field. How many he had seen with their laziness of sleep, with no thought of work or the dangers of the world. Beside him there were the mouselike movements within Hana’s breath; her eyebrows rode upon argument, a small fury in her dreaming. He turned his eyes away, up towards the tree and the sky of white cloud. Her hand gripped him as mud had clung along the bank of the Moro River, his fist plunging into the wet earth to stop himself slipping back into the already crossed torrent.
+“No more books. Just give me the Herodotus.”
 
-If he were a hero in a painting, he could claim a just sleep.
+She puts the thick, soiled book into his hands.
 
-But as even she had said, he was the brownness of a rock, the brownness of a muddy storm-fed river. And something in him made him step back from even the naive innocence of such a remark. The successful defusing of a bomb ended novels. Wise white fatherly men shook hands, were acknowledged, and limped away, having been coaxed out of solitude for this special occasion. But he was a professional. And he remained the foreigner, the Sikh. His only human and personal contact was this enemy who had made the bomb and departed brush¬ing his tracks with a branch behind him.
+“I have seen editions of The Histories with a sculpted por¬trait on the cover. Some statue found in a French museum. But I never imagine Herodotus this way. I see him more as one of those spare men of the desert who travel from oasis to oasis, trading legends as if it is the exchange of seeds, consuming everything without suspicion, piecing together a mirage. ‘This history of mine,’ Herodotus says, ‘has from the begin¬ning sought out the supplementary to the main argument.’ What you find in him are cul-de-sacs within the sweep of history —how people betray each other for the sake of nations, how people fall in love.... How old did you say you were?”
 
-Why couldn’t he sleep? Why couldn’t he turn towards the girl, stop thinking everything was still half lit, hanging fire? In a painting of his imagining the field surrounding this em¬brace would have been in flames. He had once followed a sapper’s entrance into a mined house with binoculars. He had seen him brush a box of matches off the edge of a table and be enveloped by light for the half-second before the crumpling sound of the bomb reached him. What lightning was like in 1944. How could he trust even this circle of elastic on the sleeve of the girl’s frock that gripped her arm? Or the rattle in her intimate breath as deep as stones within a river.
+“Twenty.”
 
-She woke when the caterpillar moved from the collar of her dress onto her cheek, and she opened her eyes, saw him crouched over her. He plucked it from her face, not touching her skin, and placed it in the grass. She noticed he had already packed up his equipment. He moved back and sat against the tree, watching her as she rolled slowly onto her back and then stretched, holding that moment for as long as she could. It must have been afternoon, the sun over there. She leaned her head back and looked at him.
+“I was much older when I fell in love.”
 
-“You were supposed to hold onto me!”
+Hana pauses. “Who was she?”
 
-第57页共162页 http://www.en8848.com.cn/ 原版英语阅读网
+But his eyes are away from her now.
 
-￼￼￼“I did. Till you moved away.”
+Birds prefer trees with dead branches,” said Caravaggio. “They have complete vistas from where they perch. They can take off in any direction.”
 
-“How long did you hold me?”
+“If you are talking about me,” Hana said, “I’m not a bird. The real bird is the man upstairs.”
 
-“Until you moved. Until you needed to move.”
+Kip tried to imagine her as a bird.
 
-“I wasn’t taken advantage of, was I?” Adding, “Just joking,” as she saw him beginning to blush.
+“Tell me, is it possible to love someone who is not as smart as you are?” Caravaggio, in a belligerent morphine rush, wanted the mood of argument. “This is something that has concerned me most of my sexual life—which began late, I must announce to this select company. In the same way the sexual pleasure of conversation came to me only after I was married. I had never thought words erotic. Sometimes I really do like to talk more than fuck. Sentences. Buckets of this buckets of that and then buckets of this again. The trouble with words is that you can really talk yourself into a corner. Whereas you can’t fuck yourself into a corner.”
 
-“Do you want to go down to the house?”
+“That’s a man talking,” muttered Hana.
 
-“Yes, I’m hungry.”
+第65页共162页 http://www.en8848.com.cn/ 原版英语阅读网
 
-She could hardly stand up, the dazzle of sun, her tired legs. How long they had been there she still didn’t know. She could not forget the depth of her sleep, the lightness of the plummet.
+￼￼￼“Well, I haven’t,” Caravaggio continued, “maybe you have, Kip, when you came down to Bombay from the hills, when you came to England for military training. Has anyone, I wonder, fucked themselves into a corner. How old are you, Kip?”
 
-A party began in the English patient’s room when Caravaggio revealed the gramophone he had found somewhere.
+“Twenty-six.”
 
-“I will use it to teach you to dance, Hana. Not what your young friend there knows. I have seen and turned my back on certain dances. But this tune, ‘How Long Has This Been Going On,’ is one of the great songs because the introduction’s melody is purer than the song it introduces. And only great jazzmen have acknowledged that. Now, we can have this party on the terrace, which would allow us to invite the dog, or we can invade the Englishman and have it in the bedroom up¬stairs. Your young friend who doesn’t drink managed to find bottles of wine yesterday in San Domenico. We have not just music. Give me your arm. No. First we must chalk the floor and practise. Three main steps—one-two-three—now give me your arm. What happened to you today?”
+“Older than I am.”
 
-“He dismantled a large bomb, a difficult one. Let him tell you about it.”
+“Older than Hana. Could you fall in love with her if she wasn’t smarter than you? I mean, she may not be smarter than you. But isn’t it important for you to think she is smarter than you in order to fall in love? Think now. She can be obsessed by the Englishman because he knows more. We’re in a huge field when we talk to that guy. We don’t even know if he’s English. He’s probably not. You see, I think it is easier to fall in love with him than with you. Why is that? Because we want to know things, how the pieces fit. Talkers seduce, words direct us into corners. We want more than anything to grow and change. Brave new world.”
 
-The sapper shrugged, not modestly, but as if it was too complicated to explain. Night fell fast, night filled up the valley and then the mountains and they were left once more with lanterns.
+“I don’t think so,” said Hana.
 
-They were shuffling together in the corridors towards the English patient’s bedroom, Caravaggio carrying the gramo¬phone, one hand holding its arm and needle.
+“Neither do I. Let me tell you about people my age. The worst thing is others assume you have developed your charac¬ter by now. The trouble with middle age is they think you are fully formed. Here.”
 
-“Now, before you begin on your histories,” he said to the static figure in the bed, “I will present you with ‘My Romance.’
+Here Caravaggio lifted up his hands, so they faced Hana and Kip. She got up and went behind him and put her arm around his neck.
 
-“Written in 1935 by Mr. Lorenz Hart, I believe,” muttered the Englishman. Kip was sitting at the window, and she said she wanted to dance with the sapper.
+“Don’t do this, okay, David?”
 
-“Not until I’ve taught you, dear worm.”
+She wrapped her hands softly around his. “We’ve already got one crazy talker upstairs.”
 
-第58页共162页 http://www.en8848.com.cn/ 原版英语阅读网
+“Look at us—we sit here like the filthy rich in their filthy villas up in the filthy hills when the city gets too hot. It’s nine in the morning—the old guy upstairs is asleep. Hana’s ob¬sessed with him. I am obsessed with the sanity of Hana, I’m obsessed with my ‘balance,’ and Kip will probably get blown up one of these days. Why? For whose sake? He’s twenty-six years old. The British army teaches him the skills and the Americans teach him further skills and the team of sappers are given lectures, are decorated and sent off into the rich hills. You are being used, boyo, as the Welsh say. I’m not staying here much longer. I want to take you home. Get the hell out of Dodge City.”
 
-￼￼￼She looked up at Caravaggio strangely; that was her father’s term of endearment for her. He pulled her into his thick grizzled embrace and said “dear worm” again, and began the dancing lesson.
+“Stop it, David. He’ll survive.”
 
-She had put on a clean but unironed dress. Each time they spun she saw the sapper singing to himself, following the lyrics. If they had had electricity they could have had a radio, they could have had news of the war somewhere. All they had was the crystal set belonging to Kip, but he had courteously left it in his tent. The English patient was discussing the unfortunate life of Lorenz Hart. Some of his best lyrics to “Manhattan,” he claimed, had been changed and he now broke into those verses
+“The sapper who got blown up the other night, what was his name?”
+
+第66页共162页 http://www.en8848.com.cn/ 原版英语阅读网
+
+￼￼￼Nothing from Kip.
+
+“What was his name?”
+
+“Sam Hardy.” Kip went to the window and looked out, leaving their conversation.
+
+“The trouble with all of us is we are where we shouldn’t be. What are we doing in Africa, in Italy? What is Kip doing dismantling bombs in orchards, for God’s sake? What is he doing fighting English wars? A farmer on the western front cannot prune a tree without ruining his saw. Why? Because of the amount of shrapnel shot into it during the last war. Even the trees are thick with diseases we brought. The armies indoctrinate you and leave you here and they fuck off some¬where else to cause trouble, inky-dinky parlez-vous. We should all move out together.”
+
+“We can’t leave the Englishman.”
+
+“The Englishman left months ago, Hana, he’s with the Bedouin or in some English garden with its phlox and shit. He probably can’t even remember the woman he’s circling around, trying to talk about. He doesn’t know where the fuck he is.
+
+“You think I’m angry at you, don’t you? Because you have fallen in love. Don’t you? A jealous uncle. I’m terrified for you. I want to kill the Englishman, because that is the only thing that will save you, get you out of here. And I am begin¬ning to like him. Desert your post. How can Kip love you if you are not smart enough to make him stop risking his life?”
+
+“Because. Because he believes in a civilised world. He’s a civilised man.”
+
+“First mistake. The correct move is to get on a train, go and have babies together. Shall we go and ask the Englishman, the bird, what he thinks?
+
+“Why are you not smarter? It’s only the rich who can’t afford to be smart. They’re compromised. They got locked years ago into privilege. They have to protect their belongings.
+
+No one is meaner than the rich. Trust me. But they have to follow the rules of their shitty civilised world. They declare war, they have honour, and they can’t leave. But you two. We three. We’re free. How many sappers die? Why aren’t you dead yet? Be irresponsible. Luck runs out.”
 

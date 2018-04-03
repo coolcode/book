@@ -1,119 +1,69 @@
 title: Dreams from My Father 064
-date: 2015-01-24 15:43:31
+date: 2015-01-25 03:45:13
 tags: dreams-from-my-father
 ---
 
-“Don’t worry,” she said to Bernard. “Roy just likes to make everything seem so dramatic.”
+For a long time I sat between the two graves and wept. When my tears were finally spent, I felt a calmness wash over me. I felt the circle finally close. I realized that who I was, what I cared about, was no longer just a matter of intellect or obligation, no longer a construct of words. I saw that my life in America-the black life, the white life, the sense of abandonment I’d felt as a boy, the frustration and hope I’d witnessed in Chicago-all of it was connected with this small plot of earth an ocean away, connected by more than the accident of a name or the color of my skin. The pain I felt was my father’s pain. My questions were my brothers’ questions. Their struggle, my birthright.
 
-Jane’s apartment was in a hubbub when we arrived. In the kitchen, the women were cleaning collards and yams, chopping chicken and stirring ugali. In the living room, younger children set the table or served sodas to the adults. And at the center of this rush sat Roy, his legs spread out in front of him, his arms flung along the back of the sofa, nodding with approval. He waved us over and offered us each a hug. Auma, who hadn’t seen Roy since he’d moved to the States, stepped back to get a better look.
+A light rain began to fall, the drops tapping on the leaves above. I was about to light a cigarette when I felt a hand on my arm. I turned to find Bernard squatting beside me, trying to fit the two of us under a bent-up old umbrella.
 
-“You’ve become so fat!” she said.
+“They wanted me to see if you were okay,” he said.
 
-“Fat, eh?” Roy laughed. “A man needs a man-sized appetite.” He turned toward the kitchen. “Which reminds me...where’s that other beer?”
+I smiled. “Yeah. I’m okay.”
 
-No sooner had the words fallen from his mouth than Kezia came up with a beer in hand, smiling happily. “Barry,” she said in English, “this is the eldest son. Head of the family.”
+He nodded, his eyes squinting at the clouds. He turned back to me, and said “Why don’t you let me have a cigarette,
 
-Another woman whom I had never seen before, plump and heavy-breasted, with bright red lipstick, sidled up beside Roy and put her arm around him. Kezia’s smile subsided, and she drifted back into the kitchen.
+and I will sit and smoke with you.”
 
-“Baby,” the woman said to Roy, “do you have the cigarettes?”
+I looked at his smooth, dark face, and put the cigarette back in the box. “I need to quit,” I said. “Come on, let’s take a
 
-“Yeah, hold on....” Roy patted his shirt pockets carefully. “Have you met my brother, Barack? Barack, this is Amy. And you remember Auma.” Roy found the cigarettes and lit one for Amy. Amy took a long drag and leaned forward toward Auma, exhaling round puffs of smoke as she spoke.
+walk instead.”
 
-“Of course I remember Auma. How are you? Let me tell you, you look wonderful! And I like what you’ve done to your hair. Really, it’s so...natural!”
+We stood up and started toward the entrance to the compound. The young boy, Godfrey, was standing beside the
 
-Amy reached for Roy’s bottle, and Roy went to the dinner table. He grabbed himself a plate and bent down to smell the steaming pots. “Chapos!” he exclaimed, dropping three chapatis onto his plate. “Sukuma-wiki!” he shouted at the collard greens before spooning a heap onto his plate. “Ugali!” he hollered, cutting off two big wedges of cornmeal cake. Bernard and the children followed his every step, repeating Roy’s words at a more tentative volume. Around the table, our aunts and Kezia beamed with satisfaction. It was the happiest I had seen any of them since my arrival.
+cooking hut, one leg propped like a crane’s against the mud wall. He looked at us and offered a tentative smile. “Come on,” Bernard said, waving to the boy. “You can walk with us.” And so the three of us made our way over the widening dirt road, picking at leaves that grew along the way, watching the rain blow down across the several valleys.
 
-After dinner, while Amy helped the aunts wash up, Roy sat between Auma and me and announced that he had come back with big plans. He was going to start an import-export company, he said, selling Kenyan curios in the States. “Chondos. Fabrics. Wood carvings. These things are big over there! You sell them at festivals, art shows, specialty stores. I already bought some samples to take back with me.”
+EPILOGUE
 
-“That’s a great idea,” Auma said. “Show me what you’ve got.”
+I REMAINED IN KENYA FOR two more weeks. We all returned to Nairobi and there were more dinners, more arguments, more stories. Granny stayed in Auma’s apartment, and each night I fell asleep to their whispering voices. One day we gathered at a photography studio for a family portrait, and all the women wore flowing African gowns of bright greens and yellows and blues, and the men were all tall and shaven and neatly pressed, and the photographer, a slight Indian man with bushy eyebrows, remarked on what a handsome picture we made.
 
-Roy told Bernard to fetch several pink plastic bags from one of the bedrooms. Inside the bags were several wood carvings, the sort of slick, mass-produced pieces that were sold at quick turnover to the tourists downtown. Auma turned them around in her hands with a doubtful expression on her face.
+Roy flew back to Washington, D.C., shortly after that; Granny returned to Home Squared. The days suddenly became very quiet, and a certain melancholy settled over Auma and me, as if we were coming out of a dream. And maybe it was the sense that we, too, would soon be returning to our other lives, once again separate and apart, that made us decide one day to go to see George, our father’s last child.
 
-“How much did you pay for these?”
+It turned out to be a painful affair, arranged hastily and without the mother’s knowledge: we simply drove with Zeituni to a neat, single-story schoolhouse, where a group of schoolchildren were playing in a wide, grassy field. After a brief conversation with the teacher supervising the recess, Zeituni led one of the children over to us. He was a handsome, roundheaded boy with a wary gaze. Zeituni leaned down and pointed at Auma and me.
 
-“Only four hundred shillings each.”
+“This is your sister,” she said to the boy, “who used to play with you on her knee. This is your brother, who has come all the way from America to see you.”
 
-“So much! Brother, I think you’ve been cheated. Bernard, why did you let him pay so much?”
+The boy shook our hands bravely but kept glancing back at games he’d just left. I realized then that we’d made a mistake. Soon the principal of the school emerged from her office to say that unless we had the mother’s permission, we would have to leave. Zeituni began to argue with the woman, but Auma said, “No, Auntie, she’s right. We should go.” From the car, we watched George return to his friends, quickly indistinguishable from the others with round heads and knobby knees who were chasing a scuffed football through the grass. I found myself suddenly remembering then my first meeting with the Old Man, the fear and discomfort that his presence had caused me, forcing me for the first time to consider the mystery of my own life. And I took comfort in the fact that perhaps one day, when he was older, George, too, might want to know who his father had been, and who his brothers and sisters were, and that if he ever came to me I would be there for him, to tell him the story I knew.
 
-Bernard shrugged. Roy looked a bit wounded.
+That evening, I asked Auma if she knew of any good books on the Luo, and she suggested we go visit a former history teacher of hers, a tall, willowy woman named Dr. Rukia Odero, who had been a friend of the Old Man’s. When we arrived at her house, Dr. Odero was about to sit down for dinner, and she insisted that we join her. Over a meal of tilapia and ugali, the professor insisted I call her Rukia, then asked me about my impressions of the country. Had I been disappointed? she wondered. I told her that I hadn’t, although I was leaving with as many questions as answers.
 
-“I told you, these are Just samples,” he said as he folded the carvings back in their wrapping. “An investment, so I will
+“That’s good,” Rukia said, pushing her glasses up the bridge of her nose. “That’s how we historians make a living, you know. All day long we sit, trying to find new questions. It can be very tiresome, actually. It requires a temperament for mischief. You know, young black Americans tend to romanticize Africa so. When your father and I were young, it was just the opposite-we expected to find all the answers in America. Harlem. Chicago. Langston Hughes and James Baldwin. That’s where we drew our inspiration. And the Kennedys-they were very popular. The chance to study in America was very important. A hopeful time. Of course, when we returned we realized that our education did not always serve us so well. Or the people who had sent us. There was all this messy history to deal with.”
 
-know what the market wants. You can’t make money unless you spend money, eh, Barack?”
+I asked her why she thought black Americans were prone to disappointment when they visited Africa. She shook her head and smiled. “Because they come here looking for the authentic,” she said. “That is bound to disappoint a person. Look at this meal we are eating. Many people will tell you that the Luo are a fish-eating people. But that was not true for all Luo. Only those who lived by the lake. And even for those Luo, it was not always true. Before they settled around the lake, they were pastoralists, like the Masai. Now, if you and your sister behave yourself and eat a proper share of this food, I will offer you tea. Kenyans are very boastful about the quality of their tea, you notice. But of course we got this habit from the English. Our ancestors did not drink such a thing. Then there’s the spices we used to cook this fish. They originally came from India, or Indonesia. So even in this simple meal, you will find it very difficult to be authentic-although the meal is certainly African.”
 
-“That’s what they say.”
+Rukia rolled a ball of ugali in her hand and dipped it into her stew. “You can hardly blame black Americans, of course, for wanting an unblemished past. After the cruelties they’ve suffered-still suffer, from what I read in the newspapers. They’re not unique in this desire. The European wants the same thing. The Germans, the English...they all claim Athens and Rome as their own, when, in fact, their ancestors helped destroy classical culture. But that happened so long ago, so their task is easier. In their schools, you rarely hear about the misery of European peasants throughout
 
-Roy’s enthusiasm quickly returned. “You see? Once I know the market, then I will send orders back to Zeituni. We’ll
+most of recorded history. The corruption and exploitation of the Industrial Revolution, the senseless tribal wars-it’s shameful how the Europeans treated their own, much less colored peoples. So this idea about a golden age in Africa, before the white man came, seems only natural.”
 
-build the business up slowly, you see. Slow-ly. Then, when we have a regular system, Bernard and Abo can go to work for the company. Eh, Bernard? You can work for me.”
+“A corrective,” Auma said.
 
-Bernard nodded vaguely. Auma studied her younger brother, then turned back to Roy. “So what’s the other big plan?”
+“Truth is usually the best corrective,” Rukia said with a smile. “You know, sometimes I think the worst thing that colonialism did was cloud our view of our past. Without the white man, we might be able to make better use of our history. We might look at some of our former practices and decide they are worth preserving. Others, we might grow out of. Unfortunately, the white man has made us very defensive. We end up clinging to all sorts of things that have outlived their usefulness. Polygamy. Collective land ownership. These things worked well in their time, but now they most often become tools for abuse. By men. By governments. And yet, if you say these things, you have been infected by Western ideology.”
 
-Roy smiled. “Amy,” he said.
+“So how should we adapt?” Auma said.
 
-“Amy?”
+Rukia shrugged. “I leave such answers up to policy makers. I’m only a historian. But I suspect that we can’t pretend that the contradictions of our situation don’t exist. All we can do is choose. For example, female circumcision is an important Kikuyu custom. With the Masai also. To a modern sensibility, it is barbaric. Perhaps we could arrange to have all these operations performed in hospitals and cut down on the death rate. Keep the bleeding to a minimum. But you cannot really have half a circumcision. This leaves no one satisfied. So we must choose. The same is true of the rule of law, the notion of independent inquiry-these things may conflict with tribal loyalties. You cannot have rule of law and then exempt certain members of your clan. What to do? Again you choose. If you make the wrong choice, then you learn from your mistakes. You see what works.”
 
-“Amy. I’m going to marry her.”
+I licked my fingers and washed my hands. “But isn’t there anything left that is truly African?”
 
-“What? How long has it been since you last saw her?” “Two years. Three. What does it matter?”
+“Ah, that’s the thing, isn’t it?” Rukia said. “There does seem to be something different about this place. I don’t know what it is. Perhaps the African, having traveled so far so fast, has a unique perspective on time. Or maybe it is that we have known more suffering than most. Maybe it’s just the land. I don’t know. Maybe I am also the romantic. I know that I cannot stay away from here too long. People still talk to each other here. When I visit the States, it seems a very lonely place-”
 
-“You haven’t had much time to think about it.”
+Suddenly, all the lights in the house went out. Rukia sighed-blackouts were becoming more common, she said-and I handed her my lighter to light the candles she kept on the mantelpiece. Sitting in the darkness, I remembered the stories Zeituni had told us, and remarked that the night runners must be out. Rukia lit the candles, their glow shaping her face into a mask of laughter.
 
-“She’s an African woman. I know that! She understands me. Not like these European women, always arguing with their men.” Roy nodded emphatically, and then, as if he were being yanked by an invisible string, he jumped out of his seat and headed toward the kitchen. Taking Amy in one arm, he lifted his bottle of beer toward the ceiling.
+“You know about the night runners, then! Yes, they are very powerful in the darkness. There used to be many in our area, back home. It was said they walked with the hippos at night. I remember once-”
 
-“Listen, everybody! Now that we are all here, we must have a toast! To those who are not with us! And to a happy ending!” With solemn deliberation, he started to pour his beer onto the floor. At least half of the beer splashed on Auma’s shoes.
+As suddenly as they had died, the light bulbs popped back on. Rukia blew out the candles and shook her head. “Alas, in the city the lights do come on eventually. My daughter, she has no use for night runners. You know, her first language is not Luo. Not even Swahili. It is English. When I listen to her talk with her friends, it sounds like gibberish to me. They take bits and pieces of everything-English, Swahili, German, Luo. Sometimes, I get fed up with this. Learn to speak one language properly, I tell them.” Rukia laughed to herself. “But I am beginning to resign myself-there’s
 
-“Aggh!” Auma shouted, jumping back. “What are you doing?”
+nothing really to do. They live in a mixed-up world. It’s just as well, I suppose. In the end, I’m less interested in a daughter who’s authentically African than one who is authentically herself.”
 
-“The ancestors must drink,” Roy said cheerfully. “It is the African way.”
-
-Auma grabbed a napkin to wipe the beer off her legs. “That’s outdoors, Roy! Not in somebody’s house! I swear,
-
-sometimes you’re so careless! Who will clean this up now? You?”
-
-Roy was about to answer when Jane rushed up with a rag in her hand. “Don’t worry, don’t worry!” she said, wiping
-
-up the floor. “We are just happy to have this one home.”
-
-It had been decided that after dinner we would all go out dancing at a nearby club. As Auma and I headed down the
-
-stairs ahead of the others, I heard her muttering to herself in the darkness.
-
-“You Obama men!” she said to me. “You get away with anything! Have you noticed how they treat him? As far as
-
-they are concerned, he can do no wrong. Like this thing with Amy. This is just an idea that has popped into his head because he’s lonely. I have nothing against Amy, but she’s as irresponsible as he is. When they’re together, they make each other worse. My mum, Jane, Zeituni-they all know this. But will they say anything to him? No. Because they’re so afraid to offend him, even if it’s for his own good.”
-
-Auma opened the car door and looked back at the rest of the family. They had just emerged from the shadows of the apartment building, Roy’s figure towering over the others like a tree, his arms spread out like branches over the shoulders of his aunts. The sight of him softened Auma’s face just a bit.
-
-“Yah, it’s not really his fault, I suppose,” she said, starting up the car. “You see how he is with them. He’s always been more of a family person than me. They don’t feel judged with him.”
-
-The club, Garden Square, turned out to be a low-roofed, dimly lit place. It was already packed when we arrived, the air thick with cigarette smoke. The clientele was almost all African, an older, after work crowd of clerks, secretaries, government workers, all gathered around wobbly Formica tables. We pushed together two empty tables away from the small stage, and the waiter took our orders. Auma sat down next to Amy.
-
-“So, Amy. Roy tells me you two are thinking about getting married.”
-
-“Yes, isn’t it wonderful! He’s so much fun! When he settles down, he says I can come to stay with him in America.”
-
-“You don’t worry about being apart? I mean...”
-
-“Other women?” Amy laughed and winked at Roy. “I tell you honestly, I don’t care about that.” She swung her fleshy arm over Roy’s shoulder. “As long as he treats me well, he can do what he likes. Right, baby?”
-
-Roy maintained a poker face, as if the conversation didn’t concern him. Both he and Amy had the sheen of too many beers, and I saw Jane sneak an anxious look at Kezia. I decided to change the subject, and asked Zeituni if she’d been to Garden Square before.
-
-“Me?” Zeituni raised her eyebrows at my impertinence. “Let me tell you, Barry-if there is dancing somewhere, then I have been to that place. These people here will tell you that I am the champion dancer. What do you say, Auma?”
-
-“Zeituni’s the best.”
-
-Zeituni tilted her head proudly. “You see? Really, Barry, your auntie can dance! And you want to know who was always my best partner? Your father! That guy, he really loved to dance. We entered many contests together when we were young. In fact, I’ll tell you this story about his dancing. It was when he had come home to Alego one time to visit with your grandfather. He had promised that evening to do some chore for the old man-I don’t remember what it was- but instead of doing his work, he went out to meet Kezia and take her dancing. You remember, Kezia? This is before they were married. I wanted to go with them, but Barack said I was too young.
-
-“Anyway, they came home late that night, and Barack had had a few too many beers. He tried to sneak Kezia into his hut, but the old man was still awake and heard their footsteps in the compound. Even as an old man, your grandfather’s hearing was very keen. So right away he shouts for Barack to come. When Barack comes in, the old man doesn’t say a word. He just looks at Barack and snorts like an angry bull. Hmmmph! Hmmmph! And this whole time, I am peeking through the window of the old man’s house, because I’m sure that the old man will cane Barack and I’m still angry at Barack, for not letting me go to the dance hall.
-
-“What happened next, I couldn’t believe. Instead of apologizing for coming home late, Barack walked over to the old man’s phonograph and started to play a record! Then he turned and shouted to Kezia, who was hiding outside. ‘Woman!’ Barack shouted. ‘Come here!’ Right away Kezia came into the house, too frightened to refuse, and Barack took her in his arms and began to dance with her, around and around in the old man’s house, as if he were dancing in a palace ballroom.”
-
-Zeituni shook her head and laughed. “Well now...no one treated your grandfather this way, not even Barack. I was sure now that for this thing Barack must be beaten severely. For a long time, your grandfather said nothing. He just sat there, watching his son. Then, like an elephant, he shouted out even louder than Barack. ‘Woman! Come here!’ And right away my mum, the one you call Granny, rushed in from her own hut, where she had been mending clothes. She asked why everyone was shouting, and your grandfather stood up and held out his hand. My mum shook her head and accused your grandfather of trying to make a fool of her, but the old man was so determined that soon all four of them were dancing in the hut, the two men looking very serious, the women looking at each other as if now they were sure that their husbands were crazy.”
-
-We all laughed at the story, and Roy ordered another round for everyone. I started to ask Zeituni more about our grandfather, but just then the band took up their positions on stage. The group looked a bit ragged at first, but the moment they struck their first note, the place was transformed. Immediately, people began pouring out onto the dance
-
-floor, stepping to the soukous beat. Zeituni grabbed my hand, and Roy took Auma’s, and Amy took Bernard’s, and soon we were all dancing into a sweat, arms and hips and rumps swaying softly; tall, ink-black Luos and short, brown Kikuyus, Kamba and Meru and Kalenjin, everyone smiling and shouting and having a ball. Roy threw his arms over his head to do a slow, funky turn around Auma, who was laughing at her brother’s silliness, and right then I saw in my brother’s face the same look I had seen years ago in Toot and Gramps’s apartment back in Hawaii, when the Old Man had first taught me how to dance-that same look of unquestioned freedom.
-
-After three or four numbers, Roy and I both relinquished our partners and carried our beers into the open courtyard out back. The cool air tickled my nose, and I felt a bit tipsy.
+It was getting late; we thanked Rukia for her hospitality and went on our way. But her words would stay with me, bringing into focus my own memories, my own lingering questions. On the last weekend of my stay, Auma and I took the train to the coast and stayed at an old beachfront hotel in Mombasa that had once been a favorite of the Old Man’s. It was a modest, clean place, in August filled mostly with German tourists and American sailors on shore leave. We didn’t do much, just read and swam and walked along the beach, watching pale crabs scurry like ghosts into their sandy holes. The following day we visited Mombasa’s Old Town and climbed the worn stairs of Fort Jesus, first built by the Portuguese to consolidate control of trade routes along the Indian Ocean, later overrun by the swift Omani fleets, later still a beachhead for the British as they moved inland in search of ivory and gold, now an empty casing of stone, its massive walls peeling like papier-m&#226;ch&#233; in strips of pale orange and green and rose, its dormant cannons pointing out to a tranquil sea where a lone fisherman cast out his net.
 

@@ -1,97 +1,105 @@
 title: Dreams from My Father 017
-date: 2015-01-24 15:44:17
+date: 2015-01-25 03:46:00
 tags: dreams-from-my-father
 ---
 
-“What’s the matter?” Ray shouted over the music when I went to let him know we were leaving. “Things just starting to heat up.”
+“I’m not black,” Joyce said. “I’m multiracial.” Then she started telling me about her father, who happened to be Italian and was the sweetest man in the world; and her mother, who happened to be part African and part French and part Native American and part something else. “Why should I have to choose between them?” she asked me. Her voice cracked, and I thought she was going to cry. “It’s not white people who are making me choose. Maybe it used to be that way, but now they’re willing to treat me like a person. No-it’s black people who always have to make everything racial. They’re the ones making me choose. They’re the ones who are telling me that I can’t be who I am....”
 
-“They’re not into it, I guess.”
+They, they, they. That was the problem with people like Joyce. They talked about the richness of their multicultural heritage and it sounded real good, until you noticed that they avoided black people. It wasn’t a matter of conscious choice, necessarily, just a matter of gravitational pull, the way integration always worked, a one-way street. The minority assimilated into the dominant culture, not the other way around. Only white culture could be neutral and objective. Only white culture could be nonracial, willing to adopt the occasional exotic into its ranks. Only white culture had individuals. And we, the half-breeds and the college-degreed, take a survey of the situation and think to ourselves, Why should we get lumped in with the losers if we don’t have to? We become only so grateful to lose ourselves in the crowd, America’s happy, faceless marketplace; and we’re never so outraged as when a cabbie drives past us or the woman in the elevator clutches her purse, not so much because we’re bothered by the fact that such indignities are what less fortunate coloreds have to put up with every single day of their lives-although that’s what we tell ourselves-but because we’re wearing a Brooks Brothers suit and speak impeccable English and yet have somehow been mistaken for an ordinary nigger.
 
-Our eyes met, and for a long stretch we just stood there, the noise and laughter pulsing around us. There were no traces of satisfaction in Ray’s eyes, no hints of disappointment; just a steady gaze, as unblinking as a snake’s. Finally he put out his hand, and I grabbed hold of it, our eyes still fixed on each other. “Later, then,” he said, his hand slipping free from mine, and I watched him walk away through the crowd, asking about the girl he’d been talking to just a few minutes before.
+Don’t you know who I am? I’m an individual!
 
-Outside the air had turned cool. The street was absolutely empty, quiet except for the fading tremor of Ray’s stereo, the blue lights flickering in the windows of bungalows that ran up and down the tidy lane, the shadows of trees stretching across a baseball field. In the car, Jeff put an arm on my shoulder, looking at once contrite and relieved. “You know, man,” he said, “that really taught me something. I mean, I can see how it must be tough for you and Ray sometimes, at school parties...being the only black guys and all.”
+I sat up, lit another cigarette, emptied the bottle into my glass. I knew I was being too hard on poor Joyce. The truth was that I understood her, her and all the other black kids who felt the way she did. In their mannerisms, their speech, their mixed-up hearts, I kept recognizing pieces of myself. And that’s exactly what scared me. Their confusion made me question my own racial credentials all over again, Ray’s trump card still lurking in the back of my mind. I needed to put distance between them and myself, to convince myself that I wasn’t compromised-that I was indeed still awake.
 
-I snorted. “Yeah. Right.” A part of me wanted to punch him right there. We started down the road toward town, and in the silence, my mind began to rework Ray’s words that day with Kurt, all the discussions we had had before that, the events of that night. And by the time I had dropped my friends off, I had begun to see a new map of the world, one that was frightening in its simplicity, suffocating in its implications. We were always playing on the white man’s court, Ray had told me, by the white man’s rules. If the principal, or the coach, or a teacher, or Kurt, wanted to spit in your face, he could, because he had power and you didn’t. If he decided not to, if he treated you like a man or came to your defense, it was because he knew that the words you spoke, the clothes you wore, the books you read, your ambitions and desires, were already his. Whatever he decided to do, it was his decision to make, not yours, and because of that fundamental power he held over you, because it preceded and would outlast his individual motives and inclinations, any distinction between good and bad whites held negligible meaning. In fact, you couldn’t even be sure that everything you had assumed to be an expression of your black, unfettered self-the humor, the song, the behind-the-back pass-had been freely chosen by you. At best, these things were a refuge; at worst, a trap. Following this maddening logic, the only thing you could choose as your own was withdrawal into a smaller and smaller coil of rage, until being black meant only the knowledge of your own powerlessness, of your own defeat. And the final irony: Should you refuse this defeat and lash out at your captors, they would have a name for that, too, a name that could cage you just as good. Paranoid. Militant. Violent. Nigger.
+To avoid being mistaken for a sellout, I chose my friends carefully. The more politically active black students. The foreign students. The Chicanos. The Marxist professors and structural feminists and punk-rock performance poets. We smoked cigarettes and wore leather jackets. At night, in the dorms, we discussed neocolonialism, Franz Fanon, Eurocentrism, and patriarchy. When we ground out our cigarettes in the hallway carpet or set our stereos so loud that
 
-Over the next few months, I looked to corroborate this nightmare vision. I gathered up books from the library- Baldwin, Ellison, Hughes, Wright, DuBois. At night I would close the door to my room, telling my grandparents I had homework to do, and there I would sit and wrestle with words, locked in suddenly desperate argument, trying to reconcile the world as I’d found it with the terms of my birth. But there was no escape to be had. In every page of every book, in Bigger Thomas and invisible men, I kept finding the same anguish, the same doubt; a self-contempt that neither irony nor intellect seemed able to deflect. Even DuBois’s learning and Baldwin’s love and Langston’s humor eventually succumbed to its corrosive force, each man finally forced to doubt art’s redemptive power, each man finally forced to withdraw, one to Africa, one to Europe, one deeper into the bowels of Harlem, but all of them in the same weary flight, all of them exhausted, bitter men, the devil at their heels.
+the walls began to shake, we were resisting bourgeois society’s stifling constraints. We weren’t indifferent or careless or insecure. We were alienated.
 
-Only Malcolm X’s autobiography seemed to offer something different. His repeated acts of self-creation spoke to me; the blunt poetry of his words, his unadorned insistence on respect, promised a new and uncompromising order, martial in its discipline, forged through sheer force of will. All the other stuff, the talk of blue-eyed devils and apocalypse, was incidental to that program, I decided, religious baggage that Malcolm himself seemed to have safely abandoned toward the end of his life. And yet, even as I imagined myself following Malcolm’s call, one line in the book stayed me. He spoke of a wish he’d once had, the wish that the white blood that ran through him, there by an act of violence, might somehow be expunged. I knew that, for Malcolm, that wish would never be incidental. I knew as well that traveling down the road to self-respect my own white blood would never recede into mere abstraction. I was left to wonder what else I would be severing if and when I left my mother and my grandparents at some uncharted border.
+But this strategy alone couldn’t provide the distance I wanted, from Joyce or my past. After all, there were thousands of so-called campus radicals, most of them white and tenured and happily tolerated. No, it remained necessary to prove which side you were on, to show your loyalty to the black masses, to strike out and name names.
 
-And, too: If Malcolm’s discovery toward the end of his life, that some whites might live beside him as brothers in Islam, seemed to offer some hope of eventual reconciliation, that hope appeared in a distant future, in a far-off land. In the meantime, I looked to see where the people would come from who were willing to work toward this future and populate this new world. After a basketball game at the university gym one day, Ray and I happened to strike up a conversation with a tall, gaunt man named Malik who played with us now and again. Malik mentioned that he was a follower of the Nation of Islam but that since Malcolm had died and he had moved to Hawaii he no longer went to mosque or political meetings, although he still sought comfort in solitary prayer. One of the guys sitting nearby must have overheard us, for he leaned over with a sagacious expression on his face.
+I thought back to that time when I was still living in the dorms, the three of us in Reggie’s room-Reggie, Marcus, and myself-the patter of rain against the windowpane. We were drinking a few beers and Marcus was telling us about his run-in with the L.A.P.D. “They had no reason to stop me,” he was saying. “No reason ’cept I was walking in a white neighborhood. Made me spread-eagle against the car. One of ’em pulled out his piece. I didn’t let ’em scare me, though. That’s what gets these storm troopers off, seeing fear in a black man....”
 
-“You all talking about Malcolm, huh? Malcolm tells it like it is, no doubt about it.”
+I watched Marcus as he spoke, lean and dark and straight-backed, his long legs braced apart, comfortable in a white T- shirt and blue denim overalls. Marcus was the most conscious of brothers. He could tell you about his grandfather the Garveyite; about his mother in St. Louis who had raised her kids alone while working as a nurse; about his older sister who had been a founding member of the local Panther party; about his friends in the joint. His lineage was pure, his loyalties clear, and for that reason he always made me feel a little off-balance, like a younger brother who, no matter what he does, will always be one step behind. And that’s just how I was feeling at that moment, listening to Marcus pronounce on his authentic black experience, when Tim walked into the room.
 
-“Yeah,” another guy said. “But I tell you what-you won’t see me moving to no African jungle anytime soon. Or some goddamned desert somewhere, sitting on a carpet with a bunch of Arabs. No sir. And you won’t see me stop eating no ribs.”
+“Hey, guys,” Tim had said, waving cheerfully. He turned to me. “Listen, Barry-do you have that assignment for Econ?”
 
-“Gotta have them ribs.”
+Tim was not a conscious brother. Tim wore argyle sweaters and pressed jeans and talked like Beaver Cleaver. He planned to major in business. His white girlfriend was probably waiting for him up in his room, listening to country music. He was happy as a clam, and I wanted nothing more than for him to go away. I got up, walked with him down the hall to my room, gave him the assignment he needed. As soon as I got back to Reggie’s room, I somehow felt obliged to explain.
 
-“And pussy, too. Don’t Malcolm talk about no pussy? Now you know that ain’t gonna work.”
+“Tim’s a trip, ain’t he,” I said, shaking my head. “Should change his name from Tim to Tom.”
 
-I noticed Ray laughing and looked at him sternly. “What are you laughing at?” I said to him. “You’ve never read
+Reggie laughed, but Marcus didn’t. Marcus said, “Why you say that, man?”
 
-Malcolm. You don’t even know what he says.”
+The question caught me by surprise. “I don’t know. The dude’s just goofy, that’s all.”
 
-Ray grabbed the basketball out of my hand and headed for the opposite rim. “I don’t need no books to tell me how to be black,” he shouted over his head. I started to answer, then turned to Malik, expecting some words of support. But the Muslim said nothing, his bony face set in a faraway smile.
+Marcus took a sip of his beer and looked me straight in the eye. “Tim seems all right to me,” he said. “He’s going
 
-I decided to keep my own counsel after that, learning to disguise my feverish mood. A few weeks later, though, I awoke to the sound of an argument in the kitchen-my grandmother’s voice barely audible, followed by my grandfather’s deep growl. I opened my door to see Toot entering their bedroom to get dressed for work. I asked her what was wrong.
+about his business. Don’t bother nobody. Seems to me we should be worrying about whether our own stuff’s together instead of passing judgment on how other folks are supposed to act.”
 
-“Nothing. Your grandfather just doesn’t want to drive me to work this morning, that’s all.”
+A year later, and I still burned with the memory, the anger and resentment I’d felt at that moment, Marcus calling me out in front of Reggie like that. But he’d been right to do it, hadn’t he? He had caught me in a lie. Two lies, really-the lie I had told about Tim and the lie I was telling about myself. In fact, that whole first year seemed like one long lie, me spending all my energy running around in circles, trying to cover my tracks.
 
-When I entered the kitchen, Gramps was muttering under his breath. He poured himself a cup of coffee as I told him that I would be willing to give Toot a ride to work if he was tired. It was a bold offer, for I didn’t like to wake up early. He scowled at my suggestion.
+Except with Regina. That’s probably what had drawn me to Regina, the way she made me feel like I didn’t have to lie. Even that first time we met, the day she walked into the coffee shop and found Marcus giving me grief about my choice of reading material. Marcus had waved her over to our table, rising slightly to pull out a chair.
 
-“That’s not the point. She just wants me to feel bad.”
+“Sister Regina,” Marcus said. “You know Barack, don’t you? I’m trying to tell Brother Barack here about this racist tract he’s reading.” He held up a copy of Heart of Darkness, evidence for the court. I reached over to snatch it out of his hands.
 
-“I’m sure that’s not it, Gramps.”
+“Man, stop waving that thing around.”
 
-“Of course it is.” He sipped from his coffee. “She’s been catching the bus ever since she started at the bank. She said
+“See there,” Marcus said. “Makes you embarrassed, don’t it-just being seen with a book like this. I’m telling you, man, this stuff will poison your mind.” He looked at his watch. “Damn, I’m late for class.” He leaned over and pecked Regina on the cheek. “Talk to this brother, will you? I think he can still be saved.”
 
-it was more convenient. And now, just because she gets pestered a little, she wants to change everything.” Toot’s diminutive figure hovered in the hall, peering at us from behind her bifocals.
+Regina smiled and shook her head as we watched Marcus stride out the door. “Marcus is in one of his preaching moods, I see.”
 
-“That’s not true, Stanley.”
+I tossed the book into my backpack. “Actually, he’s right,” I said. “It is a racist book. The way Conrad sees it, Africa’s the cesspool of the world, black folks are savages, and any contact with them breeds infection.”
 
-I took her into the other room and asked her what had happened.
+Regina blew on her coffee. “So why are you reading it?”
 
-“A man asked me for money yesterday. While I was waiting for the bus.”
+“Because it’s assigned.” I paused, not sure if I should go on. “And because-”
 
-“That’s all?”
+“Because...”
 
-Her lips pursed with irritation. “He was very aggressive, Barry. Very aggressive. I gave him a dollar and he kept
+“And because the book teaches me things,” I said. “About white people, I mean. See, the book’s not really about
 
-asking. If the bus hadn’t come, I think he might have hit me over the head.”
+Africa. Or black people. It’s about the man who wrote it. The European. The American. A particular way of looking at the world. If you can keep your distance, it’s all there, in what’s said and what’s left unsaid. So I read the book to help me understand just what it is that makes white people so afraid. Their demons. The way ideas get twisted around. It helps me understand how people learn to hate.”
 
-I returned to the kitchen. Gramps was rinsing his cup, his back turned to me. “Listen,” I said, “why don’t you just let
+“And that’s important to you.”
 
-me give her a ride. She seems pretty upset.”
+My life depends on it, I thought to myself. But I didn’t tell Regina that. I just smiled and said, “That’s the only way to cure an illness, right? Diagnose it.”
 
-“By a panhandler?”
+She smiled back and sipped her coffee. I had seen her around before, usually sitting in the library with a book in hand, a big, dark woman who wore stockings and dresses that looked homemade, along with tinted, oversized glasses and a scarf always covering her head. I knew she was a junior, helped organize black student events, didn’t go out much. She stirred her coffee idly and asked, “What did Marcus call you just now? Some African name, wasn’t it?”
 
-“Yeah, I know-but it’s probably a little scary for her, seeing some big man block her way. It’s really no big deal.” He turned around and I saw now that he was shaking. “ It is a big deal. It’s a big deal to me. She’s been bothered by
+“Barack.”
 
-men before. You know why she’s so scared this time? I’ll tell you why. Before you came in, she told me the fella was black.” He whispered the word. “That’s the real reason why she’s bothered. And I just don’t think that’s right.”
+“I thought your name was Barry.”
 
-The words were like a fist in my stomach, and I wobbled to regain my composure. In my steadiest voice, I told him that such an attitude bothered me, too, but assured him that Toot’s fears would pass and that we should give her a ride in the meantime. Gramps slumped into a chair in the living room and said he was sorry he had told me. Before my eyes, he grew small and old and very sad. I put my hand on his shoulder and told him that it was all right, I understood.
+“Barack’s my given name. My father’s name. He was Kenyan.”
 
-We remained like that for several minutes, in painful silence. Finally he insisted that he drive Toot after all, and struggled up from his seat to get dressed. After they left, I sat on the edge of my bed and thought about my
+“Does it mean something?”
 
-grandparents. They had sacrificed again and again for me. They had poured all their lingering hopes into my success. Never had they given me reason to doubt their love; I doubted if they ever would. And yet I knew that men who might easily have been my brothers could still inspire their rawest fears.
+“It means ‘Blessed.’ In Arabic. My grandfather was a Muslim.”
 
-That night, I drove into Waikiki, past the bright-lit hotels and down toward the Ala-Wai Canal. It took me a while to recognize the house, with its wobbly porch and low-pitched roof. Inside, the light was on, and I could see Frank sitting in his overstuffed chair, a book of poetry in his lap, his reading glasses slipping down his nose. I sat in the car, watching him for a time, then finally got out and tapped on the door. The old man barely looked up as he rose to undo the latch. It had been three years since I’d seen him.
+Regina repeated the name to herself, testing out the sound. “Barack. It’s beautiful.” She leaned forward across the
 
-“Want a drink?” he asked me. I nodded and watched him pull down a bottle of whiskey and two plastic cups from the kitchen cupboard. He looked the same, his mustache a little whiter, dangling like dead ivy over his heavy upper lip, his cut-off leans with a few more holes and tied at the waist with a length of rope.
+table. “So why does everybody call you Barry?”
 
-“How’s your grandpa?”
+“Habit, I guess. My father used it when he arrived in the States. I don’t know whether that was his idea or somebody
 
-“He’s all right.”
+else’s. He probably used Barry because it was easier to pronounce. You know-helped him fit in. Then it got passed on to me. So I could fit in.”
 
-“So what are you doing here?”
+“Do you mind if I call you Barack?”
 
-I wasn’t sure. I told Frank some of what had happened. He nodded and poured us each a shot. “Funny cat, your
+I smiled. “Not as long as you say it right.”
 
-grandfather,” he said. “You know we grew up maybe fifty miles apart?”
+She tilted her head impatiently, her mouth set in mock offense, her eyes ready to surrender to laughter. We ended up spending the afternoon together, talking and drinking coffee. She told me about her childhood in Chicago, the absent father and struggling mother, the South Side six-flat that never seemed warm enough in winter and got so hot in the summer that people went out by the lake to sleep. She told me about the neighbors on her block, about walking past the taverns and pool halls on the way to church on Sunday. She told me about evenings in the kitchen with uncles and cousins and grandparents, the stew of voices bubbling up in laughter. Her voice evoked a vision of black life in all its possibility, a vision that filled me with longing-a longing for place, and a fixed and definite history. As we were getting up to leave, I told Regina I envied her.
 
-I shook my head.
+“For what?”
 
-“We sure did. Both of us lived near Wichita. We didn’t know each other, of course. I was long gone by the time he
+“I don’t know. For your memories, I guess.”
 
-was old enough to remember anything. I might have seen some of his people, though. Might’ve passed ’em on the street. If I did, I would’ve had to step off the sidewalk to give ’em room. Your grandpa ever tell you about things like that?”
+Regina looked at me and started to laugh, a round, full sound from deep in her belly.
+
+“What’s so funny?”
+
+“Oh, Barack,” she said, catching her breath, “isn’t life something? And here I was all this time wishing I’d grown up
+
+in Hawaii.”
+
+Strange how a single conversation can change you. Or maybe it only seems that way in retrospect. A year passes and you know you feel differently, but you’re not sure what or why or how, so your mind casts back for something that might give that difference shape: a word, a glance, a touch. I know that after what seemed like a long absence, I had felt my voice returning to me that afternoon with Regina. It remained shaky afterward, subject to distortion. But entering sophomore year I could feel it growing stronger, sturdier, that constant, honest portion of myself, a bridge between my future and my past.
 

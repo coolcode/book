@@ -1,131 +1,99 @@
 title: House of Cards 031
-date: 2015-01-24 15:44:04
+date: 2015-01-25 03:45:46
 tags: house-of-cards
 ---
 
-The phone buzzed gently as the call was put through. ‘Dr Christian. How can I help you? And how is Charles?' It's about Charles I'm calling, Mr Collingridge. As we have discussed before, I have been keeping him very isolated and away from the newspapers so that he wasn't disturbed by all the allegations. But we have a problem. Normally we switch his television off and find something to divert him during news programmes, but we weren't expecting the unscheduled programme about your resignation - I'm deeply sorry you've had to resign, by the way, but it's about Charles I am
+Road and the Union Bank of Turkey, where I opened up an account in the same fictional name - not with £50,000 but with just £100. The whole thing took-less than three hours from start to finish. So I can now start ordering pornographic magazines, paid for out of the newbank account and delivered to the Paddington address, which could do a lot of damage to the reputation of one completely innocent politician’
 
-￼most worried. I have to put his interests first, you understand.'
+‘Er, who?' asked Preston, still having difficulty catching up.
 
-‘I do understand, Dr Christian, and you have your priorities absolutely right.'
+She laughed and threw down a bank book and the tobacconist's receipt onto the editor's desk. He looked at them eagerly.
 
-‘He heard of the allegations about you and himself for the very first time, and how they had helped bring about your resignation. He is deeply upset and disturbed, Mr Collingridge; it's come as a great shock. He believes he is to blame for all that's happened, and I'm afraid is talking about doing harm to himself. I thought we were just on the verge of making real progress in his case, and now I fear this will not only set him right back but in his present delicate emotional state could bring about a real crisis for him. I don't wish to alarm you unduly, but he needs your help. Very badly.'
+The Leader of the Opposition!' he shouted in alarm. 'What the hell have you done?'
 
-Sarah saw the look of anguish on her husband's face, and came over to sit beside him and hold his hand. It was trembling. 'Doctor, what can I do? I’ll do anything, anything you want.'
+'Nothing,' she said with a smile suggesting victory. 'Except to show that Charles Collingridge was almost certainly framed; that he probably never went near the tobacconist shop or the Union Bank of Turkey, and therefore that he could not have bought those shares’
 
-'We need to find some way of reassuring him. He's desperately confused.'
+Preston was holding the documents at arm's length as if they might catch fire.
 
-There was a pause as Collingridge bit deep into his lip, hoping it would distract from the pain burning inside.
+'Which means that Henry Collingridge did not tell his brother about Renox Chemicals...' Her inflexion indicated that there was more. 'And? And?' Preston demanded.
 
-'May I talk to him, doctor?'
+‘He didn't have to resign.'
 
-There was a wait of several minutes as Charles was brought to the telephone.
+Preston sagged back in his chair. The beads of perspiration had begun to trickle down his brow, plastering his hair to his forehead. He was looking exceedingly uncomfortable. He felt as if he were being torn in two. With one eye he could see the makings of a superb story, which, when promoted vigorously by his advertising agency, could bring with it the substantial boost in circulation he was finding so elusive. Whether the story was accurate or not hardly bothered him; the lawyers could ensure that it libelled no one and it would make a splendid read.
 
-'Charlie, how are you old boy?' he said softly.
+With his other eye, however, he could discern the enormous impact that such a story would make on the leadership race itself, the uncontrollable shockwaves which would stretch out and swamp various innocent bystanders-possibly including himself. And Landless had just told him on the telephone that he had other fish to fry. He brushed back the lick of hair which was stuck clammily above his glasses, but it did not seem to help his vision. He could not focus on which decision would be the right one to take, the one which would be acceptable to Landless. He had been instructed that all major pieces affecting the leadership race were to be cleared with Landless before publication, and he had feared being confronted with an unexpected decision like this. He needed to play for time.
 
-Henry, what have I done to you? I've ruined you, destroyed you!' The voice sounded old, touched by hysteria. 'Charlie, Charlie. You've done nothing. It's not you who has hurt me, you have nothing to feel guilty about’
+'Mattie, I scarcely know what to say. You've obviously been very ... busy.' His mind was charging through his Thesaurus of flannel, words which were meaningless and noncommittal but which left their audience with an appropriately warm feeling of encouragement. It was a well thumbed volume. But then it hit him, and the book closed shut with a snap.
 
-'But I've seen it on the television. You going off to the Queen to resign. They said it was because of me and some shares. I don't understand it, Henry, I've screwed it all up. Not only my life, but you and Sarah too. I don't deserve to be your brother. There's no point in anything any more’ There was a huge, gulping sob on the end of the phone.
+'You've illustrated very well that it might have been someone else who was charging round London opening accounts in Collingridge's name, but you haven't proved that it wasn't Collingridge himself. Surely that is the easiest explanation to accept?'
 
-'Charlie, I want you to listen to me very carefully. Are you listening? It's not you who should be asking for pardon, but me who should be down on my knees begging for forgiveness from you’
+‘But the computer file, Grev. It was tampered with. And that wouldn't have happened if Charles Collingridge were guilty.'
 
-He cut through the protest beginning to emerge from his brother.
+Haven't you considered the possibility that the computer file was altered, not to mcrirninate Collingridge, but by Collingridge or one of his friends to offer him an alibi, to muddy the waters after he had been found out? For all we know it was not the distribution file but the accounts file which was altered, possibly only minutes before you saw it, just to throw you off the trail'
 
-'No, listen, Charlie! We've always got through our problems together, as family. Remember when I was running the business - the year we nearly went bust? We were going down, Charlie, and it was my fault. And who brought in that new client, that order which saved us? I know it wasn't the biggest order the company ever had, but it couldn't have come at a more vital time. You saved the company, Charlie, and you saved me. Just like you did when I was a bloody fool and got caught driving over the limit that Christmas. The local police sergeant was a rugger playing friend of yours, not mine, and it was you who somehow managed to persuade him to fix- the breath test at the station. If I had lost my licence then, I would never have been selected by the constituency for the seat. Don't you see, Charlie, far from ruining it for me, you made it all possible. We've always faced things together, and that's just how it's going to stay.' 'But now I've ruined everything for you, Henry.. ‘ 'No, it's me that's ruined things. I got too high and bloody mighty, and forgot that the only thing that matters in the end is those you love. You were always around when I needed help, all the time. But I got too busy. When Mary left, I knew how much you were hurting. I should have been there. You needed me, but there always seemed other things to do. I was always going to come and see you tomorrow, or the next day. 'Always tomorrow, Charlie, always tomorrow.'
+'But only a handful of people have access to the accounts file’ Mattie protested with considerable vigour. 'And how could Charles Collingridge have done that? He's been drying out in a treatment centre.' 'But his brother?'
 
-The emotion was cracking Collingridge's voice.
+Mattie was incredulous. You can't seriously believe that the Prime Minister took the incredible risk of ordering the party headquarters' computer file to be altered just to falsify the evidence - after he had already announced his resignation.'
 
-I've had my moment of glory, I've been selfish, I've done the things that I wanted to do. While I watched you become an alcoholic and practically kill yourself’
+'Mattie, think back. Watergate. Files were burnt and tapes erased - by the President. During Irangate, incriminating material was shredded and smuggled out of the White House by a secretary in her underwear. Scores of presidential aides and US Cabinet ministers have gone to prison in recent years. And in this country, Jeremy Thorpe was put on trial for attempted murder, John Stonehouse went to gaol after faking his own suicide and Lloyd George sold peerages from Downing Street while he screwed his secretary on the Cabinet table. Things much stranger than fiction have happened in politics.' Preston was warming to his theme now. 'Power is a drug, like a candle to a moth. They are drawn towards it, no matter what the dangers, They would rather risk everything, including their lives and careers, than do without it. So it's still easier to believe that the Collingridges got caught with their hands in the till and are trying to cover up than to accept there was a great conspiracy against the Prime Minister.'
 
-It was the first time that either of them had spoken that truth. Charles had always been under the weather, or overtired, or suffering from nerves - never uncontrollably, alcoholically drunk. They both knew there were no secrets now, no going back.
+'So you won't run it!' she accused sharply.
 
-‘I will walk out of Downing Street and will be able to say good bloody riddance - if only I know I still have my brother. I'm just terrified, Charlie, that it's too late, that I've neglected you too much to be able to ask for your forgiveness, that you've been alone too long for you to want to get better.'
+'No, I'm not saying that’ Preston continued, smiling in a manner which betrayed not a shred of sympathy. I'm saying you haven't yet got enough for the story to stand up. We have to be careful not to make ourselves look ridiculous. You need to do some more work on it.'
 
-The tears of genuine anguish were flowing down his cheeks. Sarah was hugging him tightly. 'Charlie, without your forgiveness, all this will have been for nothing.'
+He meant it as a dismissal, but Mattie had been at the receiving end of too many of his dismissals. She had spent every waking hour since running out on Johnnie working on this story, chasing the details and trying to drown her private pain, knowing that only by uncovering the truth would she find any release from the emotions which were twisted in a state of perpetual warfare deep inside her. She would not leave it there. She felt like screaming at him, but she was determined not to lose her self-control. She took a deep breath, lowered her eyes for a moment to help herself relax, and was almost smiling when she looked at him once again.
 
-There was silence from the other end of the phone.
+'Grev. Just explain it to me so I can understand. Either somebody set the Collingridges up, or the Prime Minister of this country has established his guilt by falsifying evidence. One way or the other, we have enough to lead the paper for a week.'
 
-'Say something, Charlie!' he said in desperation.
+'Er, yes. But which is it? We have to be sure. Particularly in the middle of a leadership contest we cannot afford to make a mistake on something so important.'
 
-‘I love you, big brother.'
+'Doesn't Collingridge deserve the chance to establish his innocence? Are you telling me that the story has to be left until after the contest has finished—until after the damage has been done?'
 
-He let out a sigh of release and total joy.
+Preston had run out of logic. Once again he was discovering that this inexperienced woman, one of his most junior members of staff, was slipping every argument he could throw at her. As she suspected he would, he sought refuge in bluster and bullying.
 
-‘I love you too, old boy. I'll come and see you tomorrow. We'll both have a lot more time for each other now, eh?' They were both laughing through the tears, with Sarah joining in. Henry Collingridge hadn't felt so whole for years.
+'Look!' he snapped, pointing an accusatory finger in her direction. You burst into my office with a story so fantastic, demanding that I scrap the front page for it... But you haven't written any copy yet! How the devil can I tell whether you've got a good story or simply had a good lunch?'
 
-￼She was sipping a drink, admiring the night view of London from his penthouse apartment when he came up behind her and embraced her warmly. Hey, I thought we came here to discuss business,' she said, not resisting.
+Her blue eyes glinted like polar ice, her mind tumbling with the many slights she wanted to throw back at him. Instead, a frosty calm settled over her.
 
-'There are some things I don't have the words for’ he said, burying his face in her blonde hair and rejoicing at its freshness.
+'You will have your copy in thirty minutes,' she said as she walked out, barely able to resist the temptation to slam the door off its hinges.
 
-She turned round in his arms to face him and look directly into his eyes.
+It was actually nearer forty minutes when she walked back in, without knocking, six pages of double-spaced copy clutched in her hand. Without comment she dropped them on the desk, standing directly in front of Preston to make it clear that she would not budge until she had her answer.
 
-'You talk too much’ she said, and kissed him passionately. She was glad he had made the first move; she was not competing tonight, she wanted to be free, uncomplicated, just a woman.
+He left her standing while slowly he read through the pages, trying to look as if he were struggling with an important decision. But it was a sham. The decision had already been made just a few minutes after Mattie had left his office and seconds after he had managed to reach the newspaper's owner on the phone.
 
-She made no sound of protest as he slipped her silk blouse over her shoulders and it fell away, revealing a smooth and unblemished skin which could have been a model's. Her breasts were immaculate, small but very feminine and sensitive. She gasped as his fingers gently ran over her nipples, which responded instantly. She undid her own belt and let her trousers fall straight to the floor, stepping out of them and out of her shoes in one graceful movement. She stood tall and unashamed against the glittering lights of London behind her.
+'She's determined, Mr Landless. She knows she's got the makings of a good story and she won't take no for an answer. What the hell do I do?' 'Persuade her she's wrong. Put her on the cookery page. Send her on holiday. Promote her to editor, for all I care. But keep her quiet!'
 
-He marvelled for a moment at what he saw. He couldn't remember when he last had felt like this, so excited and so much a man.
+It's not that simple. She's not only stubborn as hell, she's one of the best political brains we've got.'
 
-'Mattie, you look lovely.'
+'Preston, you already have the best political brains in the business. Mine! All I am asking you to do is to control your staff. Are you telling me you can't do even that?' Landless asked in a tone full of menace. 'There are scarcely two weeks before the leadership race is over,' he continued. There are great things at stake, the whole future of the country, my business - your job. Do whatever you have to do to keep her quiet. Just don't screw up!'
 
-‘I hope you are not just going to look, Johnnie’ she said.
+The proprietor's words were still ringing in Preston's ears as he continued to shuffle the pieces of paper, no longer reading them, concentrating instead on what he was about to say. Normally he enjoyed his power as editorial executioner, but he knew she would never fit the typecast role of whimpering victim. He was unsure how he should handle her.
 
-He took her to the fireplace where the flames flickered invitingly, held her close against him and prayed that the moment would last for ever. When they were spent, for some while they lay silently on the rug, lost in their thoughts and each other's arms. It was Mattie who broke the spell. Is it all coincidence, Johnnie?'
+Finally he put Mattie's story down, and pushed himself back into his chair. He felt more comfortable with the support of the chair behind his back. ‘We can't run it. It's too risky, and I'm not willing to blow the leadership contest apart on the basis of speculation.'
 
-'Let's try again and see.'
+It was what she had expected all along. She replied in a whisper, but her soft words hit Preston like a boxing glove.
 
-'Not this, you fool,' she laughed. 'It's time to talk now!'
+￼‘I will not take no for an answer’
 
-'Oh, I wondered how long it would take you to get back to that,' he said with an air of resignation. He got them both blankets to wrap themselves in.
+Dammit. Why didn't she just accept it, shrug it off or just burst into tears like the others? The quiet insolence behind her words and his inability to handle it made him feel nervous. He started to sweat; he knew that she had noticed this sign of tension, and he began to stumble over his carefully prepared words.
 
-'We find a plan, effort, plot - call it what you will in which our paper is involved, to chop the legs off Collingridge. For all we know it has been going on for months. Now Collingridge resigns. Is it all part of the same operation?'
+‘I... cannot run the story. I am the editor, and that's my decision.' He wasn't even convincing himself. You have to accept it, or.. ‘
 
-'How can it be, Mattie? In the end Collingridge hasn't been forced out by his opponents but by his brother's apparent fiddling of share purchases. You're surely not suggesting all that was part of the plan.'
+'Or what,Grev?'
 
-'You have to admit it's a hell of a coincidence, Johnnie. I've met Charles Collingridge, spent several hours drinking and chatting with him at the party conference, as it happens. He struck me as being a pleasant and straightforward drunk, who certainly didn't seem as if he had two hundred pounds to put together, let alone being able to raise tens of thousands of pounds to start speculating in shares.'
+'... or realise that you have no future on our political staff.'
 
-Her face was screwed up in concentration as she grappled with her still confused thoughts. It may seem silly, I know he's an alcoholic and they often aren't responsible for their actions, but I don't believe he would have jeopardised his brother's whole career for a few thousand pounds' profit on the Stock Market. And do you really think it's likely that Henry Collingridge, the Prime Minister of this country, was feeding his drunk brother insider share tips to finance his boozing?'
+'You're firing me?' This did surprise her. How could he afford to let her go, particularly in the middle of the leadership contest?
 
-Is it any more credible to believe there is some form of high-level plot involving senior party figures, the publisher of our newspaper and God knows who else to kill off the Prime Minister? Surely the easiest explanation is the simple one - that Charles Collingridge is a drunk who is not responsible for his actions and who has done something so overwhelmingly stupid that his brother's had to resign.'
+'No. I'm moving you to women's features, starting right now. Frankly, I don't think you have developed the judgement for our political columns.' 'Who has nobbled you, Grev?'
 
-'There's only one person who can tell us, I suppose. Charles Collingridge.'
+'What the hell do you mean... ?'
 
-'But he's locked away in some clinic or other, isn't he? I thought his whereabouts were a closely guarded family secret.'
+You normally have trouble making up your mind whether you want tea or coffee. Deciding to fire me from this story is somebody else's decision, isn't it?'
 
-True, but he's the only one who could help us get to the bottom of this.'
+I'm not firing you! You're being transferred...'
 
-'And how does our Reporter of the Year propose to do that?'
+He was losing control now, eyes bulging in anger and with a complexion which looked as if he had been holding his bream for three minutes. Then, dear editor, I have some disappointing news for you. I quit!'
 
-he teased.
-
-She was concentrating too intently to rise to the bait. Instead, she sat on the hearth rug wrapped deep in thought and an enormous yellow blanket while he refreshed their drinks. As he returned with two glasses, she spun round to face him.
-
-'When was the last time anyone saw Charles Collingridge?' she demanded. 'Why, er ... When he was driven away from his home over a week ago.' 'Who was he with?'
-
-'Sarah Collingridge.'
-
-'And...?'
-
-￼'A driver.'
-
-'Who was the driver, Johnnie?'
-
-'Damned if I know. Never seen him before. Hang on, being a dutiful deputy editor I keep all the nightly news on tape for a fortnight, so I should have it here somewhere.'
-
-He rummaged around by his video player for a few moments before slotting a tape into the chamber and winding it forward. In a few seconds, through the blizzard produced by the fast replay button, appeared the scenes of Charles Collingridge huddled in the back of the fleeing car.
-
-'Go back!' she ordered. 'To the start.'
-
-And there, for less than a second at the front of the report, as the car swept from behind the building into the main road, they could clearly see the face of the driver through the windscreen.
-
-Krajewski punched the freeze frame button. They both sat there entranced, staring at the balding and bespectacled face.
-
-'And who the hell is he?' muttered Krajewski.
-
-'Let's figure out who he's not’ said Mattie. ‘He's not a
-
-Government driver - it's not a Government car and the drivers pool is very gossipy, so we would have heard something. He's not a political figure or we would have recognised him...'
-
-She clapped her hands in inspiration. 'Johnnie, where were they going?'
-
-'Not to Downing Street, not to some hotel or other public place.' He pondered the options. To the clinic, I suppose.' ‘Precisely! That man is from the clinic. If we can find out who he is, we shall know where Charles is!'
+God, he hadn't expected this. He was scrambling now to regain his authority and the initiative. He had to keep her at the Telegraph, it was the only way to control her. But what the hell was he to do? He forced a smile, and spread his hands wide in an attempt to imitate a gesture of generosity.
 

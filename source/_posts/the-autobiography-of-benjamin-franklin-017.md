@@ -1,239 +1,55 @@
 title: The Autobiography of Benjamin Franklin 017
-date: 2015-01-24 15:44:17
+date: 2015-01-25 03:46:00
 tags: the-autobiography-of-benjamin-franklin
 ---
 
-At length he took for his text that verse of the fourth chapter of Philippians, “Finally, brethren, whatsoever things are true, honest, just, pure, lovely, or of good report, if there be any virtue, or any praise, think on these things.” And I imagin’d, in a sermon on such a text, we could not miss of having some morality. But he confin’d himself to five points only, as meant by the apostle, viz.: 1. Keeping holy the Sabbath day. 2. Being diligent in reading the holy Scriptures. 3. Attending duly the publick worship. 4. Partaking of the Sacrament. 5. Paying a due respect to God’s ministers. These might be all good things; but, as they were not the kind of good things that I expected from that text, I despaired of ever meeting with them from any other, was disgusted, and attended his preaching no more. I had some years before compos’d a little Liturgy, or form of prayer, for my own private use (viz., in 1728), entitled, Articles of Belief and Acts of Religion. I return’d to the use of this, and went no more to the public assemblies. My conduct might be blameable, but I leave it, without at- tempting further to excuse it; my present purpose being to relate facts, and not to make apologies for them.
-
-It was about this time I conceiv’d the bold and arduous project of arriv- ing at moral perfection. I wish’d to live without committing any fault at any time; I would conquer all that either natural inclination, custom, or com- pany might lead me into. As I knew, or thought I knew, what was right and wrong, I did not see why I might not always do the one and avoid the other. But I soon found I had undertaken a task of more difficulty than I bad imagined. While my care was employ’d in guarding against one fault, I was often surprised by another; habit took the advantage of inattention; incli- nation was sometimes too strong for reason. I concluded, at length, that the mere speculative conviction that it was our interest to be completely virtu- ous, was not sufficient to prevent our slipping; and that the contrary habits must be broken, and good ones acquired and established, before we can have any dependence on a steady, uniform rectitude of conduct. For this
-
-68
+80
 
 The Autobiography of Benjamin Franklin
 
-purpose I therefore contrived the following method.
+thereby securing virtue; it being more difficult for a man in want, to act always honestly, as, to use here one of those proverbs, it is hard for an empty sack to stand up-right.
 
-In the various enumerations of the moral virtues I had met with in my
+These proverbs, which contained the wisdom of many ages and nations, I assembled and form’d into a connected discourse prefix’d to the Almanack of 1757, as the harangue of a wise old man to the people attending an auction. The bringing all these scatter’d counsels thus into a focus enabled them to make greater impression. The piece, being universally approved, was copied in all the newspapers of the Continent; reprinted in Britain on a broad side, to be stuck up in houses; two translations were made of it in French, and great numbers bought by the clergy and gentry, to distribute gratis among their poor parishioners and tenants. In Pennsylvania, as it discouraged useless expense in foreign superfluities, some thought it had its share of influence in producing that growing plenty of money which was observable for several years after its publication.
 
-reading, I found the catalogue more or less numerous, as different writers included more or fewer ideas under the same name. Temperance, for ex- ample, was by some confined to eating and drinking, while by others it was extended to mean the moderating every other pleasure, appetite, inclination, or passion, bodily or mental, even to our avarice and ambition. I propos’d to myself, for the sake of clearness, to use rather more names, with fewer ideas annex’d to each, than a few names with more ideas; and I included under thirteen names of virtues all that at that time occurr’d to me as necessary or desirable, and annexed to each a short precept, which fully express’d the ex- tent I gave to its meaning.
+I considered my newspaper, also, as another means of communicating instruction, and in that view frequently reprinted in it extracts from the Spectator, and other moral writers; and sometimes publish’d little pieces of my own, which had been first compos’d for reading in our Junto. Of these are a Socratic dialogue, tending to prove that, whatever might be his parts and abilities, a vicious man could not properly be called a man of sense; and a discourse on self-denial, showing that virtue was not secure till its practice became a habitude, and was free from the opposition of contrary inclinations. These may be found in the papers about the begin- ning Of 1735.
 
-These names of virtues, with their precepts, were:
+In the conduct of my newspaper, I carefully excluded all libelling and personal abuse, which is of late years become so disgraceful to our coun- try. Whenever I was solicited to insert anything of that kind, and the writers pleaded, as they generally did, the liberty of the press, and that a newspaper was like a stagecoach, in which any one who would pay had a right to a place, my answer was, that I would print the piece separately if desired, and the author might have as many copies as he pleased to dis- tribute himself, but that I would not take upon me to spread his detrac- tion; and that, having contracted with my subscribers to furnish them with what might be either useful or entertaining, I could not fill their papers with private altercation, in which they had no concern, without doing them manifest injustice. Now, many of our printers make no scruple of gratifying the malice of individuals by false accusations of the fairest characters among ourselves, augmenting animosity even to the produc- ing of duels; and are, moreover, so indiscreet as to print scurrilous reflec-
 
-1. TEMPERANCE. Eat not to dullness; drink not to elevation.
-
-2. SILENCE. Speak not but what may benefit others or yourself; avoid trifling conversation.
-
-3. ORDER. Let all your things have their places; let each part of your business have its time.
-
-4. RESOLUTION. Resolve to perform what you ought; perform with- out fail what you resolve.
-
-5. FRUGALITY. Make no expense but to do good to others or yourself; i.e., waste nothing.
-
-6. INDUSTRY. Lose no time; be always employ’d in something useful; cut off all unnecessary actions.
-
-7. SINCERITY. Use no hurtful deceit; think innocently and justly, and, if you speak, speak accordingly.
-
-8. JUSTICE. Wrong none by doing injuries, or omitting the benefits that are your duty.
-
-9. MODERATION. Avoid extreams; forbear resenting injuries so much as you think they deserve.
-
-10. CLEANLINESS. Tolerate no uncleanliness in body, cloaths, or habitation. 69
+81
 
 The Autobiography of Benjamin Franklin
 
-11. TRANQUILLITY. Be not disturbed at trifles, or at accidents com- mon or unavoidable.
+tions on the government of neighboring states, and even on the conduct of our best national allies, which may be attended with the most perni- cious consequences. These things I mention as a caution to young print- ers, and that they may be encouraged not to pollute their presses and disgrace their profession by such infamous practices, but refuse steadily, as they may see by my example that such a course of conduct will not, on the whole, be injurious to their interests.
 
-12. CHASTITY. Rarely use venery but for health or offspring, never to dulness, weakness, or the injury of your own or another’s peace or repu- tation.
+In 1733 I sent one of my journeymen to Charleston, South Carolina, where a printer was wanting. I furnish’d him with a press and letters, on an agreement of partnership, by which I was to receive one-third of the profits of the business, paying one-third of the expense. He was a man of learning, and honest but ignorant in matters of account; and, tho’ he sometimes made me remittances, I could get no account from him, nor any satisfactory state of our partnership while he lived. On his decease, the business was continued by his widow, who, being born and bred in Holland, where, as I have been inform’d, the knowledge of accounts makes a part of female education, she not only sent me as clear a state as she could find of the transactions past, but continued to account with the greatest regularity and exactness every quarter afterwards, and managed the busi- ness with such success, that she not only brought up reputably a family of children, but, at the expiration of the term, was able to purchase of me the printing-house, and establish her son in it.
 
-13. HUMILITY. Imitate Jesus and Socrates.
+I mention this affair chiefly for the sake of recommending that branch of education for our young females, as likely to be of more use to them and their children, in case of widowhood, than either music or dancing, by preserving them from losses by imposition of crafty men, and en- abling them to continue, perhaps, a profitable mercantile house, with establish’d correspondence, till a son is grown up fit to undertake and go on with it, to the lasting advantage and enriching of the family.
 
-My intention being to acquire the habitude of all these virtues, I judg’d it would be well not to distract my attention by attempting the whole at once, but to fix it on one of them at a time; and, when I should be master of that, then to proceed to another, and so on, till I should have gone thro’ the thirteen; and, as the previous acquisition of some might facili- tate the acquisition of certain others, I arrang’d them with that view, as they stand above. Temperance first, as it tends to procure that coolness and clearness of head, which is so necessary where constant vigilance was to be kept up, and guard maintained against the unremitting attraction of ancient habits, and the force of perpetual temptations. This being acquir’d and establish’d, Silence would be more easy; and my desire being to gain knowledge at the same time that I improv’d in virtue, and consid- ering that in conversation it was obtain’d rather by the use of the ears than of the tongue, and therefore wishing to break a habit I was getting into of prattling, punning, and joking, which only made me acceptable to tri- fling company, I gave Silence the second place. This and the next, Order, I expected would allow me more time for attending to my project and my studies. Resolution, once become habitual, would keep me firm in my endeavors to obtain all the subsequent virtues; Frugality and Industry freeing me from my remaining debt, and producing affluence and inde- pendence, would make more easy the practice of Sincerity and Justice, etc., etc. Conceiving then, that, agreeably to the advice of Pythagoras in his Golden Verses, daily examination would be necessary, I contrived the following method for conducting that examination.
+About the year 1734 there arrived among us from Ireland a young Pres- byterian preacher, named Hemphill, who delivered with a good voice, and apparently extempore, most excellent discourses, which drew together con- siderable numbers of different persuasion, who join’d in admiring them. Among the rest, I became one of his constant hearers, his sermons pleasing me, as they had little of the dogmatical kind, but inculcated strongly the practice of virtue, or what in the religious stile are called good works. Those, however, of our congregation, who considered themselves as orthodox Pres- byterians, disapprov’d his doctrine, and were join’d by most of the old clergy, who arraign’d him of heterodoxy before the synod, in order to have him silenc’d. I became his zealous partisan, and contributed all I could to raise a
 
-I made a little book, in which I allotted a page for each of the virtues. I rul’d each page with red ink, so as to have seven columns, one for each day of the week, marking each column with a letter for the day. I cross’d these columns with thirteen red lines, marking the beginning of each line with the first letter of one of the virtues, on which line, and in its proper column, I might mark, by a little black spot, every fault I found upon examination
-
-70
+82
 
 The Autobiography of Benjamin Franklin
 
-to have been committed respecting that virtue upon that day.
+party in his favour, and we combated for him a while with some hopes of success. There was much scribbling pro and con upon the occasion; and finding that, tho’ an elegant preacher, he was but a poor writer, I lent him my pen and wrote for him two or three pamphlets, and one piece in the Gazette of April, 1735. Those pamphlets, as is generally the case with con- troversial writings, tho’ eagerly read at the time, were soon out of vogue, and I question whether a single copy of them now exists.
 
-I determined to give a week’s strict attention to each of the virtues successively. Thus, in the first week, my great guard was to avoid every the least offence against Temperance, leaving the other virtues to their ordinary chance, only marking every evening the faults of the day. Thus, if in the first week I could keep my first line, marked T, clear of spots, I suppos’d the habit of that virtue so much strengthen’d and its opposite weaken’d, that I might venture extending my attention to include the next, and for the following week keep both lines clear of spots. Proceed- ing thus to the last, I could go thro’ a course compleat in thirteen weeks, and four courses in a year. And like him who, having a garden to weed, does not attempt to eradicate all the bad herbs at once, which would exceed his reach and his strength, but works on one of the beds at a time, and, having accomplish’d the first, proceeds to a second, so I should have, I hoped, the encouraging pleasure of seeing on my pages the progress I made in virtue, by clearing successively my lines of their spots, till in the end, by a number of courses, I should he happy in viewing a clean book,
+During the contest an unlucky occurrence hurt his cause exceedingly. One of our adversaries having heard him preach a sermon that was much admired, thought he had somewhere read the sermon before, or at least a part of it. On search he found that part quoted at length, in one of the British Reviews, from a discourse of Dr. Foster’s. This detection gave many of our party disgust, who accordingly abandoned his cause, and occasion’d our more speedy discomfiture in the synod. I stuck by him, however, as I rather approv’d his giving us good sermons compos’d by others, than bad ones of his own manufacture, tho’ the latter was the practice of our com- mon teachers. He afterward acknowledg’d to me that none of those he preach’d were his own; adding, that his memory was such as enabled him to retain and repeat any sermon after one reading only. On our defeat, he left us in search elsewhere of better fortune, and I quitted the congregation, never joining it after, tho’ I continu’d many years my subscription for the support of its ministers.
 
-after a thirteen weeks’ daily examination.
+I had begun in 1733 to study languages; I soon made myself so much a master of the French as to be able to read the books with ease. I then under- took the Italian. An acquaintance, who was also learning it, us’d often to tempt me to play chess with him. Finding this took up too much of the time I had to spare for study, I at length refus’d to play any more, unless on this condition, that the victor in every game should have a right to impose a task, either in parts of the grammar to be got by heart, or in translations, etc., which tasks the vanquish’d was to perform upon honour, before our next meeting. As we play’d pretty equally, we thus beat one another into that language. I afterwards with a little painstaking, acquir’d as much of the Span- ish as to read their books also.
 
-This my little book had for its motto these lines from Addison’s Cato:
+I have already mention’d that I had only one year’s instruction in a Latin school, and that when very young, after which I neglected that language entirely. But, when I had attained an acquaintance with the French, Italian, and Spanish, I was surpriz’d to find, on looking over a Latin Testament, that I understood so much more of that language than I had imagined, which encouraged me to apply myself again to the study of it, and I met with more success, as those preceding languages had
 
-“Here will I hold. If there’s a power above us (And that there is all nature cries aloud
-
-Thro’ all her works), He must delight in virtue; And that which he delights in must be happy.”
-
-Another from Cicero,
-
-(See table on following page.)
-
-71
+83
 
 The Autobiography of Benjamin Franklin
 
-FORM OF THE PAGES
+greatly smooth’d my way.
 
-EAT NOT TO DULNESS; DRINK NOT TO ELEVATION.
+From these circumstances, I have thought that there is some inconsis-
 
-￼￼￼￼￼S
+tency in our common mode of teaching languages. We are told that it is proper to begin first with the Latin, and, having acquir’d that, it will be more easy to attain those modern languages which are deriv’d from it; and yet we do not begin with the Greek, in order more easily to acquire the Latin. It is true that, if you can clamber and get to the top of a stair- case without using the steps, you will more easily gain them in descend- ing; but certainly, if you begin with the lowest you will with more ease ascend to the top; and I would therefore offer it to the consideration of those who superintend the education of our youth, whether, since many of those who begin with the Latin quit the same after spending some years without having made any great proficiency, and what they have learnt becomes almost useless, so that their time has been lost, it would not have been better to have begun with the French, proceeding to the Italian, etc.; for, tho’, after spending the same time, they should quit the study of languages and never arrive at the Latin, they would, however, have acquired another tongue or two, that, being in modern use, might be serviceable to them in common life.
 
-M
+After ten years’ absence from Boston, and having become easy in my circumstances, I made a journey thither to visit my relations, which I could not sooner well afford. In returning, I call’d at Newport to see my brother, then settled there with his printing-house. Our former differ- ences were forgotten, and our meeting was very cordial and affectionate. He was fast declining in his health, and requested of me that, in case of his death, which he apprehended not far distant, I would take home his son, then but ten years of age, and bring him up to the printing business. This I accordingly perform’d, sending him a few years to school before I took him into the office. His mother carried on the business till he was grown up, when I assisted him with an assortment of new types, those of his father being in a manner worn out. Thus it was that I made my brother ample amends for the service I had depriv’d him of by leaving him so early.
 
-T
-
-W
-
-T
-
-F
-
-S
-
-T
-
-S
-
-*
-
-*
-
-*
-
-*
-
-O
-
-**
-
-*
-
-*
-
-*
-
-*
-
-*
-
-R
-
-*
-
-*
-
-F
-
-*
-
-*
-
-I
-
-*
-
-S
-
-J
-
-M
-
-C
-
-T
-
-C
-
-H
-
-￼￼￼￼￼￼￼￼￼￼￼￼￼￼￼￼“O vitae Philosophia dux! O virtutum indagatrix expultrixque vitiorum! Unus dies, bene et ex praeceptis tuis actus, peccanti immortalitati est anteponendus.”
-
-Another from the Proverbs of Solomon, speaking of wisdom or virtue:
-
-“Length of days is in her right hand, and in her left hand riches and honour. Her ways are ways of pleasantness, and all her paths are peace.” iii. 16, 17.
-
-And conceiving God to be the fountain of wisdom, I thought it right and necessary to solicit his assistance for obtaining it; to this end I formed
-
-72
-
-The Autobiography of Benjamin Franklin
-
-the following little prayer, which was prefix’d to my tables of examina- tion, for daily use.
-
-“O powerful Goodness! bountiful Father! merciful Guide! increase in me that wisdom which discovers my truest interest. Strengthen my reso- lutions to perform what that wisdom dictates. Accept my kind offices to thy other children as the only return in my power for thy continual favors to me.”
-
-I used also sometimes a little prayer which I took from Thomson’s Poems, viz.:
-
-“Father of light and life, thou Good Supreme!
-
-O teach me what is good; teach me Thyself!
-
-Save me from folly, vanity, and vice,
-
-From every low pursuit; and fill my soul
-
-With knowledge, conscious peace, and virtue pure; Sacred, substantial, never-fading bliss!”
-
-The precept of Order requiring that every part of my business should have its allotted time, one page in my little book contain’d the following scheme of employment for the twenty-four hours of a natural day:
-
-I enter’d upon the execution of this plan for self-examination, and continu’d it with occasional intermissions for some time. I was surpris’d to find myself so much fuller of faults than I had imagined; but I had the satisfaction of seeing them diminish. To avoid the trouble of renewing now and then my little book, which, by scraping out the marks on the paper of old faults to make room for new ones in a new course, became full of holes, I transferr’d my tables and precepts to the ivory leaves of a memorandum book, on which the lines were drawn with red ink, that
-
-(See image on next page.)
-
-73
-
-The Autobiography of Benjamin Franklin
-
-74
-
-The Morning. Question. What good shall I do this day?
-
-{5}Rise, wash, and address Powerful
-
-6 Goodness! Con- trive day's business
-
-7 and take the res- olution of the day;
-
-prosecute the present study, and breakfast.
-
-89 } W o r k . 10
-
-11
-
-1 {12}
-
-Noon.
-
-2345 } W o r k .
-
-{6}Put things in their 7 places. Supper. Question. What good 8 Music or diversion,
-
-Evenining.
-
-have I done today?
-
-Night.
-
-9
-
-10
-
-or conversation. Examination of the day.
-
-{11 } 3
-
-4
-
-12 1 2
-
-Sleep.
-
-Read, or overlook my accounts, and dine.
-
-The Autobiography of Benjamin Franklin
-
-made a durable stain, and on those lines I mark’d my faults with a black- lead pencil, which marks I could easily wipe out with a wet sponge. After a while I went thro’ one course only in a year, and afterward only one in several years, till at length I omitted them entirely, being employ’d in voyages and business abroad, with a multiplicity of affairs that interfered; but I always carried my little book with me.
+In 1736 I lost one of my sons, a fine boy of four years old, by the small- pox, taken in the common way. I long regretted bitterly, and still regret that I had not given it to him by inoculation. This I mention for the sake of parents who omit that operation, on the supposition that they should never forgive themselves if a child died under it; my example showing that the regret may be the same either way, and that, therefore, the safer should be chosen.
 

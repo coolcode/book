@@ -1,93 +1,75 @@
 title: House of Cards 044
-date: 2015-01-24 15:43:51
+date: 2015-01-25 03:45:33
 tags: house-of-cards
 ---
 
-As he gazed out over the Thames towards the South Bank arts complex, Kendrick poured tea and opened his heart. ‘I have to say I never really expected all this,' he said. ‘But I've grown to like it very much indeed.'
+‘I did all the things that an eighteen-year-old college student in those days did. I went on two CND marches, and was even persuaded to take out a regular subscription to a student newspaper which I later found was run by the gay rights movement’ He tried to raise a chuckle at the memory, determined not to give any impression that he had something to hide.
 
-You've also managed to make your mark very quickly,' Mattie smiled her most winning of smiles and recrossed her legs. She had been careful to discard her favoured trousers for a fashionable blouse and skirt which showed off her legs and slender ankles to their best effect. She needed some information, and would buy it with a little flirting if needs be.
+‘I was also quite a strong supporter of the anti-apartheid movement, and to this day I actively oppose apartheid, although I intensely dislike the violent methods used by some of the self-proclaimed leaders of the movement’ he had told the journalist. 'Regrets? No, I have no real regrets about those early involvements; they weren't so much youthful mistakes as an excellent testing ground for the opinions I now hold. I know how foolish CND is - I've been there!'
 
-I'm doing a feature piece on the decline and fall of the Prime Minister, trying to get behind the basic news stories and talk to those who played a part in it, whether they had intended to or not. It won't be an unsympathetic piece, I'm not trying to moralise or lay blame. I'm trying rather to offer an insight into how Parliament works and how politics can be so full of surprises. And when it comes to surprises, yours was one of the biggest.'
+Samuel could scarcely believe the manner in which his remarks had been interpreted in the newspaper. It was ludicrous to suggest he had ever been a Communist; he wondered for a moment whether it was actually libellous. Yet underneath the headline, the article got even worse. ‘I marched for the Russians', admitted Samuel last night, recalling those days of the 1960s when ban-the-bomb marches frequently ended in violence and disruption.
 
-Kendrick chuckled. Tm still amazed at how my parliamentary reputation was built on such a - well, what would you call it? Stroke of luck? Throw of the dice? Guess work?'
+He also acknowledged that he had been a financial supporter of homosexual rights groups, making regular monthly payments to the Cambridge Gay Charter Movement which was amongst the earliest organisations pushing for a change in the laws on homosexuality.
 
-'Are you saying you didn't actually know that the hospital scheme had been shelved, that you were guessing?' Put it this way. I wasn't absolutely certain. I took a risk.' 'So what did you know?'
+Samuel's early left-wing involvement has long been a source of concern to party leaders. In 1970 when the twenty-seven-year-old Samuel applied to party headquarters to fight as an official party candidate in the general election of that year, the Party Chairman wrote to demand an explanation of 'the frequency with which your name was associated at university with causes which have no sympathy for our Party'.
 
-'Well, Mattie, I've never really told the full story before to anyone ...' He glanced down to where Mattie was rubbing her ankles, as if to relieve sore shins. 'But I suppose there's no harm in telling you a little of the background.'
+He seemed to satisfy the Party then, and won his way into the House of Commons at that election. However, last night Samuel was still defiant about those early involvements.
 
-He pondered a second to decide how far he should go. ‘I discovered that the Government - or rather their party headquarters - had planned a massive publicity campaign to promote the new plan for expanding hospitals. They had worked hard at it, spent a lot of money on the preparations, yet at the last minute they cancelled the whole thing. Just pulled the plug on it. I thought about this for a long while, and the only explanation I could reach was that they were actually pulling the plug, not just on the publicity campaign but on the policy itself. So I challenged the Prime Minister - and he fell for it! I couldn't have been more surprised myself.'
+‘I have no regrets', he said, acknowledging that he still sympathised strongly with some of those left-wing movements he used to support.
 
-‘I don't remember any discussion at the time about a publicity campaign. It must have been kept very quiet.' 'Of course, they wanted to keep the element of surprise. I believe all the planning of it was highly confidential.' 'You obviously have excellent confidential sources.'
+For the rest of the day there was fluster and commotion amongst the political reporters and in the Samuel household. Nobody really believed that he was a closet Communist; it was another of those silly, sensationalist pieces intended to raise circulation rather than the public's consciousness, but it had to be checked out, causing confusion and disruption at a time when Samuel was trying desperately to reassure his supporters and refocus attention on the serious issues of the campaign.
 
-'Yes. And they are staying confidential, even from you, I'm afraid!'
+By midday Lord Williams had issued a stinging denunciation of the newspaper for using confidential documents which had been stolen from a security cabinet by forcing the lock. The newspaper immediately responded that, while the Party itself seemed to be unforgivably incompetent with safeguarding their confidential material, the newspaper was happy to fulfil its public obligations and return the folder on Samuel to its rightful owners at party headquarters - which they did later, that day in time to catch the television news and give the story yet another lease of life.
 
-Mattie knew that she would need to offer much more than a flashing pair of ankles to get that sort of information out of him, and she was unwilling to pay so high a price.
+Most observers, after discussing the story at some length, dismissed it as a passing misfortune for Samuel brought about by the typical incompetence of party headquarters. But Samuel's campaign had run into a lot of misfortune since it began. It was not reassuring for someone who claimed to be on top of events, and it was definitely not the way to spend the final weekend of the leadership race.
 
-'Of course, Stephen. I know how valuable sources are. But can you give me a little guidance? The leak could only have come from one of two sources, Party or Government, yes... ?'
+The phone call upset Krajewski. He had been trying hard to keep a grip on his wayward emotions about Mattie, being alternately eaten away by frustration at her inconsistency and consumed with hunger for her body. He was also discovering that he simply downright missed her, and only occasionally did he succeed in forcing his thoughts about her to the back of his mind. When one of his colleagues telephoned to say that he had met Mattie and that she looked tired and unwell, he hadn't needed a second to realise how concerned he still was.
 
-He nodded.
+￼She had agreed to see him, but rejected his suggestion that he should come straight round. She didn't want him to see the apartment this way, with the dirty plates, the empty cartons which seemed to infest every available table top, and the worn clothes which had simply been dumped in the comer. The last few days had been hell. Unable to sleep, her mind and her emotions snarled up in one immense knot, her bed like a slab of ice, she was no longer sure which way to rum. The walls closed in around her, squeezing out her ability to think straight or feel anything other than growing depression.
 
-'And there has been a tremendous amount of publicity about the rift between party headquarters and Downing Street in recent months. Particularly as it was to be a party publicity drive, it would be logical to suspect that the information came out of party headquarters.'
+So when Krajewski called she had shown little enthusiasm even though she knew she needed support from someone. Reluctantly she had been cajoled into meeting him at the coffee shop on the eastern edge of the Serpentine, the winding duck-strewn lake which dominates the centre of Hyde Park. He cursed as he hurried towards it. The bitter November wind was raising foam-topped waves as it sliced across the water, and as he approached the empty, lifeless coffee shop he realised that it must have closed for the winter. He found the small, forlorn figure of Mattie sheltering under the eaves, wrapped in a thin anorak which suddenly seemed too large for her. She appeared to have shrunk since they had last met. There were uncharacteristic dark rings under her eyes, and the vitality which normally lit her face was missing. She looked awful. 'What a bloody silly place for us to meet’ he apologised. ‘Don't worry, Johnnie. I guess I needed the fresh air’ He wanted to put his arms around her and squeeze the chill out of her bones, but instead he tried to smile cheerfully.
 
-She raised an enquiring eyebrow, and puckered her lips.
+'What's new with Britain's top female journalist?' he enquired. Immediately he wanted to bite his tongue off. He hadn't intended sarcasm, not at all, but it was a clumsy choice of words. She shivered before she replied.
 
-'You're very good, very good, Mattie. But you didn't get that from me, OK? And I'm not saying any more about my source. You're too hot by half!'
+'Perhaps you're right to laugh. A few days ago I thought I had the world at my feet.'
 
-He was beginning to chuckle merrily when Mattie played her own hunch.
+'And now?'
 
-'No need to worry. I want to write a feature piece, not conduct an inquisition. Roger's secret is safe with me.'
+'Now it's all gone wrong. The job... The story.. ‘ - a slight pause -'... You. I thought I could do it all on my own. I was wrong. Sorry.' This was a new Mattie, all full of self-doubt and insecurity. He didn't know what to say, so said nothing.
 
-Kendrick spat out the mouthful of tea he was trying to drink and started choking.
+'When I was a young girl my grandfather used to take me out onto the Yorkshire dales. He said it was a lot like parts of Norway. The weather could get bitter and inhospitable up there but I never had any fears. Grandpa was always there with a helping hand and a smile. He always carried a flask of hot soup and I never felt better or warmer than when I was out with him, no matter how hard it blew. Then one day I thought I was grown up, didn't need Grandpa any more, so I slipped away on my own. I left the track and the o ground started getting softer. Soon I was sinking up to my ankles
 
-‘I never... said anything about... Roger!' he spluttered. But he knew he had betrayed his familiarity with O'Neill, and the calm face he was trying to restore simply eluded him. He decided to surrender.
+and then slipping deeper and deeper.' She was shivering again. ‘I couldn't get out. The more I struggled the deeper I became stuck. I thought I would never get out. It was the first time in my life that I had known what real fear was. But then Grandpa found me and plucked me out, and hugged me while I cried and dried my tears and made everything better’ Johnnie noted how frail and vulnerable she looked now inside the voluminous folds of her anorak, as if she was reliving the experience all over again.
 
-'Jesus. How did you know? Look, Mattie. Big favour time. I didn't say anything about Roger. We're old friends and I don't want to land him in any sort
+It's just like that now, Johnnie. I'm desperately trying to find some firm ground, something I can stand on and believe in, both about the story and in my own life. But I'm just sinking deeper and deeper, Grandpa's no longer around and I'm afraid. Do you understand? I feel as if I shall never step on solid ground again.'
 
-￼of hot water. He's got enough at Smith Square as it is, eh?' Mattie laughed loudly, teasing the politician for his discomfort.
+'But haven't you seen the Sunday newspapers?' he encouraged. 'Someone filched Samuel's personal papers. Another bombshell hits the leadership race from party headquarters. Even more evidence pointing directly at Teddy Williams. Isn't that firm ground?'
 
-‘Your sordid secret is safe with me,' she assured him. 'But when you have risen to become a senior member of Government some time in the future, perhaps even Prime Minister, I hope you will remember you owe me!'
+She shook her head sadly. If only it were that simple.'
 
-They both laughed loudly at the banter but, inside, Mattie's stomach churned. Another piece of the jigsaw had just fallen into place.
+‘I don't understand,' he said. 'We've got the deliberate theft of personal files. We've got the tampering with the central computer file - that's deliberate too. We've had the leaking of all sorts of damaging material out of party headquarters to you, to Kendrick, seemingly to anyone who was passing in the neighbourhood. We've got party officials opening accommodation addresses in false names, and politicians' corpses lying around like hedgehogs on a motorway. What more do you need? And it all leads back to party headquarters - which must mean Williams. He can't make Prime Minister himself, so he's making sure he controls whoever does.'
 
-They were there at lunchtime and still there in the evening, just reading, picking their teeth, and watching. Like avenging angels they had waited for Earle in their sordid little car from over forty-eight hours, witnessing every flicker of the curtain, photographing everyone who called including the postman and the milkman.
+‘You're missing the point, Johnnie. Why on earth should Williams need to steal his own documents? He could simply have copied the vital information without breaking in and stealing the whole bloody file. And he doesn't need to force locks - he's got all the keys. He is supposed to be
 
-'What do they want with me?' he screamed to himself inside his head. 'Why are they persecuting me like this?'
+Samuel's strongest ally, yet Samuel's campaign has been pedalling backwards ever since the election began.'
 
-He had no one to turn to, no one with whom to share his misery and offer consolation. He was a lonely figure, a sincere and even devout man who had made one mistake, and he knew sooner or later he must pay for it. His mother had always drilled into him the need to pay for one's sins or be consumed by hell fire, and he felt the flames licking at him now with growing ferocity. .
+Her eyes were burning with disappointment. 'Can you really imagine an elder statesman like Williams framing the Prime Minister for fraud? Or leaking so much material from party headquarters that it has made him look like a doddering imbecile? No, Johnnie. It's not Williams.'
 
-He had been home half an hour on Monday evening when they knocked on the door.
+Then who the hell is it? Samuel? Urquhart? Some other Cabinet Minister? Landless?'
 
-'Sorry to bother you, Mr Earle. Simmonds and Peters again. Just a quick question our editor wanted us to ask. How long have you known him?'
+‘I don't know’ she cried. That's why I feel as if I am drowning! The more I struggle, the deeper I get stuck. Professionally. Emotionally. It's like a great quagmire sucking me under. I'm just not sure about anything any more.'
 
-Into his face was thrust another photograph, still of Simon, but this time taken not at a public rally but in a photographer's studio, and dressed from head to foot in black leather slashed by zip fasteners. The jacket was open to the waist, exposing a slender, tapering body, while from his right hand there trailed a long bullwhip.
+‘I’d like to help you, Mattie. Please don't turn me away.'
 
-'Go away. Go away. Please - go away!' he screamed, so loudly that neighbours came to the window to investigate. If it's inconvenient, we'll come back some other time, sir.'
+‘Like Grandpa, you're always there when I need you. Thanks, Johnnie. But I've got to find my own path now or I never will. There's all this confusion inside me; I've got to sort these things out for myself.'
 
-Silently they filed back to their car, and resumed the watch.
+‘I can wait’ he said gently.
 
-￼TUESDAY 23rd NOVEMBER
+'But I can't. I've got only two more days to come up with the answer and only one strong lead - Roger O'Neill.'
 
-They were still there the following morning. After yet another sleepless night, Earle knew he had no emotional resources left. With red eyes and husky voice, he sat weeping gently in an armchair in the study. He had worked so hard, deserved so much, yet it had all come to this. He had tried so desperately to deserve his mother's love and commendation, to achieve something with which to illuminate her final years, but once again he had failed her, as she always said he would.
+￼MONDAY 29th NOVEMBER
 
-He knew he must finish it. There was no point in going on. He no longer believed in himself, and knew he had forfeited the right to have others believe in him. Through misty eyes he reached down into the drawer of his desk, and fumbled as he took out his private phone book. He punched the numbers on the phone as if they were nails being driven through his soul. He fought hard to control his voice throughout the brief conversation, but then it was finished, and he could weep again.
+The janitor found the body just after he had clocked on at 4.30 on Monday morning. He was beginning his morning duties at the Rownhams motorway service area just outside Southampton on the M27, starting with cleaning out the toilets, when he discovered that one of the cubicle doors would not open. He was nearing his sixty-eighth birthday, and he cursed as he lowered his old bones gently onto their hands and knees so that he could peer under the door. He had great difficulty getting all the way down, but he didn't need to. He saw the two shoes quite clearly, and that was enough to satisfy his curiosity. There was a man in there, and whether he was drunk, diseased or dying meant nothing to him except that it was going to put him way behind his cleaning schedule, and he cursed again as he staggered off to call his supervisor.
 
-The news that Earle had pulled out of the race left everyone aghast as it flashed round Westminster later on Tuesday morning. It had happened so unexpectedly that there was no time to alter the printed ballot papers except with an ignominious scratching through of the name with a biro. Sir Humphrey was not best pleased that his carefully laid preparations should have been thrown into chaos at the last minute, and had some rough words to use for anyone who was willing to listen. But on the stroke of ten Committee Room Number 14, which had been set aside in the House of Commons for the ballot, opened its doors and the first of the 335 Government MPs who were going to vote began to file through. There would be two prominent absentees - the Prime Minister, who had announced he would not vote, and Harold Earle.
-
-Mattie had intended to spend the whole day at the House of Commons chatting to MPs and gauging their sentiment. Most appeared to think that Earle's withdrawal would tend to help Samuel as much as anyone: 'the conciliators tend to stick with the conscience merchants’ one old buffer had explained, 'so Earle's supporters will drift towards young Disraeli. They haven't got the sense to make any more positive decision.' Behind the scenes and in private conversations with colleagues who could be trusted, the campaign was taking a more unpleasant personal edge.
-
-She was in the press gallery cafeteria drinking coffee with other correspondents when the tannoy system announced there was a telephone call for her. She took it at the nearest extension. The sense of shock which hit her when she heard the voice was even greater than the news of Earle's withdrawal.
-
-'Hello, Mattie. I understand you were looking for me last week. Sorry you missed me, I was out of the office. Touch of gastric 'flu. Do you still want to get together?'
-
-Roger O'Neill sounded so friendly and enthusiastic that she had trouble connecting it with the voice she had heard a few days earlier. Could it really have been O'Neill she had listened to drivelling down the phone? She remembered the reports about his outrageous performance at Urquhart's reception in Bournemouth, and realised the man must be riding an emotional helter skelter, careering between highs and lows like a demented circus ride.
-
-If you are still interested, perhaps you would like to come across to Smith Square later today’ he offered.
-
-He showed no signs of the verbal bruising he had received from Urquhart, which had been particularly merciless. Urquhart had telephoned to instruct O'Neill to make the appropriate arrangements for Simon to attend Earle's weekend meeting, and to ensure that the Minorwas anonymously informed of the connections between the two men. Instead he had discovered that O'Neill was sliding steadily into his cocaine-induced oblivion and losing touch with events outside his increasingly narrow, kaleidoscopic world. There had been a confrontation. Urquhart could not afford to lose O'Neill's services inside party headquarters, or have loose ends unravelling at this point.
-
-'One week, Roger, one more week and you can take a break, forget about all of this for a while if you want, and come back to that knighthood you've always wanted. Yes, Roger, with a "K" they will never be able to look down their noses at you again. And I can arrange everything for you. But you let me down now, you lose control and I will make sure you regret it for the rest of your life. Damn you, get a grip on yourself. You've got nothing to fear. Just hold on for a few more days!'
-
-O'Neill wasn't absolutely sure what Urquhart was going on about; to be sure he had been a little unwell but his befuddled brain still refused to accept there was a major problem which he couldn't handle. Why fill one's life with doubts, especially about oneself? He could cope with it, particularly with a little help... Still, a few days more to realise all his ambitions, to get the public recognition he deserved, to wipe the condescending smiles off their faces, would be worth a little extra effort.
-
-He had got back into the office to be told that Mattie had been looking for him, that she was asking questions about the Paddington accommodation address.
+The supervisor was in no better temper when he arrived, and used a screwdriver to open the lock from the outside. But the man's knees were wedged firmly up against the door, and push as hard as they might the two of them could not force it open more than a few inches. The supervisor put his hand around the door, trying to shift the man's knees, but instead grabbed a dangling hand which was as cold as ice. He recoiled in horror and gave a wail of anguish, insisting on washing his hands meticulously before he stumbled off to call the police and an ambulance.
 

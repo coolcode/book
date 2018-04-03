@@ -1,137 +1,103 @@
 title: Dreams from My Father 038
-date: 2015-01-24 15:43:57
+date: 2015-01-25 03:45:39
 tags: dreams-from-my-father
 ---
 
-The continuing struggle to align word and action, our heartfelt desires with a workable plan-didn’t self-esteem finally depend on just this? It was that belief which had led me into organizing, and it was that belief which would lead me to conclude, perhaps for the final time, that notions of purity-of race or of culture-could no more serve as the basis for the typical black American’s self-esteem than it could for mine. Our sense of wholeness would have to arise from something more fine than the bloodlines we’d inherited. It would have to find root in Mrs. Crenshaw’s story and Mr. Marshall’s story, in Ruby’s story and Rafiq’s; in all the messy, contradictory details of our experience.
+Inside, only a few of the parents remained. Linda stood alone in one corner, sobbing. I came up and put my arm around her shoulder.
 
-I went away for two weeks to visit my family. When I returned, I called Ruby and told her I needed her to come to a meeting that Saturday night.
+“You okay?”
 
-A long pause. “What about?”
+“I’m so embarrassed,” she said, gulping down a sob. “I don’t know what happened, Barack. With all the people...seems like I just always mess things up.”
 
-“You’ll see. Be ready by six...we’ll grab a bite to eat first.”
+“You didn’t mess up,” I said. “If anybody messed up, it was me.” I called the others together into a circle and tried to offer encouragement. The turnout was great, I said, which meant people were willing to get involved. Most of the residents would still support our effort. We would learn from our mistakes.
 
-Our destination was a full hour away from Ruby’s apartment, in one of the north-side neighborhoods where jazz and
+“And the director sure knows who we are now,” Shirley said.
 
-blues had migrated in search of a paying audience. We found a Vietnamese restaurant, and over a plate of noodles and shrimp we talked about her boss at work, the problems she was having with her back. The conversation seemed forced, though, without pause or reflection; as we spoke, we kept skirting each other’s gaze.
+This last line drew some weak laughter. Sadie said she had to get home; I told the group that I could take care of cleaning up. As I watched Bernadette pick up Tyrone in one arm and carry his slumbering weight across the gymnasium floor, I felt my stomach constrict. Dr. Collier tapped me on the shoulder.
 
-By the time we’d paid the restaurant bill and walked next door, the theater was already full. An usher showed us to our seats, which turned out to be in front of a group of black teenage girls out on a field trip. Some of the girls diligently thumbed through their programs, taking their cue from the older woman-a teacher, I assumed-who sat beside them. Most of the girls, though, were too excited to sit still; they whispered and giggled about the play’s lengthy title and asked questions of their chaperone, who showed an admirable patience throughout.
+“So who’s gonna cheer you up?” she asked.
 
-The room was suddenly blanketed in darkness, and the girls fell quiet. Then the lights rose, a dim blue now, and seven black women appeared on the stage dressed in flowing skirts and scarves, their bodies frozen in awkward contortions. One of them, a big woman dressed in brown, began to cry out:
+I shook my head.
 
-...half-notes scattered
+“You take some chances, things are gonna blow once in a while.”
 
-without rhythm / no tune distraught laughter fallin’
+“But the looks on their faces...”
 
-over a black girl’s shoulder
+“Don’t worry,” Dr. Collier said. “They’re tough. Not as tough as they sound-none of us are, including you. But they’ll
 
-it’s funny / it’s hysterical
+get over it. Something like this is just part of growing up. And sometimes growing up hurts.”
 
-the melody-less-ness of her dance
+The fallout from the meeting could have been worse. Because we had run so late, only one TV station replayed the tug-of-war between Linda and the director. The morning paper noted the frustration residents felt with CHA’s slow response to the asbestos problem, as well as the director’s tardiness that evening. In fact, we could claim the meeting as a victory of sorts, for the following week men dressed in moon-suits and masks were seen all over the Gardens, sealing any asbestos that posed an immediate threat. CHA also announced that it had asked the U.S. Department of Housing and Urban Development for several million dollars in emergency cleanup funds.
 
-don’t tell a soul
+Such concessions helped to lift the spirits of some of the parents, and after a few weeks of licking our wounds, we started meeting again to make sure that CHA followed up on its commitments. Still, in Altgeld at least, I couldn’t shake the feeling that the window of possibility that had been pried open so briefly had slammed shut once again. Linda, Bernadette, Mr. Lucas-they would all continue to work with DCP, but only reluctantly, out of loyalty to me rather than to each other. Other residents who had joined us during the weeks leading up to the meeting dropped away. Mrs. Reece refused to speak to us anymore, and while few people paid attention to her attacks on our methods and motives, the squabbling only served to reinforce the suspicion among residents that no amount of activism would alter their condition, except maybe to bring trouble that they didn’t need.
 
-she’s dancing on beer cans and shingles...
+A month or so after the initial cleanup, we met with HUD to lobby for CHA’s budget request. In addition to the emergency cleanup funds, CHA had asked the feds for over a billion dollars to make basic repairs on projects all over the city. A tall, dour white man from HUD went over the line items.
 
-As she spoke, the other women slowly came to life, a chorus of many shades and shapes, mahogany and cream, round and slender, young and not so young, stretching their limbs across the stage.
+“Let me be blunt,” he told us. “CHA has no chance of getting even half the appropriation it’s requested. You can have the asbestos removed. Or you can have new plumbing and roofing where it’s needed. But you can’t have both.”
 
-somebody / anybody sing a black girl’s song bring her out
+“So you’re telling us that after all this, we gonna be worse off than we was,” Bernadette said.
 
-to know herself
+“Well, not exactly. But these are the budget priorities coming out of Washington these days. I’m sorry.”
 
-to know you
+Bernadette hoisted Tyrone up on her lap. “Tell that to him.”
 
-but sing her rhythms
+Sadie didn’t join us for that meeting. She had called me to say that she had decided to stop working with DCP.
 
-carin’ / struggle / hard times sing her song of life...
+“My husband doesn’t think it’s a good idea, me spending all this time instead of looking after my own family. He says
 
-For the next hour, the women took turns telling their stories, singing their songs. They sang about lost time and discarded fantasies and what might have been. They sang of the men who loved them, betrayed them, raped them, embraced them; they sang of the hurt inside these men, hurt that was understood and sometimes forgiven. They showed each other their stretch marks and the calluses on their feet; they revealed their beauty in the lilt of their voice, the flutter of a hand, beauty waning, ascendant, elusive. They wept over the aborted children, the murdered children, the children they once were. And through all of their songs, violent, angry, sweet, unflinching, the women danced, each of them, double-dutch and rhumba and bump and solitary waltz; sweat-breaking, heart-breaking dances. They danced until they all seemed one spirit. At the end of the play, that spirit began to sing a single, simple verse:
+that the publicity went to my head...that I became prideful.”
 
-I found god in myself
+I suggested that as long as her family lived in the Gardens, she’d have to stay involved.
 
-and I loved her / I loved her fiercely
+“Ain’t nothing gonna change, Mr. Obama,” she said. “We just gonna concentrate on saving our money so we can
 
-Lights came up; bows were taken; the girls behind us cheered wildly. I helped Ruby with her coat and we walked out to the parking lot. The temperature had dropped; the stars glinted like ice against the black sky. As we waited for the car to warm up, Ruby leaned over and kissed me on the cheek.
+move outta here as fast as we can.”
 
-“Thanks.”
+CHAPTER THIRTEEN
 
-Her eyes, deep brown, were shimmering. I grabbed her gloved hand and gave it a quick squeeze before starting to drive. Nothing more was said; for the entire ride back to the South Side, until I left her at her door and wished her good-night, we never broke that precious silence.
+I ’M TELLING YOU, MAN, the world is a place.”
 
-CHAPTER ELEVEN
+“Say, the world is a place, huh.”
 
-I PULLED INTO THE AIRPORT parking lot at a quarter past three and ran to the terminal as fast as I could. Panting for breath, I spun around several times, my eyes scanning the crowds of Indians, Germans, Poles, Thais, and Czechs gathering their luggage.
+“That’s just what I’m saying.”
 
-Damn! I knew I should have left earlier. Maybe she had gotten worried and tried to call. Had I given her my office number? What if she’d missed her flight? What if she had walked right past me and I hadn’t even known it?
+We were walking back to the car after dinner in Hyde Park, and Johnnie was in an expansive mood. He often got like
 
-I looked down at the photograph in my hand, the one she had sent me two months earlier, smudged now from too much handling. Then I looked up, and the picture came to life: an African woman emerging from behind the customs gate, moving with easy, graceful steps, her bright, searching eyes now fixed on my own, her dark, round, sculpted face blossoming like a wood rose as she smiled.
+this, especially after a good meal and wine. The first time I met him, when he was still working with a downtown civic group, he had started explaining the relationship between jazz and Eastern religion, then swerved into an analysis of black women’s behinds, before coming to a stop on the subject of Federal Reserve Bank policy. In such moments his eyes would grow wide; his voice would speed up; his round, bearded face would glow with a childlike wonder. That was part of the reason I’d hired Johnnie, I suppose, that curiosity of his, his appreciation of the absurd. He was a philosopher of the blues.
 
-“Barack?”
+“I’ll give you an example,” Johnnie was saying to me now. “The other day, I’m headed for a meeting up in the State of Illinois Building. You know how it’s open in the middle, right...big atrium and all that. Well, the guy I’m supposed to be meeting with is late, so I’m just standing there looking down at the lobby from the twelfth floor, checking out the architecture, when all of a sudden this body flies past me. A suicide.”
 
-“Auma?”
+“You didn’t tell me about that-”
 
-“Oh my...”
+“Yeah, well, shook me up pretty good. High up as I was, I could hear the body land like it was right there next to me. Terrible sound. Soon as it happened, these office workers rushed up to the guardrail to see what was going on. We’re all looking down, and sure enough the body’s lying there, all twisted and limp. People started screaming, covering their eyes. But the strange thing was, after people got through screaming, they’d go back to the railing to get a second look. Then they’d scream and cover their eyes all over again. Now why would they do that? Like, what do they expect the second time around? But see, folks are funny like that. We can’t help ourselves with that morbid shit....
 
-I lifted my sister off the ground as we embraced, and we laughed and laughed as we looked at each other. I picked up
+“Anyway, the cops come, they rope things off and take the body away. Then the building crew starts cleaning up. Nothing special, you know-just a broom and a mop. Sweeping up a life. Whole thing’s cleaned up in maybe five minutes. Makes sense, I guess.... I mean, it’s not like you need special equipment or suits or something. But it starts me thinking, How’s that gonna feel to be one of those janitors, mopping up somebody’s remains? Somebody’s got to do it, right? But how you gonna feel that night eating dinner?”
 
-her bag and we began to walk to the parking garage, and she slipped her arm through mine. And I knew at that moment, somehow, that I loved her, so naturally, so easily and fiercely, that later, after she was gone, I would find myself mistrusting that love, trying to explain it to myself. Even now I can’t explain it; I only know that the love was true, and still is, and I’m grateful for it.
+“Who was it that jumped?”
 
-“So, brother,” Auma said as we drove into the city, “you have to tell me everything.” “About what?”
+“That’s the other thing, Barack!” Johnnie took a drag from his cigarette and let the smoke roll from his mouth. “It was a young white girl, man, sixteen maybe, seventeen. One of these punk rock types, with blue hair and a ring through her nose. Afterward, I’m wondering what she was thinking about while she was riding up the elevator. I mean, folks musta been standing right next to her on the way up. Maybe they looked her over, decided she was a freak, and went back to thinking about their own business. You know, their promotion, or the Bulls game, or whatever. And the whole time this girl’s just standing there next to them with all that pain inside her. Got to be a lot of pain, doc, ’cause right before she jumps, you figure she looks down and knows that shit is gonna hurt.”
 
-“Your life, of course.”
+Johnnie stamped out his cigarette. “So that’s what I’m saying, Barack. Whole panorama of life out there. Crazy shit going on. You got to ask yourself, is this kinda stuff happening elsewhere? Is there any precedent for all this shit? You ever ask yourself that?”
 
-“From the beginning?”
+“The world’s a place,” I repeated.
 
-“Start anywhere.”
+“See there! It’s serious, man.”
 
-I told her about Chicago and New York, my work as an organizer, my mother and grandparents and Maya-she had heard so much about them from our father, she said, she felt as if she already knew them. She described Heidelberg, where she was trying to finish a master’s degree in linguistics, and the trials and tribulations of living in Germany.
+We’d almost reached Johnnie’s car when we heard a small pop, compact and brief, like a balloon bursting. We looked
 
-“I have no right to complain, I suppose,” she said. “I have a scholarship, a flat. I don’t know what I would be doing if I was still in Kenya. Still, I don’t care for Germany so much. You know, the Germans like to think of themselves as very liberal when it comes to Africans, but if you scratch the surface you see they still have the attitudes of their childhood. In German fairy tales, black people are always the goblins. Such things one doesn’t forget so easily. Sometimes I try to imagine what it must have been like for the Old Man, leaving home for the first time. Whether he felt that same loneliness...”
+in the direction of the sound, and watched a young man appear from around the corner diagonal to us. I don’t clearly recall his features or what he wore, although he couldn’t have been older than fifteen. I just remember that he ran at a desperate pace, his sneakered feet silent against the sidewalk, his lanky limbs pumping wildly, his chest jutting out as if straining for an imaginary tape.
 
-The Old Man. That’s what Auma called our father. It sounded right to me, somehow, at once familiar and distant, an elemental force that isn’t fully understood. In my apartment, Auma held up the picture of him that sat on my bookshelf, a studio portrait that my mother had saved.
+Johnnie dropped flat onto a small plot of grass in front of one of the apartments, and I quickly followed suit. A few seconds later, two more boys came around the same corner, also running at full speed. One of them, short, fattish, with pants that bunched around his ankles, was waving a small pistol. Without stopping to aim, he let out three quick shots in the direction of the first boy. Then, realizing that his target was out of range, he slowed to a walk, stuffing the weapon under his shirt. His companion, skinny and big-eared, came alongside.
 
-“He looks so innocent, doesn’t he? So young.” She held the picture next to my face. “You have the same mouth.” I told her she should lie down and get some rest while I went to my office for a few hours of work.
+“Stupid motherfucker,” the skinny boy said. He spat with satisfaction, and the two of them laughed to each other before continuing down the street, children again, their figures casting squat shadows on the asphalt.
 
-She shook her head. “I’m not tired. Let me go with you.”
+Another fall, another winter. I had recovered from the disappointments of the asbestos campaign, developed other issues and found other leaders. Johnnie’s presence had helped relieve my workload, and our budget was stable; what I’d lost in youthful enthusiasm I made up for in experience. And in fact, it may have been that growing familiarity with the landscape, the counsel of time, that gave me the sense that something different was going on with the children of the South Side that spring of 1987; that an invisible line had been crossed, a blind and ugly corner turned.
 
-“You’ll feel better if you take a nap.”
+There was nothing definite I could point to, no hard statistics. The drive-by shootings, the ambulance sirens, the night sounds of neighborhoods abandoned to drugs and gang war and phantom automobiles, where police or press rarely ventured until after the body was found on the pavement, blood spreading in a glistening, uneven pool-none of this was new. In places like Altgeld, prison records had been passed down from father to son for more than a generation; during my very first days in Chicago I had seen the knots of young men, fifteen or sixteen, hanging out on the corners of Michigan or Halsted, their hoods up, their sneakers unlaced, stomping the ground in a desultory rhythm during the
 
-She said, “Agh, Barack! I see you’re bossy like the Old Man as well. And you only met him once? It must be in the
+colder months, stripped down to T-shirts in the summer, answering their beepers on the corner pay phones: a knot that unraveled, soon to reform, whenever the police cars passed by in their barracuda silence.
 
-blood.”
+No, it was more a change of atmosphere, like the electricity of an approaching storm. I felt it when, driving home one evening, I saw four tall boys walking down a tree-lined block idly snapping a row of young saplings that an older couple had just finished planting in front of their house. I felt it whenever I looked into the eyes of the young men in wheelchairs that had started appearing on the streets that spring, boys crippled before their prime, their eyes without a trace of self-pity, eyes so composed, already so hardened, that they served to frighten rather than to inspire.
 
-I laughed, but she didn’t; instead, her eyes wandered over my face as if it were a puzzle to solve, another piece to a
-
-problem that, beneath the exuberant chatter, nagged at her heart.
-
-I gave her a tour of the South Side that afternoon, the same drive I had taken in my first days in Chicago, only with
-
-some of my own memories now. When we stopped by my office, Angela, Mona, and Shirley happened to be there. They asked Auma all about Kenya and how she braided her hair and how come she talked so pretty, like the queen of England, and the four of them enjoyed themselves thoroughly talking about me and all my strange habits.
-
-“They seem very fond of you,” Auma said afterward. “They remind me of our aunties back home.” She rolled down the window and stuck her face into the wind, watching Michigan Avenue pass by: the gutted remains of the old Roseland Theatre, a garage full of rusted cars. “Are you doing this for them, Barack?” she asked, turning back to me. “This organizing business, I mean?”
-
-I shrugged. “For them. For me.”
-
-That same expression of puzzlement, and fear, returned to Auma’s face. “I don’t like politics much,” she said. “Why’s that?”
-
-“I don’t know. People always end up disappointed.”
-
-There was a letter waiting for her in my mailbox when we got home; it was from a German law student she said she’d
-
-been seeing. The letter was voluminous, at least seven pages long, and as I prepared dinner, she sat at the kitchen table and laughed and sighed and clicked her tongue, her face suddenly soft and wistful.
-
-“I thought you didn’t like Germans,” I said.
-
-She rubbed her eyes and laughed. “Yah-Otto is different. He’s so sweet! And sometimes I treat him so badly! I don’t know, Barack. Sometimes I think it’s just impossible for me to trust anybody completely. I think of what the Old Man made of his life, and the idea of marriage gives me, how do you say...the shivers. Also, with Otto and his career, we would have to live in Germany, you see. I start imagining what it would be like for me, living my entire life as a foreigner, and I don’t think I could take it.”
-
-She folded her letter and put it back in the envelope. “What about you, Barack?” she asked. “Do you have these problems, or is it just your sister who’s so confused?”
-
-“I think I know what you’re feeling.”
-
-“Tell me.”
-
-I went to the refrigerator and pulled out two green peppers, setting them on the cutting board. “Well...there was a
-
-woman in New York that I loved. She was white. She had dark hair, and specks of green in her eyes. Her voice sounded like a wind chime. We saw each other for almost a year. On the weekends, mostly. Sometimes in her apartment, sometimes in mine. You know how you can fall into your own private world? Just two people, hidden and warm. Your own language. Your own customs. That’s how it was.
-
-“Anyway, one weekend she invited me to her family’s country house. The parents were there, and they were very nice, very gracious. It was autumn, beautiful, with woods all around us, and we paddled a canoe across this round, icy lake full of small gold leaves that collected along the shore. The family knew every inch of the land. They knew how the hills had formed, how the glacial drifts had created the lake, the names of the earliest white settlers-their ancestors- and before that, the names of the Indians who’d once hunted the land. The house was very old, her grandfather’s house. He had inherited it from his grandfather. The library was filled with old books and pictures of the grandfather with famous people he had known-presidents, diplomats, industrialists. There was this tremendous gravity to the room. Standing in that room, I realized that our two worlds, my friend’s and mine, were as distant from each other as Kenya is from Germany. And I knew that if we stayed together I’d eventually live in hers. After all, I’d been doing it most of my life. Between the two of us, I was the one who knew how to live as an outsider.”
+That’s what was new: the arrival of a new equilibrium between hope and fear; the sense, shared by adults and youth alike, that some, if not most, of our boys were slipping beyond rescue. Even lifelong South Siders like Johnnie noticed the change. “I ain’t never seen it like this, Barack,” he would tell me one day as we sat in his apartment sipping beer. “I mean, things were tough when I was coming up, but there were limits. We’d get high, get into fights. But out in public, at home, if an adult saw you getting loud or wild, they would say something. And most of us would listen, you know what I’m saying?
 

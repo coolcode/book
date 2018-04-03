@@ -1,101 +1,153 @@
 title: House of Cards 027
-date: 2015-01-24 15:44:08
+date: 2015-01-25 03:45:50
 tags: house-of-cards
 ---
 
-He had no specific reason to distrust Williams, of course, but the constant media discussion of a growing gulf between the two began to make a reality of what previously had been only irresponsible and inventive gossip. Distrust is a matter of mind, not fact, and the press had created strong and virulent perceptions. In the circumstances the ageing and proud Party Chairman felt he couldn't offer advice without being asked, while Collingridge took his silence as probable evidence of disloyalty. Anyway, rationalised Collingridge, party headquarters had let him down badly if not deliberately, and who was responsible for that?
+'OK, Clark Kent. Seems fair enough. Look, I can get a hard copy of the face off the video tape and show it around. We could try old Freddie, one of our staff photographers. Not only does he have an excellent memory for faces, he is also an alcoholic who dried out a couple of years ago. He still goes religiously every week to Alcoholics Anonymous, and he might well be able to put us on the right track. There aren't that many treatment centres, we should be able to make some progress - but I still don't accept your conspiracy theory, Mattie. It's still all much more likely to be circumstance and coincidence.'
 
-Sarah went for the first visit to Charles, and came back late and very depressed. They were in bed before she could bring herself to talk about it. 'He looks awful, Henry. I never realised quite how ill he was making himself, but it all seems to have caught up with him in a few days. The doctors are still trying to detoxify him, get all the alcohol out of his system. They said he was close to killing himself.' She buried her head in his arms.
+You cynical bastard, what do I have to do to convince you?'
 
-‘I blame myself. I could have stopped him. If only I hadn't been so preoccupied ... Did he say anything about the shares?'
+'Come here and show me a little more of that feminine intuition of yours,' he growled.
 
-'He's scarcely coherent yet; he just kept saying "£50,000? What £50,000?" He swore he'd never been anywhere near a Turkish bank.'
+At almost exactly the same time in the private booth of a fashionable and overpriced restaurant in the West End of London, Landless and Urquhart were also locked together, in an embrace of an entirely mercenary kind.
 
-She sat bolt upright in bed, looking deep into her husband's eyes. Is he guilty?'
+Interesting times, Frankie, interesting times,' mused Landless.
 
-‘I simply don't know, darling. But what choice do I have? He has to be innocent. If he did buy those shares, then who on earth is going to believe that I didn't tell him to do so. If Charles is guilty, then I shall be judged guilty with him.'
+In China, I believe, it is a curse to live in interesting times.'
 
-She gripped his arm in alarm.
+I'm sure Collingridge agrees!' said Landless, bursting into gruff laughter.
 
-Collingridge smiled to reassure her. ‘Don't worry, my love, I am sure it will never come to that.' But his voice was tired, unconvincing.
+He tapped the ash off his thick Havana cigar and savoured the large cognac before returning to his guest.
 
-'Couldn't you say that Charles was ill, he didn't know what he was doing, he somehow... found the information without your knowing...' Her voice faded away as she began to realise how transparent the argument was.
+‘Frankie, I invited you here this evening to ask just one question. I shan't beat around the bush, and I shall thank you to be absolutely blunt with me. Are you going to stand for the leadership?' He glared directly at Urquhart, trying to intimidate him into total frankness.
 
-He took her gently in his arms, surrounding her with warmth and comfort. He kissed her forehead and felt a warm tear fall on his chest. He knew he was close to tears, too, and felt no shame.
+‘I can't tell yet. The situation is very unclear, and I shall have to wait for the dust to settle a little...'
 
-￼'No, Sarah, I shall not be the one to finish off Charlie. God knows he's been trying hard enough to do that himself, but I am still his brother. On this one we will survive, or sink if we must, as a family. Together.'
+'OK, Frankie, let me put it this way. Do you want it? Because if you do, old son, I can be very helpful to you.'
 
-Mattie's original intention had been to take the whole week off recovering from the after-effects of the media circus which had spent the best part of six weeks travelling around some of the country's less splendid bars and boarding houses following the various political parties' annual conferences. It was an exhausting schedule, and most of the following weekend she had intended to devote to sampling some exotic Chilean wines and soaking in the bath. But the relaxation she sought proved to be elusive. Her indignation at the way Preston had not only trampled on her story but also abused her sense of journalistic pride seemed to make the wine taste acidic and the bathwater turn cold.
+Urquhart returned his host's direct stare, looking deep into the protruding, bloodshot eyes.
 
-So she tried burning off her anger with strenuous physical work, but after three days of taking it out on the woodwork of her Victorian apartment with sandpaper and paint, she could stand hex frustration no longer. On Tuesday morning at 9.30, Mattie was planted firmly in the leather armchair in front of the editor's desk, determined not to move until she had confronted Preston. He would not be able to put me phone down on her this time.
+‘I want it very, very much.'
 
-She had been there nearly an hour before his secretary peered apologetically round the door. 'Sorry, Mattie. He's just called in to say he's got an outside appointment. He won't be in until after lunch.'
+It was the first time he admitted to anyone other than himself his burning desire to hold the reins of 'Prime
 
-Mattie felt as if the world was conspiring against her. She wanted to scream or smash something or put chewing gum in his hair brush - anything to get her own back. It was therefore unfortunate timing that John Krajewski decided at that moment to see whether the editor was in his office, only to discover an incandescent Mattie.
+Ministerial power, yet with Landless, who wore his naked ambition on his sleeve, he felt no embarrassment in the confession.
 
-‘I didn't know you were in!'
+'That's good. Let's start from there. Let me tell you what the Telegraph will be running tomorrow. It's an analysis
 
-I'm not,' she said between clenched teeth. 'At least, not for much longer.' She stood up to go.
+piece by our political correspondent, Mattie Storin. Pretty blonde girl with long legs and big blue eyes - d'you know her, Frankie?'
 
-Krajewski was ill at ease and awkward, glancing around the room to make sure they were alone.
+'Yes,' mused Urquhart. 'Only professionally, of course,'
 
-'Look, Mattie, I've picked up the phone a dozen times to call you since last week, but...'
+he hastened to add as he saw the fleshy lips of his companion preparing a lewd comment. 'Bright, too. I'm interested to discover how she sees things.'
 
-'But what?' she snapped.
+'Says it is an open race for the leadership, that Collingridge's resignation has come so quickly and unexpectedly that no potential successor has got his public case prepared very well. So almost anything could happen.'
 
-'I was afraid I couldn't find the words to stop you biting my head off,' he said softly.
+￼‘I believe she is right,' nodded Urquhart. 'Which worries me. The whole election process could be over in less than
 
-'Then you were right!' But Mattie's voice had changed, growing gentler as she realised how totally she had lost her sense of humour. It wasn't Johnnie's fault, so why take it out on him, just because he was the only man around to kick? He was worth more than that.
+three weeks, and it's the slick, flashy television performers who will gain the best start. The tide is eveiything in
 
-Since his wife had died two years earlier, Krajewski had lost much of his self-confidence, both about women and his professional abilities. He had survived in his demanding job on the strength of his undoubted journalistic talents, but his confidence with women was only slowly returning, penetrating and gradually cracking the shell which his pain had built around him. Many women had tried, attracted by his tall frame, dark hair and deep, sad eyes. But he wanted more than their sympathy, and slowly he had begun to realise that he wanted Mattie. At first he had allowed himself to show no special interest in her, just the respect of a professional colleague which had only slowly developed into something more relaxed during their shared moments in the office and over countless cups of machine coffee. The thrill of the chase was at last beginning to return to his empty life, helping him tolerate the lash of Mattie's tongue. And now he sensed the softening in her mood.
+winning these contests; if it's with you, it will sweep you home; flowing against you, then no matter how good a swimmer you are, you'll still drown’
 
-'Mattie, let's talk about it. But not here, not in the office. Over dinner where we can get away from all this.' He made an irritated gesture in the direction of the editor's desk.
+'Which slick, flashy television performers in particular?' Try Michael Samuel’
 
-Is this an excuse for a pick up?' The slightest trace of a smile began to appear at the comers of her mouth. 'Do I need an excuse... ?'
+'Mmmm, young, impressive, principled, seems intelligent — not at all to my liking. He wants to interfere in
 
-She grabbed her bag and swung it over her shoulder. 'Eight o'clock,' she instructed, trying in vain to look severe as she walked past him and out of the office.
+everything, rebuild the world. Got too much of a conscience for my liking, and not enough experience in taking hard, sound decisions.'
 
-I’ll be there,' he shouted after her. ‘I must be a masochist, but I'll be there.'
+'So what do we do?' asked Urquhart.
 
-And indeed at eight o'clock prompt, he was. They hadn't gone very far, just around the comer from Mattie's flat in Notting Hill to The Ganges, a little Bangladeshi restaurant with a big clay oven and a proprietor who ran an excellent kitchen during the time he allowed himself away from his passionate preoccupation with trying to overthrow the Government back home.
+Landless cupped the crystal goblet in his huge hands, swirled the dark liquor and chuckled quietly.
 
-They were waiting for the chicken tikka to arrive when Mattie told him. ‘Johnnie, I've been burning up with anger all afternoon. I think I've made a terrible mistake. With all my heart I want to be a journalist, a good journalist. Deep down I always thought I could be a great journalist, but it will never happen working for a man like that, Grev Preston is not what I left everything behind and came to
+'Frankie, tides turn. You can be swimming strongly for the shore one minute, and the next be swept out to sea.. ‘
 
-London for, and I'm not taking any more of his crap. I'm quitting.'
+He took a huge gulp of cognac, raised his finger to order another round, and settled his bulk as comfortably as he could into his chair before resuming the conversation.
 
-He looked at her sharply and took his time in responding. She was trying to smile defiantly, but he could see the sense of bitter failure tearing at her inside.
+'Frankie, this afternoon I instructed a small and extremely confidential team at the Telegraph to start contacting as many of the Government's Members of Parliament as they can get hold of in the next twenty-four hours to ask which way they are going to vote. In the next
 
-Don't rush it. And don't leave until you have something else to go to. You would regret it if you were out of action right now, just when the political world seems to be falling apart.'
+edition of the Telegraph, they will publish the results -which I confidently predict will show Mr Samuel with
 
-She looked at him quizzically. 'Frankly, Johnnie, you surprise me. That's not the impassioned plea to stay on as part of the team that I was expecting from my deputy editor.'
+a small but clear lead over the rest of the field’
 
-￼I'm not speaking as the deputy editor, Mattie. You mean more to me than that.' There was a short, embarrassed, very English silence which he covered by elaborately breaking a large hunk of nan bread in two. 'I understand why you feel like that. I feel exactly the same way.' There was an edge of bitterness in his words.
+'What?' exclaimed Urquhart in horror. 'How do you know this? The poll hasn't even been finished yet...' 'Frankie, I know what the poll is going to say because I am the publisher of the bloody newspaper’ 'You mean you've fixed it? But why are you pushing Samuel?'
 
-'You are thinking of leaving, too?' said Mattie with astonishment.
+'Because although the poll will show a very reasonable level of support for you, at the moment you can't win the
 
-His eyes were dark and sad once more, but with anger rather than self pity.
+contest. You're the Chief Whip, you don't have any great public platform from which to preach, and if it becomes a free-for- all you're going to get trampled in the rush’
 
-I've been with the paper over eight years. It used to be a quality paper, one I was proud to work for - before the takeover. But what they have done to you, and what they are doing to everyone there, is not my idea of journalism.' He bit into the warm, spicy bread as he considered carefully what he would say next.
+Urquhart had to acknowledge the weakness of his position as the faceless man of Government.
 
-'As deputy editor I bear some responsibility for what appears in the paper. Perhaps I shouldn't tell you the story of what happened the other night, but I'm going to because I can't tolerate any more being stuck with the responsibility for the things that are happening now. Mattie, do you want to know what happened to your story?'
+'So we push Mr Samuel, get him off to a roaring start, which means instead of a free-for-all we have a target at which everyone is going to shoot. In a couple of weeks' time, he's going to be amazed at the number of bad friends he's got within the Party, all trying to do him down. Hell be on the defensive. Fighting the tide.'
 
-There was no need to answer the question. The chicken tikka and vegetable curry had arrived, with the strongly flavoured dishes crowded onto the tiny table, but neither of them showed any interest in the food.
+Urquhart was astonished at the clarity of the Landless analysis, and began to understand why the East-Ender had become such a striking success in the business world.
 
-That night a few of us were standing around in the news room shortly before the first edition deadline. It was a quiet night, not much late breaking news. Then Grev's secretary shouted across the floor that there was a phone call for him and he disappeared to take it in his own office. Ten minutes later he reappeared, very flustered. Someone had really lit a fire under him. 'Hold everything," he shouted. "We're going to change the front page." I thought, Jesus, they must have shot the President. He was in a real state, very nervous. Then he asked for your story to be put up on one of the screens. He announced we were going to lead with it, but first we had to beef it up.'
+'So where do I come into this great plan?'
 
-'But the reason he spiked it in the first place was because he said it was too strong!'she protested.
+'You've got to develop a unique selling proposition for yourself, something which will be attractive to your fellow MPs and set you apart from your rivals.'
 
-'Of course. But wait, it gets better. So there he was, looking over the shoulder of one of our general reporters who was sitting at the screen, dictating changes directly to him. Twisting it, hyping it, turning everything into a personal attack on the Prime Minister. And you remember the quotations from senior Cabinet sources on which the whole rewrite was based? He made them up, on the spot. Every single one of them. It was fiction from beginning to end. You should have been delighted that your name wasn't on it.'
+'Such as?' asked the bewildered Urquhart.
 
-'But why? Why on earth invent a story like that? Changing the whole editorial stance of the newspaper by dumping Collingridge. What made him change his mind in such a hurry?' She paused for a second, biting her lip with impatience. 'Wait a minute. Who was he talking to on the phone? Who was this so-called source in Bournemouth?' she demanded. 'Of course, I see it now.' She let out a low sigh of understanding. 'Mr Benny Bunter Landless.'
+'Frankie, you become the archetypal compromise candidate. While all those other bastards are shooting and stabbing each other in public, you slip quietly through as the man they all hate least.'
 
-He nodded confirmation.
+'That's what the Social Democrats used to pin their hopes on. Remember them? And frankly I'm not sure I have much of a reputation as being the obvious compromise candidate.'
 
-'So that's why Grev was jumping through the hoops and screwing around with my story. I should have realised it earlier. The ringmaster was cracking the whip’
+'But the Social Democrats didn't have my help or my bunch of newspapers behind them. You will. High risks, I know, Frankie. But then they are high rewards.'
 
-'And that's why I feel I can't go on either, Mattie. We are -no longer a newspaper, we're beginning to act as the proprietor's own personal edition of
+'What do I have to do?'
 
-Pravda’
+To catch the tide, your timing has to be right Frankly, I would be happier if there were a little time - perhaps a
 
-But Mattie's curiosity had already begun to overhaul her own anger and disappointment. There was a story lurking somewhere, and the excitement of the chase began to take a hold on her. 'So Landless has suddenly turned against Collingridge. All his newspapers were craven sycophants during the election, yet now we are running a lynch party. Why, Johnnie, why?'
+month - between now and when the voting starts to give the other contenders time to tire, for their campaigns to ship a little water and to get everyone bored with the choice of candidates on offer. Then you discover a large press campaign promoting your late and unexpected entry into the race, which brings back an element of excitement and relief. The tide starts running with you, Francis.'
+
+Urquhart rioted that Landless had called him by his proper name for the first time. The man was absolutely serious about his proposal. 'So you want me to see if I can slow the election procedure down a little’
+
+'Can you do it?'
+
+'Although Humphrey Newlands runs the election, according to the Party's constitution the timing of the
+
+￼ballot is entirely in the hands of the Prime Minister, and he would do nothing to help Teddy Williams' favoured candidate. So I think there's a damned good chance...'
+
+TUESDAY 26th OCTOBER
+
+'Prime Minister, I haven't had a chance to speak with you since your announcement yesterday. I can't tell you how shocked and - devastated I was.'
+
+'Francis, that's very kind of you. But no sympathy, please. I feel absolutely content with the situation. In
+
+any event, I have little time today for second thoughts. Humphrey Newlands is coming in twenty minutes so we
+
+can get the leadership election process under way, then I'm off to spend the rest of the day with my brother Charles. It's marvellous to have time for such things!' he exclaimed.
+
+Urquhart was astonished to see he meant every word of it.
+
+'Prime Minister, you don't appear to be in a mood for maudlin sentiments, so I shan't spend any time adding to them. But you must know how deeply saddened I am. As I listened to you yesterday I felt as if I... were falling out of the sky, quite literally. But enough- Let's look forward, not back. It seems to me that some of our colleagues have served you rather badly in recent months, not showing the support you deserved. Now while you have already said you will not support any particular candidate in the election, I suspect you have some clear views as to whom you do not wish to get his hands on the leadership. As things stand at the moment I have no intention of becoming a candidate myself, so I thought you might like me to keep
+
+you informed of what's going on and give you some feedback from the Parliamentary Party on the state of play. I know you are not going to interfere, but perhaps that won't stop you taking a close interest...'
+
+They both knew that even a failed Party Leader in his last days still has enough influence to sway a crucial body of opinion within the Parliamentary Party. It is not only the favours he has accumulated from placemen over time, but also the not inconsiderable matter of his nominations for the Resignation Honours List, which every retiring Prime Minister is allowed to make. For many senior members of the Party, this would be their last chance to rise above the mob of ordinary parliamentarians and achieve the social status to which their wives had so long aspired.
+
+'Francis, that's most understanding’ Collingridge was clearly in a relaxed and very trusting mood.' You know, the
+
+Prime Minister is expected to be aware of everything that's going on but, as I have discovered to my cost, it's so easy to
+
+get isolated, to have events just slip past you without making any contact with them. I suspect dear old Sir
+
+Humphrey is past giving the best intelligence on the state of parliamentary opinion, so I would very much welcome
+
+your advice. As you so delicately put it, I shall certainly take a close interest in the matter of who is to succeed me. So tell me, how do things look?'
+
+Tarry days yet, very difficult to tell. I trunk most of the press are right to suggest it's an open race. But I would expect things to develop quickly once they get going.'
+
+'No front runners yet, then?'
+
+'Well, one perhaps who seems to have something of a head start. Michael Samuel.' 'Michael! Why so?'
+
+'Simply that it's going to be a short and furious race, with little room for developing solid arguments or issues. In
+
+those circumstances, the ones who use television well are going to have a strong advantage. And, of course, he's going to have the strong if subtle support of Teddy and party headquarters.'
+
+Collingridge's face clouded. 'Yes. I see what you mean.' He drummed his fingers loudly on the arm of his chair, weighing his words carefully.
+
+'Francis, I shall be absolutely scrupulous in not favouring any candidate in this race. My only concern is to let the Party have a fair and free leadership election so they can make their own choice. But you make it sound as if the election won't be as open as it perhaps should be, with party headquarters playing too influential a role’
+
+He chose his words carefully, and uttered them slowly and softly. ‘I would not welcome that. I don't think Teddy's
 

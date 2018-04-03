@@ -1,125 +1,75 @@
 title: The English Patient 017
-date: 2015-01-24 15:44:17
+date: 2015-01-25 03:46:00
 tags: the-english-patient
 ---
 
-Earlier, when she saw that he had left the window alcove, she had been enraged. Knowing that he was protecting them like children from the mine. She had clung closer to Caravag-gio. It had been an insult. And tonight the growing exhilaration of the evening didn’t permit her to read after Caravaggio had gone to bed, stopping to rifle through her medicine box first, and after the English patient had plucked at the air with his bony finger and, when she had bent over, kissed her cheek.
+Hours later we were in the sandstorm that hit us out of clear morning, coming from nowhere. The breeze that had been refreshing had gradually strengthened. Eventually we looked down, and the surface of the desert was changed. Pass me the book... here. This is Hassanein Bey’s wonderful account of such storms—
 
-She had blown out the other candles, lit just the night stub at the bedside table and sat there, the Englishman’s body facing her in silence after the wildness of his drunken speeches. “Sometime a horse I’ll be, sometime a hound. A hog, a headless bear, sometime a fire.” She could hear the spill of the wax into the metal tray beside her. The sapper had gone through town to some reach of the hill where the explosion had taken place, and his unnecessary silence still angered her.
+“It is as though the surface were underlaid with steam-pipes, with thousands of orifices through which tiny jets of steam are puffing out. The sand leaps in little spurts and whirls. Inch by inch the disturbance rises as the wind increases its force. It seems as though the whole surface of the desert were rising in obedience to some upthrusting force beneath. Larger pebbles strike against the shins, the knees, the thighs. The sand-grains climb the body till it strikes the face and goes over the head. The sky is shut out, all but the nearest objects fade from view, the universe is filled.”
 
-She could not read. She sat in the room with her eternally dying man, the small of her back still feeling bruised from an accidental slam against the wall during her dance with Caravaggio.
+We had to keep moving. If you pause sand builds up as it would around anything stationary, and locks you in. You are lost forever. A sandstorm can last five hours. Even when we were in trucks in later years we would have to keep driving with no vision. The worst terrors came at night. Once, north of Kufra, we were hit by a storm in the darkness. Three a.m. The gale swept the tents from their moorings and we rolled with them, taking in sand like a sinking boat takes in water, weighed down, suffocating, till we were cut free by a camel driver.
 
-Now if he moves towards her she will stare him out, will treat him to a similar silence. Let him guess, make a move. She has been approached before by soldiers.
+We travelled through three storms during nine days. We missed small desert towns where we expected to locate more supplies. The horse vanished. Three of the camels died. For the last two days there was no food, only tea. The last link with any other world was the clink of the fire-black tea urn and the long spoon and the glass which came towards us in the darkness of the mornings. After the third night we gave up talking. All that mattered was the fire and the minimal brown liquid.
 
-But what he does is this. He is halfway across the room, his hand sunk to the wrist in his open satchel which still hangs off his shoulder. His walk silent. He turns and pauses beside the bed. As the English patient completes one of his long exhalations he snips the wire of his hearing aid with the cut¬ters and drops them back into the satchel. He turns and grins towards her.
+第73页共162页 http://www.en8848.com.cn/ 原版英语阅读网
 
-“I’ll rewire him in the morning.”
+￼￼￼Only by luck did we stumble on the desert town of El Taj. I walked through the souk, the alley of clocks chiming, into the street of barometers, past the rifle-cartridge stalls, stands of Italian tomato sauce and other tinned food from Benghazi, calico from Egypt, ostrich-tail decorations, street dentists, book merchants. We were still mute, each of us dispersing along our own paths. We received this new world slowly, as if coming out of a drowning. In the central square of El Taj we sat and ate lamb, rice, badawi cakes, and drank milk with almond pulp beaten into it. All this after the long wait for three ceremonial glasses of tea flavoured with amber and mint.
 
-He puts his left hand on her shoulder.
+Sometime in 1931 I joined a Bedouin caravan and was told there was another one of us there. Fenelon-Barnes, it turned out. I went to his tent. He was out for the day on some small expedition, cataloguing fossil trees. I looked around his tent, the sheaf of maps, the photos he always carried of his family, et cetera. As I was leaving I saw a mirror tacked up high against the skin wall, and looking at it I saw the reflection of the bed. There seemed to be a small lump, a dog possibly, under the covers. I pulled back the djellaba and there was a small Arab girl tied up, sleeping there.
 
-David Caravaggio—an absurd name for you, of course ...” “At least I have a name.”
+By 1932, Bagnold was finished and Madox and the rest of us were everywhere. Looking for the lost army of Cambyses. Looking for Zerzura. 1932 and 1933 and 1934. Not seeing each other for months. Just the Bedouin and us, crisscrossing the Forty Days Road. There were rivers of desert tribes, the most beautiful humans I’ve met in my life. We were German, English, Hungarian, African—all of us insignificant to them. Gradually we became nationless. I came to hate nations. We are deformed by nation-states. Madox died because of nations.
 
-“Yes.”
+The desert could not be claimed or owned—it was a piece of cloth carried by winds, never held down by stones, and given a hundred shifting names long before Canterbury existed, long before battles and treaties quilted Europe and the East. Its caravans, those strange rambling feasts and cultures, left nothing behind, not an ember. All of us, even those with European homes and children in the distance, wished to re¬move the clothing of our countries. It was a place of faith. We disappeared into landscape. Fire and sand. We left the har¬bours of oasis. The places water came to and touched... Ain, Bir, Wadi, Foggara, Khottara, Shaduf. I didn’t want my name against such beautiful names. Erase the family name! Erase nations! I was taught such things by the desert.
 
-Caravaggio sits in Hana’s chair. Afternoon sun fills the room, revealing the swimming motes. The Englishman’s dark lean face with its angular nose has the appearance of a still hawk swaddled in sheets. The coffin of a hawk, Caravaggio thinks.
+Still, some wanted their mark there. On that dry water¬course, on this shingled knoll. Small vanities in this plot of land northwest of the Sudan, south of Cyrenaica. Fenelon-Barnes wanted the fossil trees he discovered to bear his name. He even wanted a tribe to take his name, and spent a year on the negotiations. Then Bauchan outdid him, having a type of sand dune named after him. But I wanted to erase my name and the place I had come from. By the time war arrived, after ten years in the desert, it was easy for me to slip across bor¬ders, not to belong to anyone, to any nation.
 
-第63页共162页 http://www.en8848.com.cn/ 原版英语阅读网
+1933 or 1934. I forget the year. Madox, Casparius, Ber-mann, myself, two Sudanese drivers and a cook. By now we travel in A-type Ford cars with box bodies and are using for the first time large balloon tires known as air wheels. They ride better on sand, but the gamble is whether they will stand up to stone fields and splinter rocks.
 
-￼￼￼The Englishman turns to him.
+We leave Kharga on March 22. Bermann and I have theo¬rized that three wadis written about by Williamson in
 
-“There’s a painting by Caravaggio, done late in his life. David with the Head of Goliath. In it, the young warrior holds at the end of his outstretched arm the head of Goliath, ravaged and old. But that is not the true sadness in the picture. It is assumed that the face of David is a portrait of the youthful Caravaggio and the head of Goliath is a portrait of him as an older man, how he looked when he did the painting. Youth judging age at the end of its outstretched hand. The judging of one’s own mortality. I think when I see him at the foot of my bed that Kip is my David.”
+第74页共162页 http://www.en8848.com.cn/ 原版英语阅读网
 
-Caravaggio sits there in silence, thoughts lost among the floating motes. War has unbalanced him and he can return to no other world as he is, wearing these false limbs that mor¬phine promises. He is a man in middle age who has never become accustomed to families. All his life he has avoided permanent intimacy. Till this war he has been a better lover than husband. He has been a man who slips away, in the way lovers leave chaos, the way thieves leave reduced houses.
+￼￼￼1838 make up Zerzura.
 
-He watches the man in the bed. He needs to know who this Englishman from the desert is, and reveal him for Hana’s sake. Or perhaps invent a skin for him, the way tannic acid camouflages a burned man’s rawness.
+Southwest of the Gilf Kebir are three isolated granite mas¬sifs rising out of the plain—Gebel Arkanu, Gebel Uweinat, and Gebel Kissu. The three are fifteen miles apart from each other. Good water in several of the ravines, though the wells at Gebel Arkanu are bitter, not drinkable except in an emer¬gency. Williamson said three wadis formed Zerzura, but he never located them and this is considered fable. Yet even one rain oasis in these crater-shaped hills would solve the riddle of how Cambyses and his army could attempt to cross such a desert, of the Senussi raids during the Great War, when the black giant raiders crossed a desert which supposedly has no water or pasture. This was a world that had been civilised for centuries, had a thousand paths and roads.
 
-Working in Cairo during the early days of the war, he had been trained to invent double agents or phantoms who would take on flesh. He had been in charge of a mythical agent named “Cheese,” and he spent weeks clothing him with facts, giving him qualities of character—such as greed and a weak¬ness for drink when he would spill false rumours to the enemy. Just as some in Cairo he worked for invented whole platoons in the desert. He had lived through a time of war when everything offered up to those around him was a lie. He had felt like a man in the darkness of a room imitating the calls of a bird.
+We find jars at Abu Ballas with the classic Greek amphora shape. Herodotus speaks of such jars.
 
-But here they were shedding skins. They could imitate nothing but what they were. There was no defence but to look for the truth in others.
+Bermann and I talk to a snakelike mysterious old man in the fortress of El Jof—in the stone hall that once had been the library of the great Senussi sheik. An old Tebu, a caravan guide by profession, speaking accented Arabic. Later Bermann says “like the screeching of bats,” quoting Herodotus. We talk to him all day, all night, and he gives nothing away. The Senussi creed, their foremost doctrine, is still not to reveal the secrets of the desert to strangers.
 
-She pulls down the copy of Kim from the library shelf and, standing against the piano, begins to write into the flyleaf in its last pages.
+At Wadi el Melik we see birds of an unknown species.
 
-He says the gun—the Zam-Zammah cannon—is still there outside the museum in Lahore. There were two guns, made up of metal cups and bowls taken from every Hindu household in the city—as jizya, or tax. These were melted down and made into the guns. They were used in many battles in the eighteenth and nineteenth centuries against Sikhs. The other gun was lost during a battle crossing in the Chenab River—
+On May 5, I climb a stone cliff and approach the Uweinat plateau from a new direction. I find myself in a broad wadi full of acacia trees.
 
-She closes the book, climbs onto a chair and nestles the book into the high, invisible shelf. She enters the painted bedroom with a new book and an¬nounces the title.
+There was a time when mapmakers named the places they travelled through with the names of lovers rather than their own. Someone seen bathing in a desert caravan, holding up muslin with one arm in front of her. Some old Arab poet’s woman, whose white-dove shoulders made him describe an oasis with her name. The skin bucket spreads water over her, she wraps herself in the cloth, and the old scribe turns from her to describe Zerzura.
 
-“No books now, Hana.”
+So a man in the desert can slip into a name as if within a discovered well, and in its shadowed coolness be tempted never to leave such containment. My great desire was to remain there, among those acacias. I was walking not in a place where no one had walked before but in a place where there were sudden, brief populations over the centuries—a fourteenth-century army, a Tebu caravan, the Senussi raiders of 1915. And in between these times—nothing was there. When no rain fell the acacias withered, the wadis dried out... until water suddenly reappeared fifty or a hundred years later. Spo¬radic appearances and disappearances, like legends and ru¬mours through history.
 
-第64页共162页 http://www.en8848.com.cn/ 原版英语阅读网
+In the desert the most loved waters, like a lover’s name, are carried blue in your hands, enter your throat. One swallows absence. A woman in Cairo curves the white length of her body up from the bed and leans out of the window into a rainstorm to allow her nakedness to receive it.
 
-￼￼￼She looks at him. He has, even now, she thinks, beautiful eyes. Everything occurs there, in that grey stare out of his darkness. There is a sense of numerous gazes that flicker onto her for a moment, then shift away like a lighthouse.
+Hana leans forward, sensing his drifting, watching him, not saying a word. Who is she, this woman?
 
-“No more books. Just give me the Herodotus.”
+第75页共162页 http://www.en8848.com.cn/ 原版英语阅读网
 
-She puts the thick, soiled book into his hands.
+￼￼￼The ends of the earth are never the points on a map that colonists push against, enlarging their sphere of influence. On one side servants and slaves and tides of power and correspon¬dence with the Geographical Society. On the other the first step by a white man across a great river, the first sight (by a white eye) of a mountain that has been there forever.
 
-“I have seen editions of The Histories with a sculpted por¬trait on the cover. Some statue found in a French museum. But I never imagine Herodotus this way. I see him more as one of those spare men of the desert who travel from oasis to oasis, trading legends as if it is the exchange of seeds, consuming everything without suspicion, piecing together a mirage. ‘This history of mine,’ Herodotus says, ‘has from the begin¬ning sought out the supplementary to the main argument.’ What you find in him are cul-de-sacs within the sweep of history —how people betray each other for the sake of nations, how people fall in love.... How old did you say you were?”
+When we are young we do not look into mirrors. It is when we are old, concerned with our name, our legend, what our lives will mean to the future. We become vain with the names we own, our claims to have been the first eyes, the strongest army, the cleverest merchant. It is when he is old that Nar¬cissus wants a graven image of himself.
 
-“Twenty.”
+But we were interested in how our lives could mean some¬thing to the past. We sailed into the past. We were young. We knew power and great finance were temporary things. We all slept with Herodotus. “For those cities that were great in earlier times must have now become small, and those that were great in my time were small in the time before.... Man’s good fortune never abides in the same place.”
 
-“I was much older when I fell in love.”
+In 1936 a young man named Geoffrey Clifton had met a friend at Oxford who mentioned what we were doing. He contacted me, got married the next day, and two weeks later flew with his wife to Cairo.
 
-Hana pauses. “Who was she?”
+The couple entered our world—the four of us, Prince Kemal el Din, Bell, Almasy and Madox. The name that still filled our mouths was Gilf Kebir. Somewhere in the Gilf nes¬tled Zerzura, whose name occurs in Arab writings as far back as the thirteenth century. When you travel that far in time you need a plane, and young Clifton was rich and he could fly and he had a plane.
 
-But his eyes are away from her now.
+Clifton met us in El Jof, north of Uweinat. He sat in his two-seater plane and we walked towards him from the base camp. He stood up in the cockpit and poured a drink out of his flask. His new wife sat beside him.
 
-Birds prefer trees with dead branches,” said Caravaggio. “They have complete vistas from where they perch. They can take off in any direction.”
+“I name this site the Bir Messaha Country Club,” he an¬nounced.
 
-“If you are talking about me,” Hana said, “I’m not a bird. The real bird is the man upstairs.”
+I watched the friendly uncertainty scattered across his wife’s face, her lionlike hair when she pulled off the leather helmet.
 
-Kip tried to imagine her as a bird.
+They were youth, felt like our children. They climbed out of the plane and shook hands with us.
 
-“Tell me, is it possible to love someone who is not as smart as you are?” Caravaggio, in a belligerent morphine rush, wanted the mood of argument. “This is something that has concerned me most of my sexual life—which began late, I must announce to this select company. In the same way the sexual pleasure of conversation came to me only after I was married. I had never thought words erotic. Sometimes I really do like to talk more than fuck. Sentences. Buckets of this buckets of that and then buckets of this again. The trouble with words is that you can really talk yourself into a corner. Whereas you can’t fuck yourself into a corner.”
+That was 1936, the beginning of our story....
 
-“That’s a man talking,” muttered Hana.
-
-第65页共162页 http://www.en8848.com.cn/ 原版英语阅读网
-
-￼￼￼“Well, I haven’t,” Caravaggio continued, “maybe you have, Kip, when you came down to Bombay from the hills, when you came to England for military training. Has anyone, I wonder, fucked themselves into a corner. How old are you, Kip?”
-
-“Twenty-six.”
-
-“Older than I am.”
-
-“Older than Hana. Could you fall in love with her if she wasn’t smarter than you? I mean, she may not be smarter than you. But isn’t it important for you to think she is smarter than you in order to fall in love? Think now. She can be obsessed by the Englishman because he knows more. We’re in a huge field when we talk to that guy. We don’t even know if he’s English. He’s probably not. You see, I think it is easier to fall in love with him than with you. Why is that? Because we want to know things, how the pieces fit. Talkers seduce, words direct us into corners. We want more than anything to grow and change. Brave new world.”
-
-“I don’t think so,” said Hana.
-
-“Neither do I. Let me tell you about people my age. The worst thing is others assume you have developed your charac¬ter by now. The trouble with middle age is they think you are fully formed. Here.”
-
-Here Caravaggio lifted up his hands, so they faced Hana and Kip. She got up and went behind him and put her arm around his neck.
-
-“Don’t do this, okay, David?”
-
-She wrapped her hands softly around his. “We’ve already got one crazy talker upstairs.”
-
-“Look at us—we sit here like the filthy rich in their filthy villas up in the filthy hills when the city gets too hot. It’s nine in the morning—the old guy upstairs is asleep. Hana’s ob¬sessed with him. I am obsessed with the sanity of Hana, I’m obsessed with my ‘balance,’ and Kip will probably get blown up one of these days. Why? For whose sake? He’s twenty-six years old. The British army teaches him the skills and the Americans teach him further skills and the team of sappers are given lectures, are decorated and sent off into the rich hills. You are being used, boyo, as the Welsh say. I’m not staying here much longer. I want to take you home. Get the hell out of Dodge City.”
-
-“Stop it, David. He’ll survive.”
-
-“The sapper who got blown up the other night, what was his name?”
-
-第66页共162页 http://www.en8848.com.cn/ 原版英语阅读网
-
-￼￼￼Nothing from Kip.
-
-“What was his name?”
-
-“Sam Hardy.” Kip went to the window and looked out, leaving their conversation.
-
-“The trouble with all of us is we are where we shouldn’t be. What are we doing in Africa, in Italy? What is Kip doing dismantling bombs in orchards, for God’s sake? What is he doing fighting English wars? A farmer on the western front cannot prune a tree without ruining his saw. Why? Because of the amount of shrapnel shot into it during the last war. Even the trees are thick with diseases we brought. The armies indoctrinate you and leave you here and they fuck off some¬where else to cause trouble, inky-dinky parlez-vous. We should all move out together.”
-
-“We can’t leave the Englishman.”
-
-“The Englishman left months ago, Hana, he’s with the Bedouin or in some English garden with its phlox and shit. He probably can’t even remember the woman he’s circling around, trying to talk about. He doesn’t know where the fuck he is.
-
-“You think I’m angry at you, don’t you? Because you have fallen in love. Don’t you? A jealous uncle. I’m terrified for you. I want to kill the Englishman, because that is the only thing that will save you, get you out of here. And I am begin¬ning to like him. Desert your post. How can Kip love you if you are not smart enough to make him stop risking his life?”
-
-“Because. Because he believes in a civilised world. He’s a civilised man.”
-
-“First mistake. The correct move is to get on a train, go and have babies together. Shall we go and ask the Englishman, the bird, what he thinks?
-
-“Why are you not smarter? It’s only the rich who can’t afford to be smart. They’re compromised. They got locked years ago into privilege. They have to protect their belongings.
-
-No one is meaner than the rich. Trust me. But they have to follow the rules of their shitty civilised world. They declare war, they have honour, and they can’t leave. But you two. We three. We’re free. How many sappers die? Why aren’t you dead yet? Be irresponsible. Luck runs out.”
+They jumped off the wing of the Moth. Clifton walked towards us holding out the flask, and we all sipped the warm alcohol. He was one for ceremonies. He had named his plane Rupert Bear. I don’t think he loved the desert, but he had an affection for it that grew out of awe at our stark order, into which he wanted to fit himself— like a joyous undergraduate who respects silent behaviour in a library. We had not ex¬pected him to bring his wife, but we were I suppose courteous about it. She stood there while the sand collected in her mane of hair.
 

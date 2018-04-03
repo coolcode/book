@@ -1,63 +1,95 @@
 title: House of Cards 047
-date: 2015-01-24 15:43:48
+date: 2015-01-25 03:45:30
 tags: house-of-cards
 ---
 
-He offered no suggestion, but gazed along the gallery at the grand oil portraits of Victorian statesmen to whom conspiracy and cunning had come as second nature, wondering what they would have thought. Mattie could not share his wry amusement.
+of timing to suggest a deal had been done, but now she understood about Urquhart it was the only scenario which made sense. Anyway, she had to keep raising the stakes, she had to force him to show his hand.
 
-'He must be acting together with someone else who does have something to gain - someone more important, more powerful, who could benefit from the change of leadership. There has to be another figure in there somewhere, pulling O'Neill's strings.'
+You see, you are not the first proprietor to put puppets into their newspapers as editors, but you made a great mistake when you chose Greville Preston. The man is so weak that every time you pulled the strings he started jerking around totally out of control. He couldn't possibly pretend that he was his own boss. So when you, Mr Landless, decided to go gunning for Henry Collingridge at the party conference, there was no chance that Preston could pretend it was his own decision or hide the fact that he was acting under your direct instructions. And when you, Mr Landless, decided to propel Francis Urquhart into the leadership race at the last, dramatic minute through the editorial columns of the Telegraph, there was no chance that Preston could justify it to the staff. He had to slip it into the edition on a Sunday evening without any consultation, skulking around his own newspaper like a thief in the night. You see, he's very good at doing what he's told, but he simply doesn't understand half the time why he's been told to do it. If you like to put it that way, Mr Landless, in spite of all his university education you're too good for him.'
 
-'So you are looking for a mystery man with the means and the motive. Well, he has to be in a position to control O'Neill, and have access to sensitive political information. It would also help if he had been engaged in a much publicised and bitter battle with the Prime Minister. Surely you
+Landless did not respond to the backhanded compliment. His fleshy features were set uncharacteristically rigid.
 
-don't have to look too far for candidates.' ‘
+‘You made Urquhart's candidacy. Put quite simply - as I am sure you have put it to him yourself - he could not be on the point of becoming Prime Minister without your help. And for that you would have got something in return - his agreement to turn the Government's competition policy on its head and to endorse your takeover of United Newspapers.'
 
-￼'Give me one.'
+At last Landless came to life, calling her bluff.
 
-He took a deep breath and savoured the dark, conspiratorial atmosphere of the evening air. It's easy. Teddy Williams.'
+'What proof do you have of this extraordinary tale, Miss Storin?'
 
-It was late that evening when Urquhart returned to his room in the Commons. The celebrations and congratulations had followed him all the way from his office to the Harcourt Room beneath the House of Lords where he had dined, being interrupted frequently by colleagues eager to shake him by the hand and wish him well. He had proceeded on to the Members' Smoking Room, a private place much loved by MPs who gather there away from the prying eyes of the press not so much to smoke as to exchange views and gossip and to twist a few arms. The Whips know the Smoking Room well, and Urquhart had used his hour there to good effect before once more climbing the twisting stairs to his office.
+That's the beauty of it. I don't need proof. I need just enough to stir up the most awful public row and you will find the politicians deserting your camp and heading for the hills, no matter what they have been saying during the leadership contest. You will find yourself without a single friend.'
 
-His secretary had emptied the ashtrays, cleared the glasses and straightened the cushions, and his room was once again quiet and welcoming. He closed the door behind him, locking it carefully. He crossed to the four-drawer filing cabinet with its stout security bar and combination-lock which the Government provide for all Ministers to secure their confidential papers while out of their departmental offices. He twirled the combination four times, until there was a gentle click and the security bar fell away into his hands. He removed it and bent down to open the bottom drawer.
+'But according to your weird and wonderful hypothesis,
 
-The drawer creaked as it came open. It was stuffed full of files and papers, each one with the name of a different MP on it, each one (containing the personal and incriminating material he had carefully winnowed out of the safe in the Whips Office where all the best kept parliamentary secrets are stored to await Judgement Day, or some other parliamentary emergency. It had taken him nearly three years to amass this material, and he knew it was more valuable than a drawer crammed full with gold bars.
+Francis Urquhart is my friend, and he will be in 10 Downing Street’ Landless smiled mockingly.
 
-He knelt down and sorted carefully through the files. He quickly found what he was looking for, a padded envelope, already addressed and sealed. After extracting it he closed the drawer and secured the filing cabinet, testing as he always did to make sure the lock and security bar had caught properly.
+'But not for long, Mr Landless, not for long. I'm afraid you know less about him than you think. Did you know, when you instructed Preston to use the opinion poll to undermine the Prime Minister, that it was Urquhart who had leaked it in the first place? He set you up.'
 
-It was nearly midnight as he drove out of the entrance gates to the House of Commons, a police officer stopping the late night traffic around Parliament Square to enable him to ease out into the busy road and speed on his way. However, he did not head the car in the direction of his Pimlico home. He first drove to one of the twenty-four-hour motorcycle messenger services which flourish amongst the seedier basements of Soho, where he dropped the envelope off and paid in cash for delivery early the following morning. It would have been easier to post it in the House of Commons, where they have one of the most efficient post offices in the country. But he did not want a House of Commons postmark on this envelope.
+There was a sufficient look of surprise on Landless's face to let Mattie know that she was right and he resented being used like that.
 
-￼WEDNESDAY 24th NOVEMBER
+'But all politicians leak’ Landless responded. It's not criminal, certainly not enough to throw him out of Downing Street.'
 
-The letters and newspapers arrived almost simultaneously with a dull thud on Woolton's Chelsea doormat early the following morning. Hearing the clatter, he came downstairs and gathered them up, spreading the newspapers out on the kitchen table while he left the post on a small bench in the hallway for his wife. He received over 300 letters a week from his constituents and other correspondents, and he had long since given up trying to read them all. So he left them for his wife, who was also his constituency secretary and for whom he got a generous secretarial allowance from the parliamentary authorities to supplement his Cabinet Minister's stipend.
+'No, but insider share dealing, fraud, blackmail and theft are!' She delighted in the look of concern spreading across his fat jowls.
 
-The newspapers were dominated by news and analysis of the leadership election. The headlines all seemed to have been written by moonlighting journalists from the Sporting Life, and phrases such as 'Neck And Neck', 'Three Horse Race' or 'Photo Finish' dominated the front pages. Inside, the more sanguine commentaries explained that it was difficult to predict which of the three leading contenders was now better placed, while most concluded that, in spite of his first place, Samuel was probably the most disappointed of the contestants since he had failed to live up to his early promise.
+‘I can show beyond a reasonable doubt that it was Urquhart who set up Charles Collingridge by buying Renox shares in his name in a deliberate
 
-'The Party is now presented with a clear choice’ intoned the Guardian.
+￼and very successful attempt to implicate the Prime Minister. That Urquhart blackmailed Patrick Woolton into standing down by bugging his room at Bournemouth. And ordered, the theft of confidential personal files on Michael Samuel from party headquarters.' She was bluffing on the Samuel file, she had no proof only inner certainty, but she knew her bluff would not be called from the way in which Landless had by now lost his air of confidence. Yet he was one of nature's fighters. He hadn't given in yet.
 
-Michael Samuel is by far the most popular and polished of the three, with a clear record of being able to combine a political career with the retention of a well defined social conscience. The fact that he has been attacked by some elements of the Party as being 'too liberal by half' is a badge he should wear with considerable pride. He would undoubtedly provide a firm lead for the Party and would continue to confront the leading social issues head on - a laudable characteristic which has, however, not always commended itself to his colleagues.
+'What makes you think anyone is going to believe you? By tonight Francis Urquhart will be Prime Minister, and who do you think is going to want to see the Prime Minister and the country dragged down by a political scandal of that sort? I think you underestimate the Establishment and its powers of self-protection, Miss Storin. If the Prime Minister is dragged down, confidence in the whole system suffers. It's not justice which wins, but the radicals and the revolutionaries. Not even the Opposition would welcome that. So you'll find it damned difficult to get any newspaper to print your allegations, and next to impossible to get a law officer to proceed on them.'
 
-Patrick Woolton is an altogether different politician. Immensely proud of his Northern origins, he poses as a man who could unite the two halves of the country. Whether his robust style of politics could unite the two halves of his own Party is altogether more debatable. He plays his politics as if he were still hooking for his old rugby league club, although his recent experience at the Foreign Office has done much to knock some of the sharper edges off his style. Unlike Samuel he would not attempt to lead the Party in any particular philosophical direction, setting great store on a pragmatic approach. But robustness combined with pragmatism has occasionally been an unhappy combination. The Leader of the Opposition has described him as a man wandering the streets of Westminster in search of a fight for any available reason.
+He was beginning to relish his own argument now, regaining his confidence.
 
-Francis Urquhart is more difficult to assess. The least experienced and least well known of the three, nevertheless his performance in the first round ballot was truly remarkable, far outstripping many of his better fancied senior colleagues. Three reasons seem to explain his success. First, as Chief Whip he knows the Parliamentary Party extremely well, and they him. Since it is his colleagues in the Parliamentary Party and not the electorate at large who will decide this election, his low public profile is less of a disadvantage than many perhaps assumed..
+'Why, it took them seven years before they were forced to indict Jeremy Thorpe who was only Leader of the Liberal Party, not even the Prime Minister. And he was arrested for attempted murder, which makes your charges of petty theft and blackmail look really rather pathetic. You don't even have a body on which to build your case!'
 
-Second, he has conducted his campaign in a dignified style which sets him apart from the verbal fisticuffs and misfortunes of the other contenders. What is known of his politics suggests he holds firm to the traditionalist line, somewhat patrician and authoritarian perhaps, but sufficiently ill- defined for him not to have antagonised either wing of the Party.
+'Oh, but I do, Mr Landless,' she said softly. ‘I believe he killed Roger O'Neill to silence him, and although I'm not sure I can prove it yet, I can raise such a storm as will blow down the shutters of Downing Street and will quite overwhelm your little business venture. Someone in the Thorpe case shot a dog. Here we are talking about murder. Do you really think your Establishment is going to keep quiet about that?'
 
-Finally, perhaps his greatest asset is that he is neither of the other two. Many MPs have certainly supported him in the first round rather than commit themselves to one of the better fancied but more contentious candidates. He is the obvious choice for those who wish to sit on the fence. But it is that which could ultimately derail his campaign, because as the pressure for a clear decision forces Government MPs off the fence, Urquhart is the candidate who could suffer most.
+Landless levered his great girth out of his chair and walked across to the large picture window. From it he could see the chimneys, steeples and hideous tower blocks of Bethnal Green less than two miles away where he had been born and where in the slums of his childhood he had learnt all he needed to know about survival He had never wanted to move far away from the area even with all his wealth; his roots were there, and if he screwed it all up that was where he knew he would have to return.
 
-So the choice is clear. Those who wish to air their social consciences will support Samuel. Those who thirst for blood-and-thunder politics will support Woolton. Those who cannot make up their minds have an obvious choice in Urquhart. Whichever way they decide, they will inevitably deserve what they get.
+When he turned around to face her once more, she thought she could detect the signs of defeat etched deep into his features. ‘What are you going to do, Miss Storin?'.
 
-Woolton chuckled as he munched his breakfast toast. He knew it was most unlikely at the end of the day that his colleagues would support a call to conscience - it was so difficult to explain in the pub or over the garden fence, and popular politics shouldn't be too complicated. If Urquhart's support was going to be squeezed, he decided, then the majority of switchers would come to him, and the bleeding hearts could go hang. Margaret Thatcher had shown how it could be done, and she was a woman. Take away her feminine shrillness and the dogmatic inflexibility, he mused, and you had the ideal political leader -Patrick Woolton.
+‘I am too late to stop Urquhart getting elected. But I intend to make sure he stays in office for as short a time as possible. And for that I want your help.'
 
-As his wife replenished his tea he debated with himself whether he should rile another prominent rabbi in the next few days just to remind his colleagues of the Jewish issue. He decided against it; it wasn't necessary, the Party's old guard would see to that without his interfering.
+'My help! I... I don't understand. You accuse me of causing all this bleedin' chaos and then you ask for my help. Christ all bloody Mighty!' he spluttered in broadest cockney, his defences in tatters.
 
-'Darling, I have this feeling it is going to be an excellent day,' he proclaimed as he kissed his wife goodbye at their doorstep. A couple of photographers were outside on the pavement, and they asked him to repeat the kiss before he was allowed to get into his official car and drive off for a day's campaigning in the House.
+‘Let me explain. You may be a rogue, Mr Landless, and you may run a rotten newspaper, but I suspect that deep down you care for the idea of a man like Urquhart running this country as little as I do. You have worked very hard to develop the reputation of a working class patriot. Corny to some people, perhaps, but I suspect you mean it - and if I'm right, you would never dream of conspiring to put a murderer in Downing Street.'
 
-His wife went through her daily routine of clearing the breakfast table before settling down to handle the correspondence. The volume had increased dramatically in the last few years, she noted with a sigh of resignation. Gone were the days when there was any hope of a personal answer to them all; it was now up to the word processor and its carefully programmed series of standard responses. She wondered whether anybody really noticed or cared that most of her husband's constituency letters were written by computer and signed by a little autograph machine he had brought back from the States on a recent trip. The majority of the letters were from lobby groups, professional critics or downright political opponents who weren't the least bit interested in the content of the replies. But they all needed answering nonetheless, she told herself as she began the monotonous daily task of opening the thick bundle of envelopes. She would never risk losing her husband a single vote by failing to offer some form of reply even to the most abusive of letters.
+She paused but he said nothing.
 
-￼She left the padded brown envelope until last. It had clearly been hand-delivered and was firmly stapled down, and she had to struggle to extract the infuriating metal clips before getting at the contents. As she pulled out the last tenacious staple, a cassette tape fell out into her lap. There was nothing else in the envelope, no letter, no compliments slip, no label on the tape to indicate where it had come from or what it contained.
+In any event, I think I can persuade you to help on straightforward commercial grounds. Whatever happens, your takeover of United Newspapers is dead. You can either watch it be swept away in the storm which will undoubtedly engulf Urquhart, which means the Establishment will turn on you and you will never be able to raise money in the City of London for a business deal ever again - or you can kill it yourself, help me nail Urquhart, save your business and become the hero of the hour.'
 
-'Fools. How on earth do they expect me to reply to that!'
+'Why should I trust you?'
 
-She put the tape to one side before switching on the word processor.
+'Because I need you.'
 
-It took her three hours of solid work to go through the letters, persuade the word processor to chum out a reply which had some chance of persuading the recipient that they were receiving personalised attention, watch them being signed by machine, then fold and seal them. The tape she left on the desk. Her mouth was gummed up from licking too many envelopes, and she needed a cup of coffee. The silly tape could wait.
+'Need me?' his jowls fluttered in surprise.
+
+‘I need you to be a good newspaper man and publish the full story. If it's published with the backing of the Telegraph rather than dribbling out over the next few months in bits and pieces, nobody can ignore it. I will give you an exclusive which will blow your patriotic socks off. And once I've done that, I am scarcely going to be able to turn on you.'
+
+'AndifIsayno?'
+
+Then I shall find an army of Opposition backbenchers who would like nothing more than to take all the ammunition I can provide them with, stand up in the House of Commons where they are protected from the laws of slander, and make accusations against both you and Urquhart which will bring you crashing down together.'
+
+All her cards were on the table now. The game was nearly over. Had he any cards left up his sleeve?
+
+'Urquhart will fall, Mr Landless, one way or the other. The only thing you have to decide is whether you fall with him or help me push him...'
+
+It was early afternoon before Mattie returned to Westminster. The snow had stopped falling and the skies were clearing, leaving the capital looking like a scene from a traditional Christmas card. The Houses of Parliament
+
+looked particularly resplendent, like some wondrous Christmas cake covered in brilliant white icing beneath a crystal blue sky. Opposite in the churchyard of St Margaret's, nestling under the wing of the great medieval
+
+Abbey, carol singers brought an air of tranquillity and Victorian charm to the passers-by, wishing goodwill to all men.
+
+￼Celebrations were already under way in various parts of the House of Commons. One of Mattie's colleagues in the press gallery rushed over to explain.
+
+'About 80 per cent of Government MPs have already voted. They think Urquhart's home and dry. It looks like a landslide.'
+
+Big Ben tolled; to Mattie it had a new and awesome ring. She felt as if an icicle had dislodged itself from the Palace walls and pierced straight into her heart. But she had to press on.
+
+Urquhart was not in his room, nor in any of the bars or restaurants in the Palace of Westminster. She asked in vain around the corridors after him and was just about to conclude that he had left the premises entirely, for lunch or interviews, when one of the Palace policemen told her that
+
+he had seen Urquhart not ten minutes earlier headed in the direction of the roof garden. She had no idea that any roof garden existed, or even where it was.
+
+'Yes, miss. Not many people do know about our roof garden, and those that do like to keep quiet about it in case everybody rushes up there and spoils the charm. It's directly above the House of Commons, all around the great central skylights which light up the Chamber itself. It's a flat roof terrace, and we've put some tables and chairs up there so that in summer the staff can enjoy the sunshine, take some sandwiches and a flask of coffee. Not many Members know about it and even fewer ever go up there, but I've seen Mr Urquhart up there a couple of times before. Likes the view, I imagine. But it'll be damned cold and lonely today, if you don't mind my saying so.'
+
+She followed his directions, up the stairs past the Strangers Gallery and up again until she had passed the panelled dressing room reserved for the Palace doorkeepers. Then she saw a fire door which was slightly ajar. As she stepped through it she emerged onto the roof, and drew in her breath sharply. The view was magnificent Right in front of her, towering into the cloudless sky, made brilliant in the sunshine and snow, was the tower of Big Ben, closer than she had ever seen it before. Every little detail of the beautifully crafted stone stood out with stunning clarity, and she could see the tremor of the great clock hands as the ancient but splendid mechanism pursued its remorseless course.
+
+To the left she could see the great tiled roof of Westminster Hall, the oldest part of the Palace, which had survived the assault of fire, war, bomb and revolution and which had witnessed so much human achievement and misery. To her right she could see the River Thames, ebbing and flowing in its own irresistible fashion even as the tides of history swept capriciously along its banks. And in front of her she could see fresh footsteps in the snow.
 

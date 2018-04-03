@@ -1,99 +1,93 @@
 title: House of Cards 037
-date: 2015-01-24 15:43:58
+date: 2015-01-25 03:45:40
 tags: house-of-cards
 ---
 
-Road and the Union Bank of Turkey, where I opened up an account in the same fictional name - not with £50,000 but with just £100. The whole thing took-less than three hours from start to finish. So I can now start ordering pornographic magazines, paid for out of the newbank account and delivered to the Paddington address, which could do a lot of damage to the reputation of one completely innocent politician’
+As he gazed out over the Thames towards the South Bank arts complex, Kendrick poured tea and opened his heart. ‘I have to say I never really expected all this,' he said. ‘But I've grown to like it very much indeed.'
 
-‘Er, who?' asked Preston, still having difficulty catching up.
+You've also managed to make your mark very quickly,' Mattie smiled her most winning of smiles and recrossed her legs. She had been careful to discard her favoured trousers for a fashionable blouse and skirt which showed off her legs and slender ankles to their best effect. She needed some information, and would buy it with a little flirting if needs be.
 
-She laughed and threw down a bank book and the tobacconist's receipt onto the editor's desk. He looked at them eagerly.
+I'm doing a feature piece on the decline and fall of the Prime Minister, trying to get behind the basic news stories and talk to those who played a part in it, whether they had intended to or not. It won't be an unsympathetic piece, I'm not trying to moralise or lay blame. I'm trying rather to offer an insight into how Parliament works and how politics can be so full of surprises. And when it comes to surprises, yours was one of the biggest.'
 
-The Leader of the Opposition!' he shouted in alarm. 'What the hell have you done?'
+Kendrick chuckled. Tm still amazed at how my parliamentary reputation was built on such a - well, what would you call it? Stroke of luck? Throw of the dice? Guess work?'
 
-'Nothing,' she said with a smile suggesting victory. 'Except to show that Charles Collingridge was almost certainly framed; that he probably never went near the tobacconist shop or the Union Bank of Turkey, and therefore that he could not have bought those shares’
+'Are you saying you didn't actually know that the hospital scheme had been shelved, that you were guessing?' Put it this way. I wasn't absolutely certain. I took a risk.' 'So what did you know?'
 
-Preston was holding the documents at arm's length as if they might catch fire.
+'Well, Mattie, I've never really told the full story before to anyone ...' He glanced down to where Mattie was rubbing her ankles, as if to relieve sore shins. 'But I suppose there's no harm in telling you a little of the background.'
 
-'Which means that Henry Collingridge did not tell his brother about Renox Chemicals...' Her inflexion indicated that there was more. 'And? And?' Preston demanded.
+He pondered a second to decide how far he should go. ‘I discovered that the Government - or rather their party headquarters - had planned a massive publicity campaign to promote the new plan for expanding hospitals. They had worked hard at it, spent a lot of money on the preparations, yet at the last minute they cancelled the whole thing. Just pulled the plug on it. I thought about this for a long while, and the only explanation I could reach was that they were actually pulling the plug, not just on the publicity campaign but on the policy itself. So I challenged the Prime Minister - and he fell for it! I couldn't have been more surprised myself.'
 
-‘He didn't have to resign.'
+‘I don't remember any discussion at the time about a publicity campaign. It must have been kept very quiet.' 'Of course, they wanted to keep the element of surprise. I believe all the planning of it was highly confidential.' 'You obviously have excellent confidential sources.'
 
-Preston sagged back in his chair. The beads of perspiration had begun to trickle down his brow, plastering his hair to his forehead. He was looking exceedingly uncomfortable. He felt as if he were being torn in two. With one eye he could see the makings of a superb story, which, when promoted vigorously by his advertising agency, could bring with it the substantial boost in circulation he was finding so elusive. Whether the story was accurate or not hardly bothered him; the lawyers could ensure that it libelled no one and it would make a splendid read.
+'Yes. And they are staying confidential, even from you, I'm afraid!'
 
-With his other eye, however, he could discern the enormous impact that such a story would make on the leadership race itself, the uncontrollable shockwaves which would stretch out and swamp various innocent bystanders-possibly including himself. And Landless had just told him on the telephone that he had other fish to fry. He brushed back the lick of hair which was stuck clammily above his glasses, but it did not seem to help his vision. He could not focus on which decision would be the right one to take, the one which would be acceptable to Landless. He had been instructed that all major pieces affecting the leadership race were to be cleared with Landless before publication, and he had feared being confronted with an unexpected decision like this. He needed to play for time.
+Mattie knew that she would need to offer much more than a flashing pair of ankles to get that sort of information out of him, and she was unwilling to pay so high a price.
 
-'Mattie, I scarcely know what to say. You've obviously been very ... busy.' His mind was charging through his Thesaurus of flannel, words which were meaningless and noncommittal but which left their audience with an appropriately warm feeling of encouragement. It was a well thumbed volume. But then it hit him, and the book closed shut with a snap.
+'Of course, Stephen. I know how valuable sources are. But can you give me a little guidance? The leak could only have come from one of two sources, Party or Government, yes... ?'
 
-'You've illustrated very well that it might have been someone else who was charging round London opening accounts in Collingridge's name, but you haven't proved that it wasn't Collingridge himself. Surely that is the easiest explanation to accept?'
+He nodded.
 
-‘But the computer file, Grev. It was tampered with. And that wouldn't have happened if Charles Collingridge were guilty.'
+'And there has been a tremendous amount of publicity about the rift between party headquarters and Downing Street in recent months. Particularly as it was to be a party publicity drive, it would be logical to suspect that the information came out of party headquarters.'
 
-Haven't you considered the possibility that the computer file was altered, not to mcrirninate Collingridge, but by Collingridge or one of his friends to offer him an alibi, to muddy the waters after he had been found out? For all we know it was not the distribution file but the accounts file which was altered, possibly only minutes before you saw it, just to throw you off the trail'
+She raised an enquiring eyebrow, and puckered her lips.
 
-'But only a handful of people have access to the accounts file’ Mattie protested with considerable vigour. 'And how could Charles Collingridge have done that? He's been drying out in a treatment centre.' 'But his brother?'
+'You're very good, very good, Mattie. But you didn't get that from me, OK? And I'm not saying any more about my source. You're too hot by half!'
 
-Mattie was incredulous. You can't seriously believe that the Prime Minister took the incredible risk of ordering the party headquarters' computer file to be altered just to falsify the evidence - after he had already announced his resignation.'
+He was beginning to chuckle merrily when Mattie played her own hunch.
 
-'Mattie, think back. Watergate. Files were burnt and tapes erased - by the President. During Irangate, incriminating material was shredded and smuggled out of the White House by a secretary in her underwear. Scores of presidential aides and US Cabinet ministers have gone to prison in recent years. And in this country, Jeremy Thorpe was put on trial for attempted murder, John Stonehouse went to gaol after faking his own suicide and Lloyd George sold peerages from Downing Street while he screwed his secretary on the Cabinet table. Things much stranger than fiction have happened in politics.' Preston was warming to his theme now. 'Power is a drug, like a candle to a moth. They are drawn towards it, no matter what the dangers, They would rather risk everything, including their lives and careers, than do without it. So it's still easier to believe that the Collingridges got caught with their hands in the till and are trying to cover up than to accept there was a great conspiracy against the Prime Minister.'
+'No need to worry. I want to write a feature piece, not conduct an inquisition. Roger's secret is safe with me.'
 
-'So you won't run it!' she accused sharply.
+Kendrick spat out the mouthful of tea he was trying to drink and started choking.
 
-'No, I'm not saying that’ Preston continued, smiling in a manner which betrayed not a shred of sympathy. I'm saying you haven't yet got enough for the story to stand up. We have to be careful not to make ourselves look ridiculous. You need to do some more work on it.'
+‘I never... said anything about... Roger!' he spluttered. But he knew he had betrayed his familiarity with O'Neill, and the calm face he was trying to restore simply eluded him. He decided to surrender.
 
-He meant it as a dismissal, but Mattie had been at the receiving end of too many of his dismissals. She had spent every waking hour since running out on Johnnie working on this story, chasing the details and trying to drown her private pain, knowing that only by uncovering the truth would she find any release from the emotions which were twisted in a state of perpetual warfare deep inside her. She would not leave it there. She felt like screaming at him, but she was determined not to lose her self-control. She took a deep breath, lowered her eyes for a moment to help herself relax, and was almost smiling when she looked at him once again.
+'Jesus. How did you know? Look, Mattie. Big favour time. I didn't say anything about Roger. We're old friends and I don't want to land him in any sort
 
-'Grev. Just explain it to me so I can understand. Either somebody set the Collingridges up, or the Prime Minister of this country has established his guilt by falsifying evidence. One way or the other, we have enough to lead the paper for a week.'
+￼of hot water. He's got enough at Smith Square as it is, eh?' Mattie laughed loudly, teasing the politician for his discomfort.
 
-'Er, yes. But which is it? We have to be sure. Particularly in the middle of a leadership contest we cannot afford to make a mistake on something so important.'
+‘Your sordid secret is safe with me,' she assured him. 'But when you have risen to become a senior member of Government some time in the future, perhaps even Prime Minister, I hope you will remember you owe me!'
 
-'Doesn't Collingridge deserve the chance to establish his innocence? Are you telling me that the story has to be left until after the contest has finished—until after the damage has been done?'
+They both laughed loudly at the banter but, inside, Mattie's stomach churned. Another piece of the jigsaw had just fallen into place.
 
-Preston had run out of logic. Once again he was discovering that this inexperienced woman, one of his most junior members of staff, was slipping every argument he could throw at her. As she suspected he would, he sought refuge in bluster and bullying.
+They were there at lunchtime and still there in the evening, just reading, picking their teeth, and watching. Like avenging angels they had waited for Earle in their sordid little car from over forty-eight hours, witnessing every flicker of the curtain, photographing everyone who called including the postman and the milkman.
 
-'Look!' he snapped, pointing an accusatory finger in her direction. You burst into my office with a story so fantastic, demanding that I scrap the front page for it... But you haven't written any copy yet! How the devil can I tell whether you've got a good story or simply had a good lunch?'
+'What do they want with me?' he screamed to himself inside his head. 'Why are they persecuting me like this?'
 
-Her blue eyes glinted like polar ice, her mind tumbling with the many slights she wanted to throw back at him. Instead, a frosty calm settled over her.
+He had no one to turn to, no one with whom to share his misery and offer consolation. He was a lonely figure, a sincere and even devout man who had made one mistake, and he knew sooner or later he must pay for it. His mother had always drilled into him the need to pay for one's sins or be consumed by hell fire, and he felt the flames licking at him now with growing ferocity. .
 
-'You will have your copy in thirty minutes,' she said as she walked out, barely able to resist the temptation to slam the door off its hinges.
+He had been home half an hour on Monday evening when they knocked on the door.
 
-It was actually nearer forty minutes when she walked back in, without knocking, six pages of double-spaced copy clutched in her hand. Without comment she dropped them on the desk, standing directly in front of Preston to make it clear that she would not budge until she had her answer.
+'Sorry to bother you, Mr Earle. Simmonds and Peters again. Just a quick question our editor wanted us to ask. How long have you known him?'
 
-He left her standing while slowly he read through the pages, trying to look as if he were struggling with an important decision. But it was a sham. The decision had already been made just a few minutes after Mattie had left his office and seconds after he had managed to reach the newspaper's owner on the phone.
+Into his face was thrust another photograph, still of Simon, but this time taken not at a public rally but in a photographer's studio, and dressed from head to foot in black leather slashed by zip fasteners. The jacket was open to the waist, exposing a slender, tapering body, while from his right hand there trailed a long bullwhip.
 
-'She's determined, Mr Landless. She knows she's got the makings of a good story and she won't take no for an answer. What the hell do I do?' 'Persuade her she's wrong. Put her on the cookery page. Send her on holiday. Promote her to editor, for all I care. But keep her quiet!'
+'Go away. Go away. Please - go away!' he screamed, so loudly that neighbours came to the window to investigate. If it's inconvenient, we'll come back some other time, sir.'
 
-It's not that simple. She's not only stubborn as hell, she's one of the best political brains we've got.'
+Silently they filed back to their car, and resumed the watch.
 
-'Preston, you already have the best political brains in the business. Mine! All I am asking you to do is to control your staff. Are you telling me you can't do even that?' Landless asked in a tone full of menace. 'There are scarcely two weeks before the leadership race is over,' he continued. There are great things at stake, the whole future of the country, my business - your job. Do whatever you have to do to keep her quiet. Just don't screw up!'
+￼TUESDAY 23rd NOVEMBER
 
-The proprietor's words were still ringing in Preston's ears as he continued to shuffle the pieces of paper, no longer reading them, concentrating instead on what he was about to say. Normally he enjoyed his power as editorial executioner, but he knew she would never fit the typecast role of whimpering victim. He was unsure how he should handle her.
+They were still there the following morning. After yet another sleepless night, Earle knew he had no emotional resources left. With red eyes and husky voice, he sat weeping gently in an armchair in the study. He had worked so hard, deserved so much, yet it had all come to this. He had tried so desperately to deserve his mother's love and commendation, to achieve something with which to illuminate her final years, but once again he had failed her, as she always said he would.
 
-Finally he put Mattie's story down, and pushed himself back into his chair. He felt more comfortable with the support of the chair behind his back. ‘We can't run it. It's too risky, and I'm not willing to blow the leadership contest apart on the basis of speculation.'
+He knew he must finish it. There was no point in going on. He no longer believed in himself, and knew he had forfeited the right to have others believe in him. Through misty eyes he reached down into the drawer of his desk, and fumbled as he took out his private phone book. He punched the numbers on the phone as if they were nails being driven through his soul. He fought hard to control his voice throughout the brief conversation, but then it was finished, and he could weep again.
 
-It was what she had expected all along. She replied in a whisper, but her soft words hit Preston like a boxing glove.
+The news that Earle had pulled out of the race left everyone aghast as it flashed round Westminster later on Tuesday morning. It had happened so unexpectedly that there was no time to alter the printed ballot papers except with an ignominious scratching through of the name with a biro. Sir Humphrey was not best pleased that his carefully laid preparations should have been thrown into chaos at the last minute, and had some rough words to use for anyone who was willing to listen. But on the stroke of ten Committee Room Number 14, which had been set aside in the House of Commons for the ballot, opened its doors and the first of the 335 Government MPs who were going to vote began to file through. There would be two prominent absentees - the Prime Minister, who had announced he would not vote, and Harold Earle.
 
-￼‘I will not take no for an answer’
+Mattie had intended to spend the whole day at the House of Commons chatting to MPs and gauging their sentiment. Most appeared to think that Earle's withdrawal would tend to help Samuel as much as anyone: 'the conciliators tend to stick with the conscience merchants’ one old buffer had explained, 'so Earle's supporters will drift towards young Disraeli. They haven't got the sense to make any more positive decision.' Behind the scenes and in private conversations with colleagues who could be trusted, the campaign was taking a more unpleasant personal edge.
 
-Dammit. Why didn't she just accept it, shrug it off or just burst into tears like the others? The quiet insolence behind her words and his inability to handle it made him feel nervous. He started to sweat; he knew that she had noticed this sign of tension, and he began to stumble over his carefully prepared words.
+She was in the press gallery cafeteria drinking coffee with other correspondents when the tannoy system announced there was a telephone call for her. She took it at the nearest extension. The sense of shock which hit her when she heard the voice was even greater than the news of Earle's withdrawal.
 
-‘I... cannot run the story. I am the editor, and that's my decision.' He wasn't even convincing himself. You have to accept it, or.. ‘
+'Hello, Mattie. I understand you were looking for me last week. Sorry you missed me, I was out of the office. Touch of gastric 'flu. Do you still want to get together?'
 
-'Or what,Grev?'
+Roger O'Neill sounded so friendly and enthusiastic that she had trouble connecting it with the voice she had heard a few days earlier. Could it really have been O'Neill she had listened to drivelling down the phone? She remembered the reports about his outrageous performance at Urquhart's reception in Bournemouth, and realised the man must be riding an emotional helter skelter, careering between highs and lows like a demented circus ride.
 
-'... or realise that you have no future on our political staff.'
+If you are still interested, perhaps you would like to come across to Smith Square later today’ he offered.
 
-'You're firing me?' This did surprise her. How could he afford to let her go, particularly in the middle of the leadership contest?
+He showed no signs of the verbal bruising he had received from Urquhart, which had been particularly merciless. Urquhart had telephoned to instruct O'Neill to make the appropriate arrangements for Simon to attend Earle's weekend meeting, and to ensure that the Minorwas anonymously informed of the connections between the two men. Instead he had discovered that O'Neill was sliding steadily into his cocaine-induced oblivion and losing touch with events outside his increasingly narrow, kaleidoscopic world. There had been a confrontation. Urquhart could not afford to lose O'Neill's services inside party headquarters, or have loose ends unravelling at this point.
 
-'No. I'm moving you to women's features, starting right now. Frankly, I don't think you have developed the judgement for our political columns.' 'Who has nobbled you, Grev?'
+'One week, Roger, one more week and you can take a break, forget about all of this for a while if you want, and come back to that knighthood you've always wanted. Yes, Roger, with a "K" they will never be able to look down their noses at you again. And I can arrange everything for you. But you let me down now, you lose control and I will make sure you regret it for the rest of your life. Damn you, get a grip on yourself. You've got nothing to fear. Just hold on for a few more days!'
 
-'What the hell do you mean... ?'
+O'Neill wasn't absolutely sure what Urquhart was going on about; to be sure he had been a little unwell but his befuddled brain still refused to accept there was a major problem which he couldn't handle. Why fill one's life with doubts, especially about oneself? He could cope with it, particularly with a little help... Still, a few days more to realise all his ambitions, to get the public recognition he deserved, to wipe the condescending smiles off their faces, would be worth a little extra effort.
 
-You normally have trouble making up your mind whether you want tea or coffee. Deciding to fire me from this story is somebody else's decision, isn't it?'
-
-I'm not firing you! You're being transferred...'
-
-He was losing control now, eyes bulging in anger and with a complexion which looked as if he had been holding his bream for three minutes. Then, dear editor, I have some disappointing news for you. I quit!'
-
-God, he hadn't expected this. He was scrambling now to regain his authority and the initiative. He had to keep her at the Telegraph, it was the only way to control her. But what the hell was he to do? He forced a smile, and spread his hands wide in an attempt to imitate a gesture of generosity.
+He had got back into the office to be told that Mattie had been looking for him, that she was asking questions about the Paddington accommodation address.
 

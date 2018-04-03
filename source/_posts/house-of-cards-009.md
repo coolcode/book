@@ -1,85 +1,97 @@
 title: House of Cards 009
-date: 2015-01-24 15:44:25
+date: 2015-01-25 03:46:07
 tags: house-of-cards
 ---
 
-Without knowing quite why, after work Mattie had decided to drive past Urquhart's London home, just ten minutes away from the House of Commons. She expected to find it dark and empty but instead she discovered that the lights were burning and there were signs of movement around the house, yet still the telephone rang unanswered.
+'So everyone simply has to remain where they are. Do you think that's a sound strategy?'
 
-She knew it was not the done thing in Westminster circles for political correspondents to pursue their quarry back to their homes; indeed, it was a practice which was darkly frowned upon not only by politicians but also by other correspondents. The world of Westminster is a club which has many unwritten rules, and those rules are guarded jealously by both politicians and press - particularly the press, the so-called Westminster 'lobby' of correspondents which quietly and privately regulates all media activity in the Palace of Westminster. The lobby system sets the rules of conduct which permit briefings and interviews to take place without their ever being reported, which encourage politicians to be indiscreet and to break confidences without ever being quoted, which allow the press to get round the Official Secrets Act and the oaths of collective Ministerial responsibility without ever giving their sources away. It was the lobby correspondent's passport, without which he - or she - would find all doors closed and all mouths firmly shut.
+He took a deep mouthful of whisky. 'If I were the captain of the Titanic and I saw a bloody great iceberg dead ahead, I don't think I would be saying "steady as she goes". I'd want a change of course.'
 
-Mattie gave the inside of her cheek another bite. She was nervous. She did not lightly bend the rules, but why was the bloody man not answering his phone? What on earth was he up to?
+Did you tell this to the Prime Minister this afternoon?'
 
-A thick Northern voice whispered in her ear, the voice she had so often missed since leaving the Yorkshire Post and its old, wise editor. What had he said? 'Rules, my girl, are meant for the guidance of the wise and the emasculation of the foolish. Don't ever tell me you haven't got a good story because of somebody else's sodding rules.'
+'Mattie, you take me too far!' he chuckled in protest. 'While I respect your professional integrity and I am thoroughly enjoying our conversation, I think I would be offering you too much temptation if I started divulging the details of private discussions. That's a shooting offence!'
 
-'OK, OK, you miserable bugger,' Mattie said out loud. She didn't feel good about breaking lobby rules, but she knew she would feel even worse missing a valuable opportunity. She checked her hair in the mirror, running a hand through it to restore some life, and opened the car door wishing that she were somewhere else. Twenty seconds later the house echoed with the heavy thumping of the ornate brass knocker on the front door.
+Mattie had not moved from the edge of her chair. She understood very clearly the significance of his words, and was determined to gather more. 'Well, let me ask you about Lord Williams. He was with the PM an extraordinarily long time this 'afternoon if all they were deciding was to do nothing’
 
-Urquhart was alone, and not expecting visitors. His wife had returned to the country, and the maid didn't work weekends. He opened the door impatiently, and he did not immediately recognise the caller.
+Urquhart had been toying with this specific stiletto for several minutes. Now he threw it with deadly accuracy. 'Have you heard the phrase, "Beware of an old man in a hurry"?'
 
-'Mr Urquhart, I've been trying to contact you all afternoon. I hope it's not inconvenient but I need some help. Downing Street has announced that there will be no Cabinet changes, and I'd appreciate your help in trying to understand the thinking behind it.'
+‘You surely can't imagine that he believes he could become Party Leader. Not from the Lords!'
 
-How do these damned journalists always find where you are? thought Urquhart.
+'No, even he's not that egotistical. But he still has a couple of years left, and like so many elder statesmen would like to make sure that the leadership found its way into suitable hands’
 
-I'm sorry but I have nothing to say,' he responded and began to close the door. He saw the journalist throw her hands up in exasperation and take a step forward. Surely the silly girl wasn't going to put her foot in the door, it would be too comic for words. But Mattie spoke calmly and quietly.
+'Whose hands?'
 
-'Mr Urquhart. That's a great story. But I don't think you mean it.'
+If not him, then one of his acolytes’ 'Like who?'
 
-Intrigued, Urquhart paused. What on earth did she mean? Mattie saw the hesitation, and threw a little more bait into the water. The story would read: "There were signs last night of deep Cabinet divisions over the non-shuffle. The Chief Whip, long believed to have harboured ambitions for a move to a new post, refused to comment on or to defend the Prime Minister's decision." How would you care for that?'
+'Do you have no thoughts of your own?' 'You mean Michael Samuel’
 
-Only now did Urquhart recognise the Telegraph correspondent away from her usual surroundings. He knew Mattie Storin only slightly as she was relatively new to the Westminster circuit, but Urquhart had seen her in action often enough to suspect she was no fool. He was therefore astonished that she was now on his doorstep trying to intimidate the Chief Whip.
+Urquhart smiled as he heard the stiletto thud home. ‘I think I've said enough. We must call this conversation to a halt’
 
-"You cannot be serious,' Urquhart said slowly.
+Mattie nodded reluctantly, and remained silent, pondering the pieces of the political jigsaw which now lay in front of her. Without further discussion Urquhart guided his guest downstairs, and they were shaking hands by the front door before she spoke again.
 
-Mattie broke into a broad smile. 'Actually, no, sir. Although you won't answer your telephone or talk face-to-face, even I wouldn't go that far to get a
+‘You've been very helpful, Mr Urquhart But one last question. If there were a leadership election, would you be part of it?' 'Good night, Mattie’ Urquhart said, and closed the front door firmly behind her.
 
-￼story. But it does raise some very interesting questions in my mind, and frankly I would prefer to get the truth rather than having to concoct something out of thin air. And that's all you are leaving me at the moment, thin air.'
+Daily Telegraph. Monday 14th June. Page 1.
 
-Urquhart was disarmed by the young journalist's candour. He ought to be furious and on the phone to her editor, demanding an apology for such blatant harassment. But Mattie had already sensed there might be a much deeper story behind the formal announcement from Downing Street. Now she stood in a pool of light at his front door, highlights glinting in her short, blonde hair. What had he got to lose?
+In a move which startled most observers, the Prime Minister yesterday announced that there were to be no immediate Cabinet changes following the election. After conferring for several hours with his Party
 
-‘Perhaps you had better come in after all - Miss Storin, isn't it?' ‘Please call me Mattie.'
+Chairman, Lord Williams, and also with the Chief Whip Francis Urquhart, Mr Collingridge issued a 'steady as she goes' message to his Party.
 
-He led the way upstairs to a tasteful, if very traditional, sitting room, covered in oil paintings of horses and country scenes, and crammed with ancient but comfortable furniture. He poured himself a large Scotch and, without asking her, a glass of white wine for his guest before settling into an overstuffed armchair. Mattie sat opposite, nervously perching on the edge of the sofa. She got out a small notebook, but Urquhart waved it away.
+Downing Street sources said it was intended that the Government would be able to pursue their programme as quickly and as effectively as possible by leaving all Cabinet Ministers in place. However, senior Westminster sources last night expressed astonishment at the decision. It was
 
-I'm tired, Miss Storin - Mattie. It's been an arduous campaign, and I am not sure I would express myself particularly well. So no notes and no quotations, if you don't mind.' Urquhart knew he had to be careful.
+￼seen in some quarters as betraying the weakness of the Prime Minister's position after the decimation of his parliamentary majority and criticisms of what was seen as a lacklustre campaign, for which both he and the Party Chairman are being blamed.
 
-'OK, Mr Urquhart. Let's do this entirely on a lobby basis. I can use what you tell me, but I can't attribute it to you in any way and absolutely no quotations.'
+There was speculation last night that the Prime Minister was unlikely to fight another election, and that some senior Ministers were already manoeuvring for position in the event of an early leadership contest. One Cabinet Minister compared the Prime Minister to 'the captain of the Titanic as it was entering the ice pack'.
 
-'Precisely.'
+The decision not to make any Cabinet changes, the first time since the war that an election has not been followed by some senior reshuffle, was interpreted as being the most effective way for Collingridge to keep the simmering rivalries of some of his Cabinet colleagues under control.
 
-He took a cigarette from a silver cigarette box and relaxed back in his chair, inhaling deeply. He did not wait for Mattie's questions before starting his defence.
+Last night, the Chief Whip defended the decision as being 'the best means of getting on with the job'. However, speculation is already beginning as to who might be the likely contenders in the event of a leadership race.
 
-'So what if I tell you that the Prime Minister sees this as being the best way of getting on with the job? Not letting Ministers get confused with new responsibilities and new civil service teams, but allowing us to continue full steam ahead?'
+Lord Williams described any suggestion of an imminent leadership election as 'nonsense'. He said, 'The Prime Minister has gained for the Party an historic fourth election victory, and we are in excellent shape.' However, the position of the Party
 
-‘I would say, Mr Urquhart, that we would scarcely have to go off the record and on to a lobby basis for that!' Urquhart chuckled at the young journalist's bluntness. Yes, he would have to be very careful.
+Chairman would be crucial during a leadership race, and Williams is known to be very close to Michael Samuel, the Environment Secretary, who could be one of the contenders.
 
-‘I would also say that the election result showed the need for some new blood and some new thinking,' she continued. 'You lost a lot of seats, and your endorsement by the voters wasn't exactly gushing, was it?'
+Opposition spokesmen were quick to pounce on what they saw as indecisiveness on the part of the Prime Minister. Claiming that he had been greatly heartened by the gains his Party had made last Thursday, the Opposition Leader said: The fires of discontent are glowing within the Government. I don't think Mr Collingridge has the strength or the support to put them out. I am already looking forward to the next election...'
 
-'Steady on, steady on. We've got a clear majority and won many more seats than the main opposition party. Not too bad after so many years in office...' He rehearsed the official creed.
+￼TUESDAY 22nd JUNE
 
-'But not really full of promise for the next election, is it? Even some of your own supporters have described your programme for the next five years as being "more of the same". "Steady as she sinks", I think one of your opponents called it. And you may remember I came to one of your election rallies. You were speaking a great deal about new energy, new ideas and new enterprise. The whole thrust of what you were saying was that there would be change—and some new players.'
+Roger O'Neill sat back comfortably in the arms of one of the large leather armchairs which surround the snooker tables in the back room at White's Club. When the tables are not in use, the seats which are spread around the games room offer a quiet and confidential spot for members to take their guests. He had been delighted, and not a little astonished, to receive the invitation from the Chief Whip to dine at his prestigious club in St James's. Urquhart had never shown much warmth towards O'Neill in the past, and O'Neill had been more used to a cold and condescending gaze down Urquhart's aquiline nose, rather like a well-fed bird eyeing future prey, than an invitation 'to celebrate the splendid work which you have done for us all throughout the campaign'.
 
-She paused, but Urquhart didn't seem keen to respond. 'Your own election address -’I have it here...' She fished a glossy folded leaflet from a wad of papers which were stuffed into her shoulder bag. Urquhart stared at her intently. 'It speaks about "the exciting years ahead". All this is about as exciting as last week's newspapers.'
+O'Neill, hypertense as always, had tried to calm his nerves with a couple of mighty vodka-tonics before he arrived, but they had not been necessary. Urquhart's cosy manner, two bottles of Chateau Talbot '78 and the large cognacs which Urquhart was even now ordering from the bar suggested that O'Neill had at last been able to break through the barriers which some traditionalists within the party leadership still erected against the likes of O'Neill and his 'marketing johnnies with their vulgar cars'. Even as O'Neill derided the traditionalists and their narrow jealousies, he desperately wanted their acceptance, and now he felt guilty for having misjudged Urquhart so badly. He beamed broadly as his host returned from the bar with two crystal glasses on a silver tray. O'Neill stubbed out his cigarette in preparation for the Havana which he hoped would be following.
 
-‘I think that's a little harsh’ protested Urquhart, knowing he should be protesting more. He had no enthusiasm for inventing excuses, and he suspected that it showed.
+'Tell me, Roger, what are your plans now the election is over? Are you going to stay on with the Party? We can't afford to lose good men like you.' O'Neill flashed yet another winning smile and assured his host that he would stay on as long as the Prime Minister wanted him.
 
-‘Let me ask you bluntly, Mr Urquhart. Do you really think that this is the best the Prime Minister could do?'
+'But how can you afford to, Roger? May I be brutally honest with you? I know just how little the Party pays its employees, and money is always so short after an election. It's going to be tough for the next couple of years. Your salary will probably get frozen and your budget cut. Aren't you tempted by some of the more handsome offers you must be getting from outside?'
 
-Urquhart did not answer directly but raised his glass slowly to his lips, without for a moment taking his eyes off her. They both knew that they were role playing, but neither was yet clear quite how this theatre piece would finish.
+'Well, it's not always easy, Francis, as you've already guessed. It's not so much the salary, you understand. I work in politics because I'm fascinated by it and love to play a part. But it would be a tragedy if the budget gets cut.'
 
-Urquhart savoured the fine Islay malt around his tongue, and let it warm him inside before replying. 'Mattie, how on earth do you expect me to reply to a question like that? You know as Chief Whip I am totally loyal to the Prime Minister and his shuffle - or rather non-shuffle’ There was an edge of sarcasm in his voice.
+His smile faded as he contemplated the prospect and began to fidget nervously with his glass. 'We should start working for the next election now, not in three years' time when it may be too late. Particularly with all these rumours flooding around about splits within the Party and who is to blame for the loss of seats. We need some strong and positive publicity, and I need a budget to create it.'
 
-'Yes, but what about Francis Urquhart, a man who is very ambitious for his party and is desperately anxious for its success. Does he support it?' There was no reply.
+'The Chairman receptive to all this?' Urquhart raised an enquiring eyebrow. 'Are Chairmen ever?'
 
-'Mr Urquhart, in my piece tomorrow I shall faithfully record your public loyalty to the reshuffle and your justification of it. I know you would not wish to see anything appear in the press which even remotely hinted that you were not happy with events. But I remind you we are speaking on lobby terms. I sense that you are not content with what is happening. I want to know. You want to ensure that it doesn't get back to my colleagues, or to your colleagues, or become common Westminster gossip. I give you my word on that. This is just for me, because it might be important in the months ahead. And by the way, no one else knows I came to see you tonight’
+'Perhaps, Roger, there is something I can do about that. I would like to be able to help you very much, because I think you've done such excellent work. Ill go in to bat with the Chairman about your budget, if you want. But there is something I must ask you first. And I must be blunt.'
 
-Mattie was offering a deal. In exchange for Urquhart's real views she would ensure that nothing she wrote could ever be traced back to its source. Urquhart toyed in his mind with a variety of stilettos, wondering which one to throw first. 'Very well, Mattie, let me explain the real story to you. It's
+The older man's blue eyes looked directly into O'Neill's, taking in their habitual flicker. He paused while O'Neill blew his nose loudly. Another habit, Urquhart knew. He examined O'Neill closely. It was as if there were another life going on within O'Neill which was quite separate from the rest of the world, and which communicated itself only through O'Neill's hyperactive mannerisms and twitching eyes.
 
-￼really very simple. The Prime Minister has to keep the lid firmly closed on the pressure cooker in order to contain the ambition of some of his colleagues. Those ambitions have grown since the poor election result and, if he were to release the pressure now, there would be the danger of the entire Government getting plastered all over the kitchen ceiling.'
+‘I had a visit the other day from an old colleague I used to know from the days when I held directorships in the City,' Urquhart continued, lie's one of the financial people at the Party's advertising agency. And he was very troubled. Very discreet, but very troubled. He said you were in the habit of asking them for considerable sums of cash to cover your expenses.'
 
-'Are you telling me that there is a lot of rivalry and dissent within the Cabinet?'
+The twitching stopped for a moment, and Urquhart noticed just how rarely he had ever seen O'Neill stop moving.
 
-‘Let me put it this way.' He paused to consider his words carefully before continuing in a slow, deliberate voice. 'Some elements of the Party are deeply distressed. They believed the PM came dangerously close to throwing away the last election, and they don't see him as having the stamina or authority to last all the way through for another four or five years. So they are thinking of what life might be like in another eighteen months or two years, and what position they want to be in if there happened to be a leadership race. The game has suddenly become a very different one since Thursday and Henry Collingridge is no longer playing with a full team behind him. It could get very unsettling.'
+'Roger, let me assure you I am riot trying to trap you or trick you. This is strictly between us. But if I am to help you, I must be sure of the facts.'
 
-'So why doesn't he get rid of the troublesome ones?'
+The face and the eyes started up again, and O'Neill's ready laugh made a nervous reappearance. 'Francis, let me assure you that there's nothing wrong at all. It's silly, of course, but I am grateful that you raised it with me. It's simply that there are times when I incur expenses on the publicity side which are easier and more convenient for the agency to meet rather than putting them through the Party machine. Like buying a drink for a journalist or taking a Party contributor out for a meal.'
 
-'Because he can't risk having several former Cabinet Ministers rampaging all over the backbenches when he has got a majority of only 24 which could disappear at the first parliamentary cock-up. He has to keep everything as quiet and as low key as possible. He can't even move the Awkward Brigade to new Cabinet posts because every time you get a new Minister in a new Department they get a rush of enthusiasm and want to make their mark, while you gentlefolk of the press give them a honeymoon period and plenty of personal publicity. Their views suddenly take on a renewed importance for the leader writers, and all of a sudden we find that they are not simply doing their Ministerial jobs but also promoting themselves for a leadership race. The whole of Government business is thrown into chaos because everyone is looking over their shoulders at their colleagues rather than training their sights on the Opposition. Government becomes confused, the Prime Minister becomes even more unpopular - and suddenly we are confronted with a real leadership race.'
+O'Neill was speeding on with his explanation, which showed signs of having been practised. 'You see, if I pay for them myself I have to claim back from the Party. We have a pretty laborious accounts department which takes its own sweet time paying those invoices - two months or more. Frankly, with the way I get paid, I can't afford it. Yet if I charge them through the agency, I get the money back immediately while they have to put them through their own accounts before invoicing us at headquarters. That takes another month or so, which simply means that the Party gets an even longer holiday on repaying those expenses. It's like an interest-free loan for the Party. And in the meantime I can get on with my job. The amounts are really very small’
+
+O'Neill reached for his glass.
+
+‘Like £22,300 in the last ten months small?'
+
+O'Neill nearly choked. He put his glass down quickly and his face contorted as he struggled simultaneously to gulp down air and blurt out a denial. It's nothing like that amount’ he protested. His jaw dropped as he debated what to say next. This explanation he hadn't practised.
+
+￼Urquhart turned away from him to signal for another two cognacs. His eyes returned calmly to O'Neill, whose twitching now resembled a fly caught in a spider's web. Urquhart spun more silken threads.
+
+'Roger, you have been charging regular expenses to the agency without clearly accounting for those amounts to the tune of precisely £22,300 since the beginning of. September last year. What began as relatively small amounts have in recent months grown up to £4,000 a month. You don't get through that many drinks and dinners even during an election campaign.'
+
+‘I assure you, Francis, that any expenses I've charged have all been entirely legitimate!' The choking had begun to subside. As the steward placed the fresh drinks on the table, Urquhart moved in to bind his prey with a lethal touch.
 

@@ -1,105 +1,61 @@
 title: House of Cards 015
-date: 2015-01-24 15:44:19
+date: 2015-01-25 03:46:02
 tags: house-of-cards
 ---
 
-If the PM had trouble in controlling his Cabinet before this, his task now is going to be - what, a nightmare? Impossible?'
+The following morning and less than one week after Firdaus Jhabwala had met with Urquhart, the Chief Whip delivered £50,000 in cash to the party treasurers. Substantial payments in cash were not unique, and the treasurers expressed delight at discovering a new source of funds. Urquhart suggested that the treasurers office make the usual arrangements to ensure that the donor and his wife were invited to a charity reception or two at Downing Street, and asked to lie informed when this happened so that he could make a specific arrangement with the Prime Minister's political secretary to ensure that Mr and Mrs Jhabwala had ten minutes alone with the Prime Minister beforehand. One of the party treasurers made a careful note of the donor's address, said that he would write an immediate cryptic letter of thanks, and locked the money in a safe.
 
-‘It is not unusual for Prime Ministers to change their minds. But to be forced to change your mind publicly, simply because you are unable to defend your own decision, is...'
+Probably uniquely amongst Cabinet Ministers, Urquhart left for holiday that night feeling utterly relaxed.
 
-Mattie waited in vain for Urquhart to finish, but realised he would not do so. He would not condemn his Prime Minister, not openly on the stairs, but it was clear there would be no justification either. She prompted the Chief Whip yet again. Isn't the Government getting accident prone - the second major leak in a matter of weeks? Where are these leaks coming from?'
+￼Part Two
 
-'As Chief Whip I am responsible only for discipline on the Government backbenches. You can scarcely expect me to play headmaster to my own Cabinet colleagues as well.'
+THE CUT
 
-‘But if it's coming from Cabinet - who, and why?'
+AUGUST
 
-‘I simply don't know, Mattie. But doubtless the Prime Minister will instruct me to find out who and why.'
+The newspapers during August were dreadful. With politicians and the main political correspondents all away, second string lobby correspondents struggled to fill the vacuum and develop any story they could which would get their by-line on the front page. So they clutched at whispers and rumour. What was on Tuesday only a minor piece of speculation on page five of the Guardian had become by Friday a hard news story on the front page of the Daily Mail. This was the chance for the junior correspondents to make their mark, and the mark they chose to make was all too frequently on the reputation of Henry Collingridge. Minor backbenchers who were too self-promoting even to take a break during the holiday season were honoured with significant pieces quoting 'senior party spokesmen', putting forward their views as to where the Government was going wrong and how a new sense of direction had to be imposed. Rumours about the Prime Minister's dissatisfaction with and distrust of his Cabinet colleagues abounded, and since there was no one around authoritatively to deny the rumours, the silence was taken as authoritative consent. So the speculation fed on itself and ran riot. The early August rumours about an 'official inquisition' into Cabinet leaks had, by later in the month, grown into predictions that there would after all be a reshuffle in the autumn. The word around Westminster had it that Henry Collingridge's temper was getting increasingly erratic, even though he was in fact enjoying a secluded holiday on a private estate many hundreds of miles away near Cannes.
 
-'Formally or informally?'
+The Prime Minister's brother also became the subject of a spate of press stories, mostly in the gossip columns, and the Downing Street press office was repeatedly called upon to comment on suggestions that the Prime Minister was bailing out 'dear old Charlie' from the increasingly close attentions of his creditors, including the Inland Revenue. But Downing Street would not comment - it was personal, not official - so the formal 'no comment' which was given to the most fanciful of accusations was recorded in the news coverage, usually in the most damaging light.
 
-‘I can't comment on that,' muttered Urquhart, and continued up the stairs pursued by Mattie.
+As August drew on, with only the lightest of nudges down the telephone from Urquhart, the press tied the Prime Minister ever more closely to his impecunious brother. Not that Charlie was saying anything stupid. He had the common sense to keep well out of the way, but an anonymous telephone call to one of the sensationalist Sunday newspapers enabled them to track him down to a cheap hotel in rural Bordeaux. A reporter was despatched to pour enough wine down him to encourage a few vintage 'Charlie-isms', but instead succeeded only in making Charlie violently sick over the reporter and his notebook, before passing out. The reporter promptly paid £50 to a big-busted girl with a low-cut dress to lean over the slumbering form, while a photographer captured the tender moment for posterity and the newspaper's 11 million readers.
 
-'So we have got to the point where the Prime Minister is about to launch an inquiry into which of his own Cabinet colleagues is leaking sensitive information. Is that what you are saying?'
+"I'm broke and busted" says Charlie' screamed the headline, while the copy reported for the umpteenth time the fact that the Prime Minister's brother was nearly destitute and cracking under the pressure of a failed marriage and a famous brother. Downing Street's 'absolutely no comment' seemed in the circumstances even more uncaring than usual.
 
-'Oh, Mattie. It seems I have already said too much. You're a damn sight quicker on the uptake than most of your colleagues. It seems to me that your logic rather than my words has led you to your conclusions, eh? And I trust that you will be keeping my name out of this.'
+The next weekend the same photograph was run alongside one of the Prime Minister holidaying in considerable comfort in the South of France - to English eyes a mere stone's throw from his ailing brother - and seemingly unwilling to leave his poolside to help. The fact that the same newspaper a week earlier had been reporting how deeply Henry was involved in sorting out Charlie's financial affairs seemed to have been forgotten - until the Downing Street press office called the editor to complain.
 
-'Usual lobby terms, Mr Urquhart,' she assured him. 'Just let me get this perfectly clear. You are not denying, indeed you are confirming that the Prime Minister will order an investigation into his Cabinet members' conduct?'
+'What do you want?' came the reply. ‘We give both sides of the story. We backed him warts and all throughout the election campaign. Now it's time to restore the balance a bit.'
 
-'If you keep my name out of it - yes.'
+Yes, the newspapers during August were dreadful.
 
-‘Jesus, this will set them all flapping,' Mattie gasped. She could already see her front page lead taking shape. 'June 10th does seem a long time ago, doesn't it, Mattie?'
+￼SEPTEMBER - OCTOBER
 
-Urquhart continued up the stairs which led to the Strangers Gallery, where members of the public perched on rows of cramped, narrow benches to view the proceedings of the House, usually with a considerable degree of discomfort and a still larger degree of astonishment. He caught the eye of a small and impeccably dressed Indian for whom he had previously obtained a seat in the Gallery, and signalled to him. The man struggled past the outstretched knees of other visitors packed into the benches, and emerged with obvious embarrassment past two extremely buxom middle-aged ladies. Before he had any opportunity to speak Urquhart motioned to him for silence and led him towards the small hallway behind the gallery.
+September was even worse. As the new month opened, the Leader of the Opposition announced that he was resigning to make way for 'a stronger arm with which to hold our banner aloft'. He had always been a little too verbose for his own good.
 
-'Mr Urquhart, sir, it has been a most exciting and highly educational ninety minutes. I am deeply indebted to you for assisting me to obtain such a
+Like most political leaders he was pushed by the younger men around him who had more energy and more ambition, who made their move quietly and secretly almost without his knowing until it was too late and he had announced his intention to resign in an emotional late night interview. For a moment he seemed to have changed his mind under pressure from his still intensely ambitious wife, until he discovered that he could no longer rely on a single vote in his Shadow Cabinet. Yet they were warm in their praise of their fallen leader. As so often happens, the faithful were far more effusively united by his death than by anything he had achieved in office.
 
-￼comfortable position.'
+The news electrified the media, and Mattie was summoned back from her beach in Zakynthos, much to her silent relief. Eight days of lying in the sun watching couples grow increasingly tender and uninhibited in the Ionian sun had made her feel utterly miserable. She was lonely, very lonely, and the loving couples around her only served to rub the point home. When the telephone call came instructing her to return to cover the breaking story, she packed her bags without complaint and found a seat on the next flight home.
 
-Urquhart, who knew that even small Indian gentlemen such as Firdaus Jhabwala found the seats acutely uncomfortable, smiled knowingly. ‘I know you are being very polite in not complaining about the discomfort of the seating. I only wish I could have found you some more comfortable position.'
+She returned to discover an Opposition Party which had been galvanised. Their seemingly endless internal divisions were now being played down as they stepped up the attack on a lacklustre Government, most of whose members were still away on holiday. The real prospect of power at the next election, even one which was still perhaps four years away, was helping to focus Opposition minds and encourage fraternal thoughts. Better as one of twenty senior Cabinet Ministers in Government than the sole Party Leader in endless Opposition, one explained.
 
-They chatted politely while Jhabwala secured the release of his black hide attaché case from the attendant. When he had arrived he had firmly refused to hand it over until he discovered that his entry to the Gallery would be forbidden unless he lodged it with the security desk.
+So by the time the new leader was elected just a week before the Party's annual conference in early October, the Opposition had dominated the news for several weeks and the conference turned into a united salute to the new leader. Under an enormous slogan of 'Victory', the conference was unrecognisable as the assembly of a party which had lost the election only a few months before.
 
-‘I am so glad that we British can still trust ordinary working chaps with our possessions,' he stated very seriously, patting the case for comfort.
+By contrast, just a week later the representatives gathered for the Government Party's conference in a spirit of trepidation and complaint The conference centre at Bournemouth could be uplifting if filled with 4,000 enthusiastic supporters, but now its bare brick walls and chromium-plated fitments served only to emphasise the sullenness of those who gathered.
 
-'Quite’ replied Urquhart, who trusted neither the ordinary working chap nor Jhabwala. Still, he was a constituent who seemed to have various flourishing local businesses, and had provided a £500 donation towards his election campaign expenses and had asked for nothing, in return except, shortly afterwards, a personal interview and private meeting in the House of Commons.
+As Publicity Director, it was Roger O'Neill's task to present and package the conference, but as the task of raising spirits became increasingly daunting, so he could be seen talking more and more feverishly to journalists -apologising, justifying, explaining, and blaming. And particularly he blamed Lord Williams. The Chairman had cut the budget, he explained, delayed making decisions, not got a grip on things. There were rumours circulating within party headquarters that he deliberately wanted the conference to be low key because he thought the Prime Minister was likely to get a rough ride from the faithful. Party doubts about Collingridge leadership' was the first Guardian report to come out of Bournemouth.
 
-'Not in the constituency,' he had explained to Urquhart's secretary on the phone. It's a matter of national rather than local attention.'
+In the conference hall, the debates proceeded according to the rigid pre-set schedule. An enormous sign hung above the platform - 'Finding The Right Way'. The speeches struggled to obey its command beneath glaring television lights and an annoying buzz from the hall which the stewards were quite incapable of quelling. On the fringes of the hall the representatives, journalists and politicians gathered in little huddles to exchange views, a regular part of any political garnering, and a fertile breeding ground for idle gossip.
 
-Urquhart led the way under the great vaulted oak ceiling of Westminster Hall, at which point Jhabwala asked to stand for a while. ‘I would be grateful for a silent moment in this great hall in which Charles I was tried and condemned and Winston Churchill lay in state.'
+The 'buzz' around the conference was one of discontent. Everywhere they listened, the men from the media were able to hear criticism. Former MPs who had recently lost their seats were critical, but asked not to be quoted for fear of endangering their chances of being selected for safer seats at the next election. Their constituency chairmen showed no such reticence. They had not only lost their MP, but also faced several years of the Opposition Party ruling their local councils, nominating the mayor and committee chairmen, and disposing of the fruits of local office.
 
-He noticed the condescending smile appearing at the corner of Urquhart's mouth.
+There was also growing concern that the parliamentary by-election, due on Thursday, would give a poor result. The Member for Dorset East, Sir Anthony Jenkins, had suffered a stroke four days before the general election. Elected while in intensive care, he had died only three weeks later.
 
-'Mr Urquhart. Please do not think me pretentious. My own family associations with British institutions go back nearly 250 years to the days of the Honourable East India Company and Lord Clive, whom my ancestors advised and to whom they loaned considerable funds. Both before and since my family has occupied prestigious positions in the judicial and administrative branches of Indian Government.'
+His seat, just a few miles from Bournemouth, was a safe one with a majority of nearly 20,000, so the Prime Minister had decided tohold the by- election during conference week. He had been advised strongly against it, but he argued that on balance it was worth the risk. The conference publicity would provide good campaigning material for the by-election, there would still be a strong sympathy vote for the fallen MP, conference representatives could take a few hours off to undertake some much-needed canvassing, and the Prime Minister would be able to welcome the victorious candidate during his own conference speech—a good publicity stunt.
 
-Jhabwala's eyes lowered, and a strong sense of sadness filled his voice. 'But since Independence, Mr Urquhart, that once great subcontinent has slowly crumbled into a new dark age. Muslim has been set against Hindu, worker against employer, pupil against teacher. You may not agree, but the modem Gandhi dynasty is less inspired and far more corrupt than any my family ever served in colonial days. I am a Parsee, a cultural minority which has found little comfort under the new Raj, and the fortunes of my family have declined. So I moved to Great Britain, where my father and grandfather were educated. I can tell you without a trace of insincerity, Mr Urquhart, that I feel more at home and more attached to this country and its culture than ever I could back in modem India. I wake up grateful every day that I can call myself a British citizen and educate my children in British universities’
+Now the busloads of conference-goers returning from a morning's canvassing were reporting a lack of sympathy on the doorstep. The seat would be held, of course, it had been in the Party since the War, but the thumping victory which Collingridge had demanded was beginning to look more distant with every day's canvass returns.
 
-Urquhart saw his opportunity to interrupt this impassioned and obviously heartfelt monologue. 'Where are your children educated?'
+It was going to be a difficult week, not quite the victory celebration the party managers had planned.
 
-‘I have a son just finishing a law degree at Jesus College, Cambridge, and an elder son who is undertaking an MBA at the Wharton Business School in Philadelphia. It is my earnest hope that my younger son will soon qualify to read medicine at Cambridge’
+￼￼WEDNESDAY 13th OCTOBER
 
-They were now walking towards the interview rooms beneath the Great Hall, their shoes clipping across the worn flagstoned floor where Henry VHI had played tennis and which now was splattered with shafts of bright sunlight slanting through the ancient windows. It was a scene centuries old, and the Indian was clearly in great awe.
-
-'And what precisely do you do?' asked Urquhart.
-
-‘I, sir, am a trader, not an educated man. I left behind any hope of that during the great turmoil of Indian Independence. I have therefore had to find my way not with my brain but by diligence and hard work. I am happy to say that I have been moderately successful’
-
-'What sort of trade?'
-
-‘I have several business interests, Mr Urquhart. Property. Wholesaling. A little local finance. But I am no narrow minded capitalist. I am well aware of my duty to the community. It is about that I wished to speak with you.'
-
-By now they had arrived at the interview room and at Urquhart's invitation Jhabwala seated himself in one of the green leather chairs, fingering with delight the gold embossed portcullis which embellished the upright back of this and all the other chairs in the room.
-
-'Mr Urquhart. I was not born in this country, and I know that of necessity I must work particularly hard to gain respectability in the community. That is important, not so much for me but for my children. I wish them to have the advantages which my father could not secure for me at a time of civil war. So I try to participate. I assist the local Rotary Club. I help with many local charities. And as you know, I am an ardent supporter of the Prime Minister’ {
-
-‘I am afraid that you did not see him to best advantage this afternoon’ Then I suspect he needs his friends and supporters more than ever’
-
-There was a short silence. Urquhart struggled to find the meaning and direction behind his guest's remarks, but it eluded him, although meaning and direction he knew there must be. Jhabwala began again, a little more slowly.
-
-'Mr Urquhart. You know that I have great admiration for you. I was happy to assist in a modest way with your election appeal and would be happy to do so again. I am also a fervent admirer of the entire Government. I would wish to help you all’
-
-'May I know how?'
-
-‘I know election campaigns are expensive, and perhaps I could make a small donation to Party coffers. I imagine that funds must be short at times
-
-￼like these.'
-
-Indeed, indeed,' said Urquhart. 'Could I ask how much you were thinking of giving?'
-
-Jhabwala lifted his case onto the table top, twirled the combination and flipped the two brass catches. The lid sprang open and he slid the black leather case around to Urquhart.
-
-'I would be delighted if the Party could accept £50,000 as a gesture of my support.'
-
-Urquhart resisted the ferocious temptation to pick up one of the bundles of notes and start counting. He noticed that all the wads were of used £20 notes and were tied with rubber bands rather than bank cashiers' wrappers.
-
-'This is ... most generous, Mr Jhabwala.' He found himself using his guest's name for the first time since they had met earlier in the afternoon. 'But it is a little unusual for me to accept such a large donation on behalf of the Party, particularly in cash.'
-
-‘You will understand that during the civil war in India my family lost everything. Our house and business were destroyed, and we narrowly escaped with our lives. In 1947 a Muslim mob burned my local bank to the ground - with all its deposits and records. The bank's head office apologised, of course, but without any records could only provide my father with their regrets rather than the funds he had deposited with them. It may seem a little old fashioned of me, but I still prefer to trust cash rather than cashiers’
-
-The businessman's smile shone reassuringly from beneath his dark features. Urquhart did not trust him or his story.
-
-‘I see.' Urquhart took a deep breath. 'May I be blunt, Mr Jhabwala, and ask if there is anything you wish from us in exchange for your support? It is sometimes the case with first-time donors that they believe there is something the Party can do for them, when in reality our powers are very limited...'
-
-Jhabwala beamed and shook his head to halt Urquhart's question. There is nothing I wish to do other than to be a firm supporter of the Prime Minister and yourself, Mr Urquhart. You will understand as a local MP that my business interests often bring me into friendly contact with local authorities for planning permission or tendering for contracts and so forth. I cannot guarantee that you will never find my name in the local press or that I will not ask at some point to seek your guidance through the maze of local decision makers, but I assure you I am looking for no favours. I want nothing in exchange, other than to request that I and my wife have the honour of meeting with the Prime Minister at some suitable time, particularly if he should ever come to the constituency. It would mean a great deal to my wife, as you will appreciate.'
-
-And the photographs of Jhabwala closeted with the Prime Minister would go down remarkably well in the local and ethnic press, as Urquhart well knew. He didn't care for the hint about local planning or contract decisions, but he was an experienced hand at dealing with such requests when they arose. Urquhart began to relax and to return the Indian's smile.
+A cold wet wind was blowing off the sea when Mattie Storin was woken by a pounding headache early on Wednesday morning. As the representative of a major national newspaper she was one of the fortunate few journalists offered accommodation in the headquarters hotel where she could mix freely with the key politicians and party officials. She had mixed a little too freely the previous evening, and she began her regular morning calisthenics with heavy limbs and a distinct lack of enthusiasm. Her whole body shouted at her that this was a rotten way to cure a hangover, so she quickly changed her mind and opted for an open window- a move which she immediately recognised as the second bad decision of the day. The small hotel was perched high on the cliff tops, ideal for catching the summer sun but exposed and unprotected on such grey and swirling autumn mornings. Her overheated hotel room turned into an icebox in seconds, and Mattie decided that she would make no more decisions until after a gentle breakfast.
 

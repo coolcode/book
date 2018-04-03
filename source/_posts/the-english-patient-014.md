@@ -1,113 +1,85 @@
 title: The English Patient 014
-date: 2015-01-24 15:44:20
+date: 2015-01-25 03:46:03
 tags: the-english-patient
 ---
 
-She had turned from the ending of Kirn, with its delicate and holy sentences—and now clean diction—and picked up the patient’s notebook, the book he had somehow managed to carry with him out of the fire. The book splayed open, almost twice its original thickness.
+“We’ll bathe at Brighton; The fish we’ll frighten When we’re in.
 
-There was thin paper from a Bible, torn out and glued into the text.
+Your bathing suit so thin Will make the shellfish grin Fin to fin.
 
-King David was old and stricken in years and they covered him with clothes but he received no heat.
+“Splendid lines, and erotic, but Richard Rodgers, one sus¬pects, wanted more dignity.” “You must guess my moves, you see.”
 
-Whereupon his servants said, Let there be sought for the King a young virgin: and let her cherish him, and let her lie in this bosom, that our King may have heat.
+“Why don’t you guess mine?”
 
-第50页共162页 http://www.en8848.com.cn/ 原版英语阅读网
+“I will when you know what to do. At present I’m the only one who does.”
 
-￼￼￼So they sought for a fair damsel throughout all the coasts of Israel, and found Abishag a Shunammite. And the damsel cherished the King, and ministered to him: but the King knew her not.
+“I bet Kip knows.”
 
-The ———— tribe that had saved the burned pilot brought him into the British base at Siwa in 1944. He was moved in the midnight ambulance train from the Western Desert to Tunis, then shipped to Italy. At that time of the war there were hundreds of soldiers lost from themselves, more innocent than devious. Those who claimed to be uncertain of their nationalities were housed in compounds in Tirrenia, where the sea hospital was. The burned pilot was one more enigma, with no identification, unrecognizable. In the crim¬inal compound nearby they kept the American poet Ezra Pound in a cage, where he hid on his body and pockets, moving it daily for his own image of security, the propeller of eucalyptus he had bent down and plucked from his trai¬tor’s garden when he was arrested. “Eucalyptus that is for memory.”
+“He may know but he won’t do it.”
 
-“You should be trying to trick me,” the burned pilot told his interrogators, “make me speak German, which I can, by the way, ask me about Don Bradman. Ask me about Marmite, the great Gertrude Jekyll.” He knew where every Giotto was in Europe, and most of the places where a person could find convincing trompe 1’oeil.
+“I shall have some wine,” the English patient said, and the sapper picked up a glass of water, flung the contents through the window and poured wine for the Englishman. “This is my first drink in a year.”
 
-The sea hospital was created out of bathing cabins along the beach that tourists had rented at the turn of the century. During the heat the old Campari umbrellas were placed once more into their table sockets, and the bandaged and the wounded and the comatose would sit under them in the sea air and talk slowly or stare or talk all the time. The burned man noticed the young nurse, separate from the others. He was familiar with such dead glances, knew she was more patient than nurse. He spoke only to her when he needed something.
+There was a muffled noise, and the sapper turned quickly and looked out of the window, into the darkness. The others froze. It could have been a mine. He turned back to the party and said, “It’s all right, it wasn’t a mine. That seemed to come from a cleared area.”
 
-He was interrogated again. Everything about him was very English except for the fact that his skin was tarred black, a bogman from history among the interrogating officers.
+第59页共162页 http://www.en8848.com.cn/ 原版英语阅读网
 
-They asked him where the Allies stood in Italy, and he said he assumed they had taken Florence but were held up by the hill towns north of them. The Gothic Line. “Your division is stuck in Florence and cannot get past bases like Prato and Fiesole for instance because the Germans have barracked themselves into villas and convents and they are brilliantly defended. It’s an old story—the Crusaders made the same mistake against the Saracens. And like them you now need the fortress towns. They have never been abandoned except dur¬ing times of cholera.”
+￼￼￼“Turn the record over, Kip. Now I will introduce you to ‘How Long Has This Been Going On,’ written by—” He left an opening for the English patient, who was stymied, shaking his head, grinning with the wine in his mouth. “This alcohol will probably kill me.” “Nothing will kill you, my friend. You are pure carbon.” “Caravaggio!”
 
-He had rambled on, driving them mad, traitor or ally, leav¬ing them never quite sure who he was.
+“George and Ira Gershwin. Listen.”
 
-Now, months later in the Villa San Girolamo, in the hill town north of Florence, in the arbour room that is his bed¬room, he reposes like the sculpture of the dead knight in Ravenna. He speaks in fragments about oasis towns, the later Medicis, the prose style of Kipling, the woman who bit into his flesh. And in his commonplace book, his 1890 edition of Herodotus’ Histories, are other fragments—maps, diary en¬tries, writings in many languages, paragraphs cut out of other books. All that is missing is his own name. There is still no clue to who he actually is, nameless, without rank or battalion or squadron. The references in his book are all pre-war, the deserts of Egypt and Libya in the 19305, interspersed with references to cave art or gallery art or journal notes in his own small handwriting. “There are no brunettes,” the English pa¬tient says to Hana as she bends over him,
+He and Hana were gliding to that sadness of the saxophone. He was right. The phrasing so slow, so drawn out, she could sense the musician did not wish to leave the small parlour of the introduction and enter the song, kept wanting to remain there, where the story had not yet begun, as if enamoured by a maid in the prologue. The Englishman murmured that the introductions to such songs were called “burdens.”
 
-第51页共162页 http://www.en8848.com.cn/ 原版英语阅读网
+Her cheek rested against the muscles of Caravaggio’s shoul¬der. She could feel those terrible paws on her back against the clean frock, and they moved in the limited space between the bed and the wall, between bed and door, between the bed and the window alcove that Kip sat within. Every now and then as they turned she would see his face. His knees up and his arms resting on them. Or he would be looking out of the window into darkness.
 
-￼￼￼“among Florentine Madonnas.”
+“Do any of you know a dance called the Bosphorus hug?” the Englishman asked.
 
-The book is in his hands. She carries it away from his sleeping body and puts it on the side table. Leaving it open she stands there, looking down, and reads. She promises herself she will not turn the page.
+“No such thing.”
 
-May 1936.
+Kip watched the large shadows slide over the ceiling, over the painted wall. He struggled up and walked to the English patient to fill his empty glass, and touched the rim of his glass with the bottle in a toast. West wind coming into the room. And he turned suddenly, angry. A frail scent of cordite reach¬ing him, a percentage of it in the air, and then he slipped out of the room, gesturing weariness, leaving Hana in the arms of Caravaggio.
 
-I will read you a poem, Clifton’s wife said, in her formal voice, which is how she always seems unless you are very close to her. We were all at the southern campsite, within the firelight.
+There was no light with him as he ran along the dark hall. He scooped up the satchel, was out of the house and racing down the thirty-six chapel steps to the road, just running, cancelling the thought of exhaustion from his body.
 
-I walked in a desert.
+Was it a sapper or was it a civilian? The smell of flower and herb along the road wall, the beginning stitch at his side. An accident or wrong choice. The sappers kept to themselves for the most part. They were an odd group as far as character went, somewhat like people who worked with jewels or stone, they had a hardness and clarity within them, their decisions frightening even to others in the same trade. Kip had recog¬nized that quality among gem-cutters but never in himself, though he knew others saw it there. The sappers never be¬came familiar with each other. When they talked they passed only information along, new devices, habits of the enemy. He would step into the town hall, where they were billeted, and his eyes would take in the three faces and be aware of the absence of the fourth. Or there would be four of them and in a field somewhere would be the body of an old man or a girl.
 
-And I cried:
+He had learned diagrams of order when he joined the army, blueprints that became more and more complicated, like great knots or musical scores. He found out he had the skill of the three-dimensional gaze, the rogue gaze
 
-“Ah, God, take me from this place!”
+第60页共162页 http://www.en8848.com.cn/ 原版英语阅读网
 
-A voice said: “It is no desert.”
+￼￼￼that could look at an object or page of information and realign it, see all the false descants. He was by nature conservative but able also to imag¬ine the worst devices, the capacity for accident in a room—a plum on a table, a child approaching and eating the pit of poison, a man walking into a dark room and before joining his wife in bed brushing loose a paraffin lamp from its bracket. Any room was full of such choreography. The rogue gaze could see the buried line under the surface, how a knot might weave when out of sight. He turned away from mystery books with irritation, able to pinpoint villains with too much ease. He was most comfortable with men who had the abstract madness of autodidacts, like his mentor, Lord Suffolk, like the English patient.
 
-I cried: “Well, but—
+He did not yet have a faith in books. In recent days, Hana had watched him sitting beside the English patient, and it seemed to her a reversal of Kim. The young student was now Indian, the wise old teacher was English. But it was Hana in the night who stayed with the old man, who guided him over the mountains to the sacred river. They had even read that book together, Hana’s voice slow when wind flattened the candle flame beside her, the page dark for a moment.
 
-The sand, the heat, the vacant horizon.”
+He squatted in a corner of the clanging -waiting-room, rapt from all other thoughts; hands folded in lap, and pupils con¬tracted to pin-points. In a minute—in another half second— he felt he would arrive at the solution of the tremendous puzzle...
 
-A voice said: “It is no desert.”
+And in some way on those long nights of reading and listen¬ing, she supposed, they had prepared themselves for the young soldier, the boy grown up, who would join them. But it was Hana who was the young boy in the story. And if Kip was anyone, he was the officer Creighton.
 
-No one said anything.
+A book, a map of knots, a fuze board, a room of four people in an abandoned villa lit only by candlelight and now and then light from a storm, now and then the possible light from an explosion. The mountains and hills and Florence blinded without electricity. Candlelight travels less than fifty yards. From a greater distance there was nothing here that belonged to the outside world. They had celebrated in this evening’s brief dance in the English patient’s room their own simple adventures—Hana her sleep, Caravaggio his “finding” of the gramophone, and Kip a difficult defusing, though he had al¬most forgotten such a moment already. He was someone who felt uncomfortable in celebrations, in victories.
 
-She said, That was by Stephen Crane, he never came to the desert. He came to the desert, Madox said.
+Just fifty yards away, there had been no representation of them in the world, no sound or sight of them from the valley’s eye as Hana’s and Caravaggio’s shadows glided across the walls and Kip sat comfortably encased in the alcove and the English patient sipped his wine and felt its spirit percolate through his unused body so it was quickly drunk, his voice bringing forth the whistle of a desert fox bringing forth a flutter of the En¬glish wood thrush he said was found only in Essex, for it thrived in the vicinity of lavender and wormwood. All of the burned man’s desire was in the brain, the sapper had been thinking to himself, sitting in the stone alcove. Then he turned his head suddenly, knowing everything as he heard the sound, certain of it. He had looked back at them and for the first time in his life lied—”It’s all right, it wasn’t a mine. That seemed to come from a cleared area”—prepared to wait till the smell of the cordite reached him.
 
-July 1936.
+Now, hours later, Kip sits once again in the window alcove. If he could walk the seven yards across the
 
-There are betrayals in war that are childlike compared with our human betrayals during peace. The new lover enters the habits of the other. Things are smashed, revealed in new light. This is done with nervous or tender sentences, although the heart is an organ of fire.
+第61页共162页 http://www.en8848.com.cn/ 原版英语阅读网
 
-A love story is not about those who lose their heart but about those who find that sullen inhabitant who, when it is stumbled upon, means the body can fool no one, can fool nothing—not the wisdom of sleep or the habit of social graces. It is a consuming of oneself and the past.
+￼￼￼Englishman’s room and touch her he would be sane. There was so little light in the room, just the candle at the table where she sat, not reading tonight; he thought perhaps she was slightly drunk.
 
-It is almost dark in the green room. Hana turns and realizes her neck is stiff from stillness. She has been focused
+He had returned from the source of the mine explosion to find Caravaggio asleep on the library sofa with the dog in his arms. The hound watched him as he paused at the open door, moving as little of its body as it had to, to acknowledge it was awake and guarding the place. Its quiet growl rising above Caravaggio’s snore.
 
-第52页共162页 http://www.en8848.com.cn/ 原版英语阅读网
+He took off his boots, tied the laces together and slung them over his shoulder as he went upstairs. It had started to rain and he needed a tarpaulin for his tent. From the hall he saw the light still on in the English patient’s room.
 
-￼￼￼and submerged within the crabbed handwriting in his thick-leaved sea-book of maps and texts. There is even a small fern glued into it. The Histories. She doesn’t close the book, hasn’t touched it since she laid it on the side table. She walks away from it.
+She sat in the chair, one elbow on the table where the low candle sprayed its light, her head leaning back. He lowered his boots to the floor and came silently into the room, where the party had been going on three hours earlier. He could smell alcohol in the air. She put her fingers to her lips as he entered and then pointed to the patient. He wouldn’t hear Kip’s silent walk. The sapper sat in the well of the window again. If he could walk across the room and touch her he would be sane. But between them lay a treacherous and com¬plex journey. It was a very wide world. And the Englishman woke at any sound, the hearing aid turned to full level when he slept, so he could be secure in his own awareness. The girl’s eyes darted around and then were still when she faced Kip in the rectangle of window.
 
-Kip was in a field north of the villa when he found the large mine, his foot—almost on the green wire as he crossed the orchard—twisting away, so he lost his balance and was on his knees. He lifted the wire until it was taut, then followed it, zigzagging among the trees.
+He had found the location of the death and what was left there and they had buried his second-in-command, Hardy. And afterwards he kept thinking of the girl that afternoon, suddenly terrified for her, angry at her for involving herself. She had tried to damage her life so casually. She stared. Her last communication had been the finger to her lips. He leaned over and wiped the side of his cheek against the lanyard on his shoulder.
 
-He sat down at the source with the canvas bag on his lap. The mine shocked him. They had covered it with concrete. They had laid the explosive there and then plastered wet con¬crete over it to disguise its mechanism and what its strength was. There was a bare tree about four yards away. Another tree about ten yards away. Two months’ grass had grown over the concrete ball.
+He had walked back through the village, rain falling into pollarded trees of the town square untrimmed since the start of the war, past the strange statue of two men shaking hands on horseback. And now he was here, the candlelight swaying, altering her look so he could not tell what she thought. Wis¬dom or sadness or curiosity.
 
-He opened his bag and with scissors clipped the grass away. He laced a small hammock of rope around it and after attach¬ing a rope and pulley to the tree branch slowly lifted the concrete into the air. Two wires led from the concrete towards the earth. He sat down, leaned against the tree and looked at it. Speed did not matter now. He pulled the crystal set out of the bag and placed the earphones to his head. Soon the radio was filling him with American music from the AIF station. Two and a half minutes average for each song or dance num¬ber. He could work his way back along “A String of Pearls,” “C-Jam Blues” and other tunes to discover how long he had been there, receiving the background music subconsciously.
+If she had been reading or if she had been bending over the Englishman, he would have nodded to her and probably left, but he is now watching Hana as someone young and alone. Tonight, gazing at the scene of the mine blast, he had begun to fear her presence during the afternoon dismantling. He had to remove it, or she would be with him each time he ap¬proached a fuze. He would be pregnant with her. When he worked, clarity and music filled him, the human world extin¬guished. Now she was within him or on his shoulder, the way he had once seen a live goat being carried by an officer out of a tunnel they were attempting to flood.
 
-Noise did not matter. There would be no faint tickings or clickings to signal danger on this kind of bomb. The dis¬traction of music helped him towards clear thought, to the possible forms of structure in the mine, to the personality that had laid the city of threads and then poured wet concrete over it.
+No.
 
-The tightening of the concrete ball in midair, braced with a second rope, meant the two wires would not pull away, no matter how hard he attacked it. He stood up and began to chisel the disguised mine gently, blowing away loose grain with his mouth, using the feather stick, chipping more con¬crete off. He stopped his focus only when the music slipped off the wavelength and he had to realign the station, bringing clarity back to the swing tunes. Very slowly he unearthed the series of wires. There were six wires jumbled up, tied to¬gether, all painted black.
+That wasn’t true. He wanted Hana’s shoulder, wanted to place his palm over it as he had done in the sunlight when she slept and he had lain there as if in someone’s rifle sights, awkward with her. Within the imaginary painter’s landscape. He did not want comfort but he wanted to surround the girl with it, to guide her from this room. He refused to believe in his own weaknesses, and with her he had not found a weak¬ness to fit himself
 
-He brushed the dust off the mapboard the wires lay on.
+第62页共162页 http://www.en8848.com.cn/ 原版英语阅读网
 
-Six black wires. When he was a child his father had bunched up his fingers and, disguising all but the tips of them, made him guess which was the long one. His own small finger would touch his choice, and his father’s hand would unfold, blossoming, to reveal the boy’s mistake. One could of course make a red wire negative. But this opponent had not just concreted the thing but painted all the characters black. Kip was being pulled into a psychological vortex. With the knife he began to scrape the paint free, revealing a red, a blue, a green. Would his opponent have also switched them? He’d have to set up a detour with black wire of his own like an oxbow river and then test the loop for positive or negative power. Then he would check it for fading power and know where
-
-第53页共162页 http://www.en8848.com.cn/ 原版英语阅读网
-
-￼￼￼the danger lay.
-
-Hana was carrying a long mirror in front of her down the hall. She would pause because of the weight of it and then move forward, the mirror reflecting the old dark pink of the passageway.
-
-The Englishman had wanted to see himself. Before she stepped into the room she carefully turned the reflection upon herself, not wanting the light to bounce indirectly from the window onto his face.
-
-He lay there in his dark skin, the only paleness the hearing aid in his ear and the seeming blaze of light from his pillow. He pushed the sheets down with his hands. Here, do this, pushing as far as he could, and Hana flicked the sheet to the base of the bed.
-
-She stood on a chair at the foot of the bed and slowly tilted the mirror down at him. She was in this position, her hands braced out in front of her, when she heard the faint shouts.
-
-She ignored them at first. The house often picked up noise from the valley. The use of megaphones by the clearance mil¬itary had constantly unnerved her when she was living alone with the English patient.
-
-“Keep the mirror still, my dear,” he said.
-
-“I think there is someone shouting. Do you hear it?”
-
-His left hand turned up the hearing aid.
-
-“It’s the boy. You’d better go and find out.”
-
-She leaned the mirror against the wall and rushed down the corridor. She paused outside waiting for the next yell. When it came she took off through the garden and into the fields above the house.
-
-He stood, his hands raised above him as if he were holding a giant cobweb. He was shaking his head to get free of the earphones. As she ran towards him he yelled at her to circle to the left, there were mine wires all over the place. She stopped. It was a walk she had taken numerous times with no sense of danger. She raised her skirt and moved forward, watching her feet as they entered the long grass.
-
-His hands were still up in the air as she came alongside him. He had been tricked, ending up holding two live wires he could not put down without the safety of a descant chord. He needed a third hand to negate one of them and he needed to go back once more to the fuze head. He passed the wires carefully to her and dropped his arms, getting blood back into them.
+￼￼￼against. Neither of them was willing to reveal such a possibility to the other. Hana sat so still. She looked at him, and the candle wavered and altered her look. He was unaware that for her he was just a silhouette, his slight body and his skin part of the darkness.
 

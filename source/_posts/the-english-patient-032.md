@@ -1,71 +1,83 @@
 title: The English Patient 032
-date: 2015-01-24 15:44:03
+date: 2015-01-25 03:45:45
 tags: the-english-patient
 ---
 
-Then he is suddenly across the room, the bounce of his sapper lamp all over the place, in this room he has spent a week sweeping of all possible fuzes so it is now cleared. As if the room has now finally emerged from the war, is no longer a zone or territory. He moves with just the lamp, swaying his arm, revealing the ceiling, her laughing face as he passes her standing on the back of the sofa looking down at the glisten of his slim body. The next time he passes her he sees she is leaning down and wiping her arms on the skirt of her dress. “But I got you, I got you,” she chants. “I’m the Mohican of Danforth Avenue.”
+“I can get you off the morphine, you know. I’m a good nurse.”
 
-Then she is riding on his back and her light swerves into the spines of books in the high shelves, her arms rising up and down as he spins her, and she dead-weights forward, drops and catches his thighs, then pivots off and is free of him, lying back on the old carpet, the smell of the past ancient rain still in it, the dust and grit on her wet arms. He bends down to her, she reaches out and clicks off his light. “I won, right?” He still has said nothing since he came into the room. His head goes into that gesture she loves which is partly a nod, partly a shake of possible disagreement. He cannot see her for the glare. He turns off her light so they are equal in darkness.
+“You’re surrounded by madmen...”
 
-第119页共162页 http://www.en8848.com.cn/ 原版英语阅读网
+“Yes, I think we are all mad.”
 
-￼￼￼There is the one month in their lives when Hana and Kip sleep beside each other. A formal celibacy between them. Dis¬covering that in lovemaking there can be a whole civilisation, a whole country ahead of them. The love of the idea of him or her. I don’t want to be fucked. I don’t want to fuck you. Where he had learned it or she had who knows, in such youth. Perhaps from Caravaggio, who had spoken to her during those evenings about his age, about the tenderness towards every cell in a lover that comes when you discover your mortality. This was, after all, a mortal age. The boy’s desire completed itself only in his deepest sleep while in the arms of Hana, his orgasm something more to do with the pull of the moon, a tug of his body by the night.
+When Kip called them, they walked out of the kitchen and onto the terrace, whose border, with its low stone balustrade, was ringed with light.
 
-All evening his thin face lay against her ribs. She reminded him of the pleasure of being scratched, her fingernails in cir¬cles raking his back. It was something an ayah had taught him years earlier. All comfort and peace during childhood, Kip remembered, had come from her, never from the mother he loved or from his brother or father, whom he played with. When he was scared or unable to sleep it was the ayah who recognized his lack, who would ease him into sleep with her hand on his small thin back, this intimate stranger from South India who lived with them, helped run a household, cooked and served them meals, brought up her own children within the shell of the household, having comforted his older brother too in earlier years, probably knowing the character of all of the children better than their real parents did.
+It looked to Caravaggio like a string of small electric candles found in dusty churches, and he thought the sapper had gone too far in removing them from a chapel, even for Hana’s birth¬day. Hana walked slowly forward with her hands over her face. There was no wind. Her legs and thighs moved through the skirt of her frock as if it were thin water. Her tennis shoes silent on the stone.
 
-It was a mutual affection. If Kip had been asked whom he loved most he would have named his ayah before his mother. Her comforting love greater than any blood love or sexual love for him. All through his life, he would realize later, he was drawn outside the family to find such love. The platonic inti¬macy, or at times the sexual intimacy, of a stranger. He would be quite old before he recognized that about himself, before he could ask even himself that question of whom he loved most.
+“I kept finding dead shells wherever I was digging,” the sapper said.
 
-Only once did he feel he had given her back any comfort, though she already understood his love for her. When her mother died he had crept into her room and held her suddenly old body. In silence he lay beside her mourning in her small servant’s room where she wept wildly and formally. He watched as she collected her tears in a small glass cup held against her face. She would take this, he knew, to the funeral. He was behind her hunched-over body, his nine-year-old hands on her shoulders, and when she was finally still, just now and then a shudder, he began to scratch her through the sari, then pulled it aside and scratched her skin—as Hana now received this tender art, his nails against the million cells of her skin, in his tent, in 1945, where their continents met in a hill town.
+They still didn’t understand. Caravaggio bent over the flut¬ter of lights. They were snail shells filled with oil. He looked along the row of them; there must have been about forty.
 
-IX The Cave of Swimmers
+“Forty-five,” Kip said, “the years so far of this century. Where I come from, we celebrate the age as well as
 
-I PROMISED to tell you how one falls in love.
+第142页共162页 http://www.en8848.com.cn/ 原版英语阅读网
 
-A young man named Geoffrey Clifton had met a friend at Oxford who had mentioned what we were doing. He contacted me, got married the next day, and two weeks later flew with his wife to Cairo. They were on the last days of their honey¬moon. That was the beginning of our story.
+￼￼￼ourselves.”
 
-When I met Katharine she was married. A married woman. Clifton climbed out of the plane and then,
+Hana moved alongside them, her hands in her pockets now, the way Kip loved to see her walk. So relaxed, as if she had put her arms away for the night, now in simple armless movement.
 
-第120页共162页 http://www.en8848.com.cn/ 原版英语阅读网
+Caravaggio was diverted by the startling presence of three bottles of red wine on the table. He walked over and read the labels and shook his head, amazed. He knew the sapper wouldn’t drink any of it. All three had already been opened. Kip must have picked his way through some etiquette book in the library. Then he saw the corn and the meat and the pota¬toes. Hana slid her arm into Kip’s and came with him to the table.
 
-￼￼￼unexpected, for we had planned the expedition with just him in mind, she emerged. Khaki shorts, bony knees. In those days she was too ardent for the desert. I liked his youth more than the eager¬ness of his new young wife. He was our pilot, messenger, reconnaissance. He was the New Age, flying over and drop¬ping codes of long coloured ribbon to advise us where we should be. He shared his adoration of her constantly. Here were four men and one woman and her husband in his verbal joy of honeymoon. They went back to Cairo and returned a month later, and it was almost the same. She was quieter this time but he was still the youth. She would squat on some petrol cans, her jaw cupped in her hands, her elbows on her knees, staring at some constantly flapping tarpaulin, and Clif¬ton would be singing her praises. We tried to joke him out of it, but to wish him more modest would have been against him and none of us wanted that.
+They ate and drank, the unexpected thickness of the wine like meat on their tongues. They were soon turning silly in their toasts to the sapper—”the great forager”—and to the English patient. They toasted each other, Kip joining in with his beaker of water. This was when he began to talk about himself. Caravaggio pressing him on, not always listening, sometimes standing up and walking around the table, pacing and pacing with pleasure at all this. He wanted these two married, longed to force them verbally towards it, but they seemed to have their own strange rules about their relation¬ship. What was he doing in this role. He sat down again. Now and then he noticed the death of a light. The snail shells held only so much oil. Kip would rise and refill them with pink paraffin.
 
-After that month in Cairo she was muted, read constantly, kept more to herself, as if something had occurred or she realized suddenly that wondrous thing about the human being, it can change. She did not have to remain a socialite who had married an adventurer. She was discovering herself. It was painful to watch, because Clifton could not see it, her self-education. She read everything about the desert. She could talk about Uweinat and the lost oasis, had even hunted down marginal articles.
+“We must keep them lit till midnight.”
 
-I was a man fifteen years older than she, you understand. I had reached that stage in life where I identified with cynical villains in a book. I don’t believe in permanence, in relation¬ships that span ages. I was fifteen years older. But she was smarter. She was hungrier to change than I expected.
+They talked then about the war, so far away. “When the war with Japan is over, everyone will finally go home,” Kip said. “And where will you go?” Caravaggio asked. The sapper rolled his head, half nodding, half shaking it, his mouth smil¬ing. So Caravaggio began to talk, mostly to Kip.
 
-What altered her during their postponed honeymoon on the Nile estuary outside Cairo? We had seen them for a few days —they had arrived two weeks after their Cheshire wedding. He had brought his bride along, as he couldn’t leave her and he couldn’t break the commitment to us. To Madox and me. We would have devoured him. So her bony knees emerged from the plane that day. That was the burden of our story. Our situation.
+The dog cautiously approached the table and laid its head on Caravaggio’s lap. The sapper asked for other stories about Toronto as if it were a place of peculiar wonders. Snow that drowned the city, iced up the harbour, ferryboats in the sum¬mer where people listened to concerts. But what he was really interested in were the clues to Hana’s nature, though she was evasive, veering Caravaggio away from stories that involved some moment of her life. She wanted Kip to know her only in the present, a person perhaps more flawed or more compas¬sionate or harder or more obsessed than the girl or young woman she had been then. In her life there was her mother Alice her father Patrick her stepmother Clara and Caravaggio. She had already admitted these names to Kip as if they were her credentials, her dowry. They were faultless and needed no discussion. She used them like authorities in a book she could refer to on the right way to boil an egg, or the correct way to slip garlic into a lamb. They were not to be questioned.
 
-Clifton celebrated the beauty of her arms, the thin lines of her ankles. He described witnessing her swim. He spoke about the new bidets in the hotel suite. Her ravenous hunger at breakfast.
+And now—because he was quite drunk—Caravaggio told the story of Hana’s singing the “Marseillaise,” which he had told her before. “Yes, I have heard the song,” said Kip, and he attempted a version of it. “No, you have to sing it out,” said Hana, “you have to sing it standing up!”
 
-To all that, I didn’t say a word. I would look up sometimes as he spoke and catch her glance, witnessing my unspoken exasperation, and then her demure smile. There was some irony. I was the older man. I was the man of the world, who had walked ten years earlier from Dakhla Oasis to the Gilf Kebir, who charted the Farafra, who knew Cyrenaica and had been lost more than twice in the Sand Sea. She met me when I had all those labels. Or she could twist a few degrees and see the labels on Madox. Yet apart from the Geographical Society we were unknown; we were the thin edge of a cult she had stumbled onto because of this marriage.
+She stood up, pulled her tennis shoes off and climbed onto the table. There were four snail lights flickering,
 
-The words of her husband in praise of her meant nothing. But I am a man whose life in many ways, even as an explorer, has been governed by words. By rumours and legends. Charted things. Shards written down. The tact of words. In the desert to repeat something would be to fling more water into the earth. Here nuance took you a hundred miles.
+第143页共162页 http://www.en8848.com.cn/ 原版英语阅读网
 
-Our expedition was about forty miles from Uweinat, and Madox and I were to leave alone on a reconnaissance.
+￼￼￼almost dying, on the table beside her bare feet.
 
-第121页共162页 http://www.en8848.com.cn/ 原版英语阅读网
+“This is for you. This is how you must learn to sing it, Kip. This is for you.”
 
-￼￼￼The Cliftons and the others were to remain behind. She had con¬sumed all her reading and asked me for books. I had nothing but maps with me. “That book you look at in the evenings?” “Herodotus. Ahh. You want that?” “I don’t presume. If it is private.” “I have my notes within it. And cuttings. I need it with me.” “It was forward of me, excuse me.” “When I return I shall show it to you. It is unusual for me to travel without it.”
+She sang up into darkness beyond their snail light, beyond the square of light from the English patient’s room and into the dark sky waving with shadows of cypress. Her hands came out of their pockets.
 
-All this occurred with much grace and courtesy. I explained it was more a commonplace book, and she bowed to that. I was able to leave without feeling in any way selfish. I acknowl¬edged her graciousness. Clifton was not there. We were alone. I had been packing in my tent when she had approached me. I am a man who has turned my back on much of the social world, but sometimes I appreciate the delicacy of manner.
+Kip had heard the song in the camps, sung by groups of men, often during strange moments, such as before an im¬promptu soccer match. And Caravaggio when he had heard it in the last few years of the war never really liked it, never liked to listen to it. In his heart he had Hana’s version from many years before. Now he listened with a pleasure because she was singing again, but this was quickly altered by the way she sang. Not the passion of her at sixteen but echoing the tentative circle of light around her in the darkness. She was singing it as if it was something scarred, as if one couldn’t ever again bring all the hope of the song together. It had been altered by the five years leading to this night of her twenty-first birthday in the forty-fifth year of the twentieth century. Singing in the voice of a tired traveller, alone against every¬thing. A new testament. There was no certainty to the song anymore, the singer could only be one voice against all the mountains of power. That was the only sureness. The one voice was the single unspoiled thing. A song of snail light. Caravaggio realized she was singing with and echoing the heart of the sapper.
 
-We returned a week later. Much had happened in terms of findings and piecings together. We were in good spirits. There was a small celebration at the camp. Clifton was always one to celebrate others. It was catching.
+In the tent there have been nights of no talk and nights full of talk. They are never sure what will occur, whose fraction of past will emerge, or whether touch will be anonymous and silent in their darkness. The intimacy of her body or the body of her language in his ear—as they lie upon the air pillow he insists on blowing up and using each night. He has been charmed by this Western invention. He dutifully releases the air and folds it into three each morning, as he has done all the way up the landmass of Italy.
 
-She approached me with a cup of water. “Congratulations, I heard from Geoffrey already—” “Yes!” “Here, drink this.” I put out my hand and she placed the cup in my palm. The water was very cold after the stuff in the canteens we had been drinking. “Geoffrey has planned a party for you. He’s writing a song and wants me to read a poem, but I want to do something else.” “Here, take the book and look through it.” I pulled it from my knapsack and handed it to her.
+In the tent Kip nestles against her neck. He dissolves to her scratching fingernails across his skin. Or he has his mouth against her mouth, his stomach against her wrist.
 
-After the meal and herb teas Clifton brought out a bottle of cognac he had hidden from everyone till this moment. The whole bottle was to be drunk that night during Madox’s ac¬count of our journey, Clifton’s funny song. Then she began to read from The Histories—the story of Candaules and his queen. I always skim past that story. It is early in the book and has little to do with the places and period I am interested in. But it is of course a famous story. It was also what she had chosen to talk about.
+She sings and hums. She thinks him, in this tent’s dark¬ness, to be half bird—a quality of feather within him, the cold iron at his wrist. He moves sleepily whenever he is in such darkness with her, not quite quick as the world, whereas in daylight he glides through all that is random around him, the way colour glides against colour.
 
-This Candaules had become passionately in love with his own wife; and having become so, he deemed that his wife was fairer by far than all other women. To Gyges, the son of Daskylus (for he of all his spearmen was the most pleasing to him), he used to describe the beauty of his wife, praising it above all measure.
+But at night he embraces torpor. She cannot see his order and discipline without seeing his eyes. There isn’t a key to him. Everywhere she touches braille doorways. As if organs, the heart, the rows of rib, can be seen under the skin, saliva across her hand now a colour. He has mapped her sadness more than any other. Just as she knows the strange path of love he has for his dangerous brother. “To be a wanderer is in our blood. That is why jailing is most difficult for his nature and he would kill himself to get free.”
 
-“Are you listening, Geoffrey?”
+During the verbal nights, they travel his country of five rivers. The Sutlej, Jhelum, Ravi, Chenab, Beas. He guides her into the great gurdwara, removing her shoes, watching as she washes her feet, covers her head. What they enter was built in 1601, desecrated in 1757 and built again immediately. In 1830 gold and marble were
 
-“Yes, my darling.”
+第144页共162页 http://www.en8848.com.cn/ 原版英语阅读网
 
-He said to Gyges: “Gyges, I think that you do not believe me when I tell you of the beauty of my wife, for it happens that men’s ears are less apt of belief than their eyes. Contrive therefore means by which you may look upon her naked.”
+￼￼￼applied. “If I took you before morning you would see first of all the mist over the water. Then it lifts to reveal the temple in light. You will already be hearing the hymns of the saints—Ramananda, Nanak and Kabir. Singing is at the centre of worship. You hear the song, you smell the fruit from the temple gardens—pomegranates, oranges. The temple is a haven in the flux of life, accessible to all. It is the ship that crossed the ocean of ignorance.”
 
-There are several things one can say. Knowing that even¬tually I will become her lover, just as Gyges will be the queen’s lover and murderer of Candaules. I would often open Herod¬otus for a clue to geography. But Katharine had done that as a window to her life. Her voice was wary as she read. Her eyes only on the page where the story was, as if she were sinking within quicksand while she spoke.
+They move through the night, they move through the silver door to the shrine where the Holy Book lies under a canopy of brocades. The ragis sing the Book’s verses accompanied by musicians. They sing from four in the morning till eleven at night. The Granth Sahib is opened at random, a quotation selected, and for three hours, before the mist lifts off the lake to reveal the Golden Temple, the verses mingle and sway out with unbroken reading.
 
-第122页共162页 http://www.en8848.com.cn/ 原版英语阅读网
+Kip walks her beside a pool to the tree shrine where Baba Gujhaji, the first priest of the temple, is buried. A tree of superstitions, four hundred and fifty years old. “My mother came here to tie a string onto a branch and beseeched the tree for a son, and when my brother was born returned and asked to be blessed with another. There are sacred trees and magic water all over the Punjab.”
 
-￼￼￼“I believe indeed that she is of all women the fairest and I entreat you not to ask of me that which it is not lawful for me to do.” But the King answered him thus: “Be of good courage, Gyges, and have no fear, either of me, that I am saying these words to try you, or of my wife, lest any harm may happen to you from her. For I will contrive it so from the first that she shall not perceive that she has been seen by you.”
+Hana is quiet. He knows the depth of darkness in her, her lack of a child and of faith. He is always coaxing her from the edge of her fields of sadness. A child lost. A father lost.
+
+“I have lost someone like a father as well,” he has said. But she knows this man beside her is one of the charmed, who has grown up an outsider and so can switch allegiances, can replace loss. There are those destroyed by unfairness and those who are not. If she asks him he will say he has had a good life —his brother in jail, his comrades blown up, and he risking himself daily in this war.
+
+In spite of the kindnesses in such people they were a terrible unfairness. He could be all day in a clay pit dismantling a bomb that might kill him at any moment, could come home from the burial of a fellow sapper, his energy saddened, but whatever the trials around him there was always solution and light. But she saw none. For him there were the various maps of fate, and at Amritsar’s temple all faiths and classes were welcome and ate together. She herself would be allowed to place money or a flower onto the sheet spread upon the floor and then join in the great permanent singing.
+
+She wished for that. Her inwardness was a sadness of na¬ture. He himself would allow her to enter any of his thirteen gates of character, but she knew that if he were in danger he would never turn to face her. He would create a space around himself and concentrate. This was his craft. Sikhs, he said, were brilliant at technology. “We have a mystical closeness... what is it?” “Affinity.” “Yes, affinity, with machines.”
+
+He would be lost among them for hours, the beat of music within the crystal set whacking away at his forehead and into his hair. She did not believe she could turn fully to him and be his lover. He moved at a speed that allowed him to replace loss. That was his nature. She would not judge it in him. What right did she have. Kip stepping out each morning with his satchel hanging off his left shoulder and walking the path away from the
+
+第145页共162页 http://www.en8848.com.cn/ 原版英语阅读网
+
+￼￼￼Villa San Girolamo. Each morning she watched him, seeing his freshness towards the world perhaps for the last time. After a few minutes he would look up into the shrapnel-torn cypresses, whose middle branches had been shelled away. Pliny must have walked down a path like this, or Stendahl, because passages in The Charterhouse of Parma had occurred in this part of the world too.
 

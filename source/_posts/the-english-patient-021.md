@@ -1,153 +1,127 @@
 title: The English Patient 021
-date: 2015-01-24 15:44:14
+date: 2015-01-25 03:45:56
 tags: the-english-patient
 ---
 
-第76页共162页 http://www.en8848.com.cn/ 原版英语阅读网
+I crossed the dry bed of the lake towards Kufra Oasis, carry¬ing nothing but robes against the heat and night cold, my Herodotus left behind with her. And three years later, in 1942, I walked with her towards the buried plane, carrying her body as if it was the armour of a knight.
 
-￼￼￼What were we to this young couple? Some of us had written books about dune formation, the disappearance and reappear¬ance of oases, the lost culture of deserts. We seemed to be interested only in things that could not be bought or sold, of no interest to the outside world. We argued about latitudes, or about an event that had happened seven hundred years earlier. The theorems of exploration. That Abd el Melik Ibra-him el Zwaya who lived in Zuck oasis pasturing camels was the first man among those tribes who could understand the concept of photographs.
+In the desert the tools of survival are underground—trog¬lodyte caves, water sleeping within a buried plant, weapons, a plane. At longitude 25, latitude 23, I dug down towards the tarpaulin, and Madox’s old plane gradually emerged. It was night and even in the cold air I was sweating. I carried the naphtha lantern over to her and sat for a while, beside the silhouette of her nod. Two lovers and desert—starlight or moonlight, I don’t remember. Everywhere else out there was a war.
 
-The Cliftons were on the last days of their honeymoon. I left them with the others and went to join a man in Kufra and spent many days with him, trying out theories I had kept secret from the rest of the expedition. I returned to the base camp at El Jof three nights later.
+The plane came out of the sand. There had been no food and I was weak. The tarp so heavy I couldn’t dig it out but had simply to cut it away.
 
-The desert fire was between us. The Cliftons, Madox, Bell and myself. If a man leaned back a few inches he would dis¬appear into darkness. Katharine Clifton began to recite some¬thing, and my head was no longer in the halo of the camp’s twig fire.
+In the morning, after two hours’ sleep, I carried her into the cockpit. I started the motor and it rolled into life. We moved and then slipped, years too late, into the sky.
 
-There was classical blood in her face. Her parents were famous, apparently, in the world of legal history. I am a man who did not enjoy poetry until I heard a woman recite it to us.
+The voice stops. The burned man looks straight ahead in his morphine focus.
 
-And in that desert she dragged her university days into our midst to describe the stars—the way Adam tenderly taught a woman with gracious metaphors.
+The plane is now in his eye. The slow voice carries it with effort above the earth, the engine missing turns as if losing a stitch, her shroud unfurling in the noisy air of the cockpit, noise terrible after his days of walking in silence. He looks down and sees oil pouring onto his knees. A branch breaks free of her shirt. Acacia and bone. How high is he above the land? How low is he in the sky?
 
-These then, though unbeheld in deep of night,
+The undercarriage brushes the top of a palm and he pivots up, and the oil slides over the seat, her body slipping down into it. There is a spark from a short, and the twigs at her knee catch fire. He pulls her back into the seat beside him. He thrusts his hands up against the cockpit glass and it will not shift. Begins punching the glass,
 
-Shine not in vain, nor think, though men were none, That Heav’n would want spectators, God want praise; Millions of spiritual Creatures walk the Earth Unseen, both when we -wake, and when we sleep: All these with ceaseless praise his works behold
+第94页共162页 http://www.en8848.com.cn/ 原版英语阅读网
 
-Both day and night: how often from the steep
+￼￼￼cracking it, finally break¬ing it, and the oil and the fire slop and spin everywhere. How low is he in the sky? She collapses—acacia twigs, leaves, the branches that were shaped into arms uncoiling around him. Limbs begin disappearing in the suck of air. The odour of morphine on his tongue. Caravaggio reflected in the black lake of his eye. He goes up and down now like a well bucket. There is blood somehow all over his face. He is flying a rotted plane, the canvas sheetings on the wings ripping open in the speed. They are carrion. How far back had the palm tree been? How long ago? He lifts his legs out of the oil, but they are so heavy. There is no way he can lift them again. He is old. Suddenly. Tired of living without her. He cannot lie back in her arms and trust her to stand guard all day all night while he sleeps. He has no one. He is exhausted not from the desert but from solitude. Madox gone. The woman translated into leaves and twigs, the broken glass to the sky like a jaw above him.
 
-Of echoing Hill or Thicket have we heard
+He slips into the harness of the oil-wet parachute and pivots upside down, breaking free of glass, wind flinging his body back. Then his legs are free of everything, and he is in the air, bright, not knowing why he is bright until he realizes he is on fire.
 
-Celestial voices to the midnight air,
+Hana can hear the voices in the English patient’s room and stands in the hall trying to catch what they are saying. How is it?
 
-Sole, or responsive each to other’s note
+Wonderful!
 
-第77页共162页 http://www.en8848.com.cn/ 原版英语阅读网
+Now it’s my turn.
 
-￼￼￼Singing their great Creator...
+Ahh! Splendid, splendid.
 
-That night I fell in love with a voice. Only a voice. I wanted to hear nothing more. I got up and walked away.
+This is the greatest of inventions. A remarkable find, young man.
 
-She was a willow. What would she be like in winter, at my age? I see her still, always, with the eye of Adam. She had been these awkward limbs climbing out of a plane, bending down in our midst to prod at a fire, her elbow up and pointed towards me as she drank from a canteen.
+When she enters she sees Kip and the English patient pass¬ing a can of condensed milk back and forth. The Englishman sucks at the can, then moves the tin away from his face to chew the thick fluid. He beams at Kip, who seems irritated that he does not have possession of it. The sapper glances at Hana and hovers by the bedside, snapping his fingers a couple of times, managing finally to pull the tin away from the dark face.
 
-A few months later, she waltzed with me, as we danced as a group in Cairo. Though slightly drunk she wore an uncon¬querable face. Even now the face I believe that most revealed her was the one she had that time when we were both half drunk, not lovers.
+“We have discovered a shared pleasure. The boy and I. For me on my journeys in Egypt, for him in India.” “Have you ever had condensed-milk sandwiches?” xthe sap¬per asks.
 
-All these years I have been trying to unearth what she was handing me with that look. It seemed to be contempt. So it appeared to me. Now I think she was studying me. She was an innocent, surprised at something in me. I was behaving the way I usually behave in bars, but this time with the wrong company. I am a man who kept the codes of my behaviour separate. I was forgetting she was younger than I.
+Hana glances back and forth between the two of them.
 
-She was studying me. Such a simple thing. And I was watch¬ing for one wrong move in her statue-like gaze, something that would give her away.
+第95页共162页 http://www.en8848.com.cn/ 原版英语阅读网
 
-Give me a map and I’ll build you a city. Give me a pencil and I will draw you a room in South Cairo, desert charts on the wall. Always the desert was among us. I could wake and raise my eyes to the map of old settlements along the Mediter¬ranean coast—Gazala, Tobruk, Mersa Matruh—and south of that the hand- painted wadis, and surrounding those the shades of yellowness that we invaded, tried to lose ourselves in. “My task is to describe briefly the several expeditions which have attacked the Gilf Kebir. Dr. Bermann will later take us back to the desert as it existed thousands of years ago...”
+￼￼￼Kip peers into the can. “I’ll get another one,” he says, and leaves the room. Hana looks at the man in the bed.
 
-That is the way Madox spoke to other geographers at Ken¬sington Gore. But you do not find adultery in the minutes of the Geographical Society. Our room never appears in the de¬tailed reports which chartered every knoll and every incident of history.
+“Kip and I are both international bastards—born in one place and choosing to live elsewhere. Fighting to get back to or get away from our homelands all our lives. Though
 
-In the street of imported parrots in Cairo one is hectored by almost articulate birds. The birds bark and whistle in rows, like a plumed avenue. I knew which tribe had travelled which silk or camel road carrying them in their petite palanquins across the deserts. Forty-day journeys, after the birds were caught by slaves or picked like flowers in equatorial gardens and then placed in bamboo cages to enter the river that is trade. They appeared like brides in a mediaeval courtship.
+Kip doesn’t recognize that yet. That’s why we get on so well together.”
 
-We stood among them. I was showing her a city that was new to her. Her hand touched me at the wrist.
+In the kitchen Kip stabs two holes into the new can of condensed milk with his bayonet, which, he realizes, is now used more and more for only this purpose, and runs back upstairs to the bedroom.
 
-第78页共162页 http://www.en8848.com.cn/ 原版英语阅读网
+“You must have been raised elsewhere,” the sapper says. “The English don’t suck it out that way.”
 
-￼￼￼“If I gave you my life, you would drop it. Wouldn’t you?”
+“For some years I lived in the desert. I learned everything I knew there. Everything that ever happened to me that was important happened in the desert.”
 
-I didn’t say anything.
+He smiles at Hana.
 
-V Katharine
+“One feeds me morphine. One feeds me condensed milk. We may have discovered a balanced diet!” He turns back to Kip.
 
-THE FIRST TIME she dreamed of him she woke up beside her husband screaming.
+“How long have you been a sapper?”
 
-In their bedroom she stared down onto the sheet, mouth open. Her husband put his hand on her back. “Nightmare. Don’t worry.”
+“Five years. Mostly in London. Then Italy. With the unexploded-bomb units.” “Who was your teacher?”
+
+“An Englishman in Woolwich. He was considered eccen¬tric.”
+
+“The best kind of teacher. That must have been Lord Suf¬folk. Did you meet Miss Morden?”
 
 “Yes.”
 
-“Shall I get you some water?”
+At no point does either of them attempt to make Hana com¬fortable in their conversation. But she wants to know about his teacher, and how he would describe him.
 
-“Yes.”
+“What was he like, Kip?”
 
-She wouldn’t move. Wouldn’t lie back into that zone they had been in.
+“He worked in Scientific Research. He was head of an ex¬perimental unit. Miss Morden, his secretary, was always with him, and his chauffeur, Mr. Fred Harts. Miss Morden would take notes, which he dictated as he worked on a bomb, while Mr. Harts helped with the instruments. He was a brilliant man. They were called the Holy Trinity. They were blown up, all three of them, in 1941. At Erith.”
 
-The dream had taken place in this room—his hand on her neck (she touched it now), his anger towards her that she had sensed the first few times she had met him. No, not anger, a lack of interest, irritation at a married woman being among them. They had been bent over like animals, and he had yoked her neck back so she had been unable to breathe within her arousal.
+第96页共162页 http://www.en8848.com.cn/ 原版英语阅读网
 
-Her husband brought her the glass on a saucer but she could not lift her arms, they were shaking, loose. He put the glass awkwardly against her mouth so she could gulp the chlori¬nated water, some coming down her chin, falling to her stom¬ach. When she lay back she hardly had time to think of what she had witnessed, she fell into a quick deep sleep.
+￼￼￼She looks at the sapper leaning against the wall, one foot up so the sole of his boot is against a painted bush. No expression of sadness, nothing to interpret.
 
-That had been the first recognition. She remembered it sometime during the next day, but she was busy then and she refused to nestle with its significance for long, dismissed it; it was an accidental collision on a crowded night, nothing more.
+Some men had unwound their last knot of life in her arms. In the town of Anghiari she had lifted live men to discover they were already being consumed by worms. In Ortona she had held cigarettes to the mouth of the boy with no arms. Nothing had stopped her. She had continued her duties while she secretly pulled her personal self back. So many nurses had turned into emotionally disturbed handmaidens of the war, in their yellow-and- crimson uniforms with bone buttons.
 
-A year later the other, more dangerous, peaceful dreams came. And even within the first one of these she recalled the hands at her neck and waited for the mood of calmness be¬tween them to swerve to violence.
+She watches Kip lean his head back against the wall and knows the neutral look on his face. She can read it.
 
-Who lays the crumbs of food that tempt you? Towards a person you never considered. A dream. Then later another series of dreams.
+VII In Situ
 
-第79页共162页 http://www.en8848.com.cn/ 原版英语阅读网
+WESTBURY, ENGLAND, 1940
 
-￼￼￼He said later it was propinquity. Propinquity in the desert. It does that here, he said. He loved the word—the propinquity of water, the propinquity of two or three bodies in a car driving the Sand Sea for six hours. Her sweating knee beside the gearbox of the truck, the knee swerving, rising with the bumps. In the desert you have time to look everywhere, to theorize on the choreography of all things around you.
+KIRPAL SINGH STOOD where the horse’s saddle would have lain across its back. At first he simply stood on the back of the horse, paused and waved to those he could not see but who he knew would be watching. Lord Suffolk watched him through binoculars, saw the young man wave, both arms up and swaying.
 
-When he talked like that she hated him, her eyes remaining polite, her mind wanting to slap him. She always had the desire to slap him, and she realized even that was sexual. For him all relationships fell into patterns. You fell into propin¬quity or distance. Just as, for him, the histories in Herodotus clarified all societies. He assumed he was experienced in the ways of the world he had essentially left years earlier, strug¬gling ever since to explore a half-invented world of the desert.
+Then he descended, down into the giant white chalk horse of Westbury, into the whiteness of the horse, carved into the hill. Now he was a black figure, the background radicalizing the darkness of his skin and his khaki uniform. If the focus on the binoculars was exact, Lord Suffolk would see the thin line of crimson lanyard on Singh’s shoulder that signalled his sapper unit. To them it would look like he was striding down a paper map cut out in the shape of an animal. But Singh was conscious only of his boots scuffing the rough white chalk as he moved down the slope.
 
-At Cairo aerodrome they loaded the equipment into the vehicles, her husband staying on to check the petrol lines of the Moth before the three men left the next morning. Madox went off to one of the embassies to send a wire. And he was going into town to get drunk, the usual final evening in
+Miss Morden, behind him, was also coming slowly down the hill, a satchel over her shoulder, aiding herself with a rolled umbrella. She stopped ten feet above the horse, un¬furled the umbrella and sat within its shade. Then she opened up her notebooks.
 
-Cairo, first at Madame Badin’s Opera Casino, and later to disappear into the streets behind the Pasha Hotel. He would pack before the evening began, which would allow him to just climb into the truck the next morning, hung over.
+“Can you hear me?” he asked.
 
-So he drove her into town, the air humid, the traffic bad and slow because of the hour.
+“Yes, it’s fine.” She rubbed the chalk off her hands onto her skirt and adjusted her glasses. She looked up into the distance and, as Singh had done, waved to those she could not see.
 
-“It’s so hot. I need a beer. Do you want one?”
+Singh liked her. She was in effect the first Englishwoman he had really spoken with since he arrived in England. Most of his time had been spent in a barracks at Woolwich. In his three months there he had met only other Indians and English officers. A woman would reply to a question in the NAAFI canteen, but conversations with women lasted only two or three sentences.
 
-“No, I have to arrange for a lot of things in the next couple of hours. You’ll have to excuse me.” “That’s all right,” she said. “I don’t want to interfere.”
+第97页共162页 http://www.en8848.com.cn/ 原版英语阅读网
 
-“I’ll have one with you when I come back.”
+￼￼￼He was the second son. The oldest son would go into the army, the next brother would be a doctor, a brother after that would become a businessman. An old tradition in his family. But all that had changed with the war. He joined a Sikh regiment and was shipped to England. After the first months in London he had volunteered himself into a unit of engineers that had been set up to deal with delayed-action and unex-ploded bombs. The word from on high in 1939 was naive: “Unexploded bombs are considered the responsibility of the Home Office, who are agreed that they should be collected by A.R.P. wardens and police and delivered to convenient dumps, where mem¬bers of the armed forces will in due course detonate them.”
 
-“In three weeks, right?”
+It was not until 1940 that the War Office took over respon¬sibility for bomb disposal, and then, in turn, handed it over to the Royal Engineers. Twenty-five bomb disposal units were set up. They lacked technical equipment and had in their possession only hammers, chisels and road-mending tools. There were no specialists.
 
-“About that.”
+A bomb is a combination of the following parts: 1. A container or bomb case.
 
-“I wish I were going too.”
+2. Afuze.
 
-He said nothing in answer to that. They crossed the Bulaq Bridge and the traffic got worse. Too many carts, too many pedestrians who owned the streets. He cut south along the Nile towards the Semiramis Hotel, where she was staying, just beyond the barracks.
+3. An initiating charge, or gaine.
 
-“You’re going to find Zerzura this time, aren’t you.”
+4. A main charge of high explosive.
 
-第80页共162页 http://www.en8848.com.cn/ 原版英语阅读网
+5. Superstructionalfittings—fins, lifting lugs, kopfrings, etc.
 
-￼￼￼“I’m going to find it this time.”
+Eighty percent of bombs dropped by airplanes over Britain were thin-walled, general-purpose bombs. They usually ranged from a hundred pounds to a thousand. A 2,ooo-pound bomb was called a “Hermann” or an “Esau.” A 4,ooo-pound bomb was called a “Satan.”
 
-He was like his old self. He hardly looked at her on the drive, even when they were stalled for more than five minutes in one spot.
+Singh, after long days of training, would fall asleep with diagrams and charts still in his hands. Half dreaming, he entered the maze of a cylinder alongside the picric acid and the gaine and the condensers until he reached the fuze deep within the main body. Then he was suddenly awake.
 
-At the hotel he was excessively polite. When he behaved this way she liked him even less; they all had to pretend this pose was courtesy, graciousness. It reminded her of a dog in clothes. To hell with him. If her husband didn’t have to work with him she would prefer not to see him again.
+When a bomb hit a target, the resistance caused a trembler to activate and ignite the flash pellet in the fuze. The minute explosion would leap into the gaine, causing the penthrite wax to detonate. This set off the picric acid, which in turn caused the main filling of TNT, amatol and aluminized powder, to explode. The journey from trembler to explosion lasted a microsecond.
 
-He pulled her pack out of the rear and was about to carry it into the lobby.
+The most dangerous bombs were those dropped from low altitudes, which were not activated until they had landed. These unexploded bombs buried themselves in cities and fields and remained dormant until their trembler contacts were disturbed—by a farmer’s stick, a car wheel’s nudge, the bounce of a tennis ball against the casing—and then they would explode.
 
-“Here, I can take that.” Her shirt was damp at the back when she got out of the passenger seat.
+第98页共162页 http://www.en8848.com.cn/ 原版英语阅读网
 
-The doorman offered to take the pack, but he said, “No, she wants to carry it,” and she was angry again at his assump¬tion. The doorman left them. She turned to him and he passed her the bag so she was facing him, both hands awkwardly carrying the heavy case in front of her.
-
-“So. Good-bye. Good luck.”
-
-“Yes. I’ll look after them all. They’ll be safe.”
-
-She nodded. She was in shadow, and he, as if unaware of the harsh sunlight, stood in it.
-
-Then he came up to her, closer, and she thought for a moment he was going to embrace her. Instead he put his right arm forward and drew it in a gesture across her bare neck so her skin was touched by the whole length of his\damp forearm.
-
-“Good-bye.”
-
-He walked back to the truck. She could feel his sweat now, like blood left by a blade which the gesture of his arm seemed to have imitated.
-
-She picks up a cushion and places it onto her lap as a shield against him. “If you make love to me I won’t lie about it. If I make love to you I won’t lie about it.”
-
-She moves the cushion against her heart, as if she would suffocate that part of herself which has broken free. “What do you hate most?” he asks.
-
-“A lie. And you?”
-
-第81页共162页 http://www.en8848.com.cn/ 原版英语阅读网
-
-￼￼￼“Ownership,” he says. “When you leave me, forget me.”
-
-Her fist swings towards him and hits hard into the bone just below his eye. She dresses and leaves.
-
-Each day he would return home and look at the black bruise in the mirror. He became curious, not so much about the bruise, but about the shape of his face. The long eyebrows he had never really noticed before, the beginning of grey in his sandy hair. He had not looked at himself like this in a mirror for years. That was a long eyebrow.
-
-Nothing can keep him from her.
-
-When he is not in the desert with Madox or with Bermann in the Arab libraries, he meets her in Groppi Park— beside the heavily watered plum gardens. She is happiest here. She is a woman who misses moisture, who has always loved low green hedges and ferns. While for him this much greenery feels like a carnival.
+￼￼￼Singh was moved by lorry with the other volunteers to the research department in Woolwich. This was a time when the casualty rate in bomb disposal units was appallingly high, con¬sidering how few unexploded bombs there were. In 1940, after France had fallen and Britain was in a state of siege, it got worse.
 

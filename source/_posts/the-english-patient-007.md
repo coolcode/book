@@ -1,109 +1,127 @@
 title: The English Patient 007
-date: 2015-01-24 15:44:27
+date: 2015-01-25 03:46:09
 tags: the-english-patient
 ---
 
-She was not still or asleep. With each shudder her head shook over the table.
+第27页共162页 http://www.en8848.com.cn/ 原版英语阅读网
 
-Caravaggio stood there. Those who weep lose more energy than they lose during any other act. It was not yet dawn. Her face against the darkness of the table wood.
+￼￼￼the fragility of his limbs. She would lay belladonna over his eyes, give him saline baths for the keloided skin and extensive burns. She was told the hospital was unsafe—the nunnery that had been for months a German defence, barraged with shells and flares by the Allies. Nothing would be left for her, there would be no safety from brigands.
 
-“Hana,” he said, and she stilled herself as if she could be camouflaged by stillness. “Hana.”
+She still refused to leave, got out of her nurse’s uniform, unbundled the brown print frock she had carried for months, and wore that with her tennis shoes. She stepped away from the war. She had moved back and forth at their desire. Till the nuns reclaimed it she would sit in this villa with the Englishman. There was something about him she wanted to learn, grow into, and hide in, where she could turn away from being an adult. There was some little waltz in the way he spoke to her and the way he thought. She wanted to save him, this nameless, almost faceless man who had been one of the two hundred or so placed in her care during the invasion north.
 
-She began to moan so the sound would be a barrier between them, a river across which she could not be reached.
+In her print dress she walked away from the celebration. She went into the room she shared with the other nurses and sat down. Something flickered in her eye as she sat, and she caught the eye of a small round mirror. She got up slowly and went towards it. It was very small but even so seemed a lux¬ury. She had refused to look at herself for more than a year, now and then just her shadow on walls. The mirror revealed only her cheek, she had to move it back to arm’s length, her hand wavering. She watched the little portrait of herself as if within a clasped brooch. She. Through the window there was the sound of the patients being brought out into the sunlight in their chairs, laughing and cheering with the staff. Only those who were seriously ill were still indoors. She smiled at that. Hi Buddy, she said. She peered into her look, trying to recognize herself.
 
-He was uncertain at first about touching her in her naked¬ness, said “Hana,” and then lay his bandaged hand on her shoulder. She did not stop shaking. The deepest sorrow, he thought. Where the only way to survive is to
+Darkness between Hana and Caravaggio as they walk in the garden. Now he begins to talk in his familiar slow drawl.
 
-第23页共162页 http://www.en8848.com.cn/ 原版英语阅读网
+“It was someone’s birthday party late at night on Danforth Avenue. The Night Crawler restaurant. Do you remember, Hana? Everyone had to stand and sing a song. Your father, me, Giannetta, friends, and you said you wanted to as well— for the first time. You were still at school then, and you had learned the song in a French class.
 
-￼￼￼excavate every¬thing.
+“You did it formally, stood on the bench and then one more step up onto the wooden table between the plates and the candles burning.
 
-She raised herself, her head down still, then stood up against him as if dragging herself away from the magnet of the table.
+“ ‘Alonson fon!’
 
-“Don't touch me if you're going to try and fuck me.”
+“You sang out, your left hand to your heart. Alonson fon! Half the people there didn’t know what the hell you were singing, and maybe you didn’t know what the exact words meant, but you knew what the song was about.
 
-The skin pale above her skirt, which was all she wore in this kitchen, as if she had risen from the bed, dressed partially and come out here, the cool air from the hills entering the kitchen doorway and cloaking her. Her face was red and wet.
+“The breeze from the window was swaying your skirt over so it almost touched a candle, and your ankles seemed fire-white in the bar. Your father’s eyes looking up at you, mi¬raculous with this new language, the cause pouring out so distinct, flawless, no hesitations, and the candles swerving away, not touching your dress but almost touching. We stood up at the end and you walked off the table into his arms.”
 
-“Hana.”
+第28页共162页 http://www.en8848.com.cn/ 原版英语阅读网
 
-“Do you understand?”
+￼￼￼“I would remove those bandages on your hands. I am a nurse, you know.” “They’re comfortable. Like gloves.” “How did this happen.”
 
-“Why do you adore him so much?”
+“I was caught jumping from a woman’s window. That woman I told you about, who took the photograph. Not her fault.”
 
-“I love him.”
+She grips his arm, kneading the muscle. “Let me do it.” She pulls the bandaged hands out of his coat pockets. She has seen them grey in daylight, but in this light they are almost luminous.
 
-“You don't love him, you adore him.”
+As she loosens the bandages he steps backwards, the white coming out of his arms as if he were a magician, till he is free of them. She walks towards the uncle from childhood, sees his eyes hoping to catch hers to postpone this, so she looks at nothing but his eyes.
 
-“Go away, Caravaggio. Please.”
+His hands held together like a human bowl. She reaches for them while her face goes up to his cheek, then nestles in his neck. What she holds seems firm, healed.
 
-“You've tied yourself to a corpse for some reason.”
+“I tell you I had to negotiate for what they left me.”
 
-“He is a saint. I think. A despairing saint. Are there such things? Our desire is to protect them.” “He doesn't even care!”
+“How did you do that?”
 
-“I can love him.”
+“All those skills I used to have.”
 
-“A twenty-year-old who throws herself out of the world to love a ghost!”
+“Oh, I remember. No, don’t move. Don’t drift away from me.” “It is a strange time, the end of a war.”
 
-Caravaggio paused. “You have to protect yourself from sad¬ness. Sadness is very close to hate. Let me tell you this. This is the thing I learned. If you take in someone else's poison— thinking you can cure them by sharing it —you will instead store it within you. Those men in the desert were smarter than you. They assumed he could be useful. So they saved him, but when he was no longer useful they left him.”
+“Yes. A period of adjustment.”
 
-“Leave me alone.”
+“Yes.”
 
-When she is solitary she will sit, aware of the nerve at her ankle, damp from the long grasses of the orchard. She
+He raises his hands up as if to cup the quarter-moon. “They removed both thumbs, Hana. See.”
 
-第24页共162页 http://www.en8848.com.cn/ 原版英语阅读网
+He holds his hands in front of her. Showing her directly what she has glimpsed. He turns one hand over as if to reveal that it is no trick, that what looks like a gill is where the thumb has been cut away. He moves the hand towards her blouse.
 
-￼￼￼peels a plum from the orchard that she has found and carried in the dark cotton pocket of her dress. When she is solitary she tries to imagine who might come along the old road under the green hood of the eighteen cypress trees.
+She feels the cloth lift in the area below her shoulder as he holds it with two fingers and tugs it softly towards
 
-As the Englishman wakes she bends over his body and places a third of the plum into his mouth. His open mouth holds it, like water, the jaw not moving. He looks as if he will cry from this pleasure. She can sense the plum being swallowed.
+第29页共162页 http://www.en8848.com.cn/ 原版英语阅读网
 
-He brings his hand up and wipes from his lip the last drib¬ble, which his tongue cannot reach, and puts his finger in his mouth to suck it. Let me tell you about plums, he says. When I was a boy...
+￼￼￼him.
 
-After the first nights, after most of the beds had been burned for fuel against the cold, she had taken a dead man’s hammock and begun to use it. She would bang spikes into whatever walls she desired, whichever room she wanted to wake in, floating above all the filth and cordite and water on the floors, the rats that had started to appear coming down from the third storey. Each night she climbed into the khaki ghostline of hammock she had taken from a dead soldier, someone who had died under her care.
+“I touch cotton like this.”
 
-A pair of tennis shoes and a hammock. What she had taken from others in this war. She would wake under the slide of moonlight on the ceiling, wrapped in an old shirt she always slept in, her dress hanging on a nail by the door. There was more heat now, and she could sleep this way. Before, when it had been cold, they had had to burn things.
+“When I was a child I thought of you always as the Scarlet Pimpernel, and in my dreams I stepped onto the night roofs with you. You came home with cold meals in your pockets, pencil cases, sheet music off some Forest Hill piano for me.”
 
-Her hammock and her shoes and her frock. She was secure in the miniature world she had built; the two other men seemed distant planets, each in his own sphere of memory and solitude. Caravaggio, who had been her father’s gregarious friend in Canada, in those days was capable of standing still and causing havoc within the caravan of women he seemed to give himself over to. He now lay in his darkness. He had been a thief who refused to work with men, because he did not trust them, who talked with men but who preferred talking to women and when he began talking to women was soon caught in the nets of relationship. When she would sneak home in the early hours of the morning she would find him asleep on her father’s armchair, exhausted from professional or personal robberies.
+She speaks into the darkness of his face, a shadow of leaves washing over his mouth like a rich woman’s lace. “You like women, don’t you? You liked them.”
 
-She thought about Caravaggio—some people you just had to embrace, in some way or another, had to bite into the muscle, to remain sane in their company. You needed to grab their hair and clutch it like a drowner so they would pull you into their midst. Otherwise they, walking casually down the street towards you, almost about to wave, would leap over a wall and be gone for months. As an uncle he had been a disappearer.
+“I like them. Why the past tense?”
 
-Caravaggio would disturb you by simply enfolding you in his arms, his wings. With him you were embraced by character. But now he lay in darkness, like her, in some outpost of the large house. So there was Caravaggio. And there was the desert Englishman.
+“It seems unimportant now, with the war and such things.” He nods and the pattern of leaves rolls off him.
 
-Throughout the war, with all of her worst patients, she survived by keeping a coldness hidden in her role as
+“You used to be like those artists who painted only at night, a single light on in their street. Like the worm- pickers with their old coffee cans strapped to their ankles and the helmet of light shooting down into the grass. All over the city parks. You took me to that place, that cafe” where they sold them. It was like the stock exchange, you said, where the price of worms kept dropping and rising, five cents, ten cents. People were ruined or made fortunes. Do you remember?”
 
-第25页共162页 http://www.en8848.com.cn/ 原版英语阅读网
+“Yes.”
 
-￼￼￼nurse. I will survive this. I won’t fall apart at this. These were buried sentences all through her war, all through the towns they crept towards and through, Urbino, Anghiari, Monterchi, until they entered Florence and then went farther and finally reached the other sea near Pisa.
+“Walk back with me, it’s getting cold.”
 
-In the Pisa hospital she had seen the English patient for the first time. A man with no face. An ebony pool. All identifica¬tion consumed in a fire. Parts of his burned body and face had been sprayed with tannic acid, that hardened into a protective shell over his raw skin. The area around his eyes was coated with a thick layer of gentian violet. There was nothing to recognize in him.
+“The great pickpockets are born with the second and third fingers almost the same length. They do not need to go as deep into a pocket. The great distance of half an inch!”
 
-Sometimes she collects several blankets and lies under them, enjoying them more for their weight than for the warmth they bring. And when moonlight slides onto the ceil¬ing it wakes her, and she lies in the hammock, her mind skating. She finds rest as opposed to sleep the truly pleasurable state. If she were a writer she would collect her pencils and
+They move towards the house, under the trees.
 
-notebooks and favourite cat and write in bed. Strangers and lovers would never get past the locked door.
+“Who did that to you?”
 
-To rest was to receive all aspects of the world without judge¬ment. A bath in the sea, a fuck with a soldier who never knew your name. Tenderness towards the unknown and anony¬mous, which was a tenderness to the self.
+“They found a woman to do it. They thought it was more trenchant. They brought in one of their nurses. My wrists handcuffed to the table legs. When they cut off my thumbs my hands slipped out of them without any power. Like a wish in a dream. But the man who called her in, he was really in charge—he was the one. Ranuccio Tommasoni. She was an innocent, knew nothing abou^me, my name or nationality or what I may have done.”
 
-Her legs move under the burden of military blankets. She swims in their wool as the English patient moved in his cloth placenta.
+When they came into the house the English patient was shouting. Hana let go of Caravaggio and he watched her
 
-What she misses here is slow twilight, the sound of familiar trees. All through her youth in Toronto she learned to read the summer night. It was where she could be herself, lying in a bed, stepping onto a fire escape half asleep with a cat in her arms.
+第30页共162页 http://www.en8848.com.cn/ 原版英语阅读网
 
-In her childhood her classroom had been Caravaggio. He had taught her the somersault. Now, with his hands always in his pockets, he just gestures with his shoulders. Who knew what country the war had made him live in. She herself had been trained at Women’s College Hospital and then sent over¬seas during the Sicilian invasion. That was in 1943. The First Canadian Infantry Division worked its way up Italy, and the destroyed bodies were fed back to the field hospitals like mud passed back by tunnellers in the dark. After the battle of Arezzo, when the first barrage of troops recoiled, she was surrounded day and night by their wounds. After three full days without rest, she finally lay down on the floor beside a mattress where someone lay dead, and slept for twelve hours, closing her eyes against the world around her.
+￼￼￼run up the stairs, her tennis shoes flashing as she ascended and wheeled around with the banister.
 
-When she woke, she picked up a pair of scissors out of the porcelain bowl, leaned over and began to cut her hair, not concerned with shape or length, just cutting it away—the irritation of its presence during the previous days still in her mind—when she had bent forward and her hair had touched blood in a wound. She would have nothing to link her, to lock her, to death. She gripped what was left to make sure there were no more strands and turned again to face the rooms full of the wounded.
+The voice filled the halls. Caravaggio walked into the kitchen, tore off a section of bread and followed Hana up the stairs. As he walked towards the room the shouts became more frantic. When he stepped into the bedroom the Englishman was staring at a dog—the dog’s head angled back as if stunned by the screaming. Hana looked over to Caravaggio and grinned.
 
-第26页共162页 http://www.en8848.com.cn/ 原版英语阅读网
+“I haven’t seen a dog for years. All through the war I saw no dog.”
 
-￼￼￼She never looked at herself in mirrors again. As the war got darker she received reports about how certain people she had known had died. She feared the day she would remove blood from a patient’s face and discover her father or someone who had served her food across a counter on Danforth Avenue. She grew harsh with herself and the patients. Reason was the only thing that might save them, and there was no reason. The thermometer of blood moved up the country. Where was and what was Toronto anymore in her mind? This was treacherous opera. People hardened against those around them—soldiers, doctors, nurses, civilians. Hana bent closer to the wounds she cared for, her mouth whispering to soldiers.
+She crouched and hugged the animal, smelling its hair and the odour of hill grasses within it. She steered the dog towards Caravaggio, who was offering it the heel of bread. The En¬glishman saw Caravaggio then and his jaw dropped. It must have seemed to him that the dog—now blocked by Hana’s back —had turned into a man. Caravaggio collected the dog in his arms and left the room.
 
-She called everyone “Buddy,” and laughed at the song that had the lines Each time I chanced to see Franklin D.
+I have been thinking, the English patient said, that this must be Poliziano’s room. This must have been his villa we are in. It is the water coming out of that wall, that ancient fountain. It is a famous room. They all met here.
 
-He always said “Hi, Buddy” to me.
+It was a hospital, she said quietly. Before that, long before that a nunnery. Then armies took it over.
 
-She swabbed arms that kept bleeding. She removed so many pieces of shrapnel she felt she’d transported a ton of metal out of the huge body of the human that she was caring for while the army travelled north. One night when one of the patients died she ignored all rules and took the pair of tennis shoes he had with him in his pack and put them on. They were slightly too big for her but she was comfortable.
+I think this was the Villa Bruscoli. Poliziano—the great protege of Lorenzo. I’m talking about 1483. In Florence, in Santa Trinita Church, you can see the painting of the Med-icis with Poliziano in the foreground, wearing a red cloak. Brilliant, awful man. A genius who worked his way up into society.
 
-Her face became tougher and leaner, the face Caravaggio would meet later. She was thin, mostly from tiredness. She was always hungry and found it a furious exhaustion to feed a patient who couldn’t eat or didn’t want to, watching the bread crumble away, the soup cool, which she desired to swallow fast. She wanted nothing exotic, just bread, meat. One of the towns had a bread-making section attached to the hospital and in her free time she moved among the bakers, inhaling the dust and the promise of food. Later, when they were east of Rome, someone gave her a gift of a Jerusalem artichoke.
+It was long past midnight and he was wide awake again.
 
-It was strange sleeping in the basilicas, or monasteries, or wherever the wounded were billeted, always moving north. She broke the small cardboard flag off the foot of the bed when someone died, so that orderlies would know glancing from a distance. Then she would leave the thick-stoned building and walk outside into spring or winter or summer, seasons that seemed archaic, that sat like old gentlemen throughout the war. She would step outside whatever the weather. She wanted air that smelled of nothing human, wanted moonlight even if it came with a rainstorm.
+Okay, tell me, she thought, take me somewhere. Her mind still upon Caravaggio’s hands. Caravaggio, who was by now probably feeding the stray dog something from the kitchen of the Villa Bruscoli, if that was what its name was.
 
-Hello Buddy, good-bye Buddy. Caring was brief. There was a contract only until death. Nothing in her spirit or past had taught her to be a nurse. But cutting her hair was a contract, and it lasted until they were bivouacked in the Villa San Gi-rolamo north of Florence. Here there were four other nurses, two doctors, one hundred patients. The war in Italy moved farther north and they were what had been left behind.
+It was a bloody life. Daggers and politics and three-decker hats and colonial padded stockings and wigs. Wigs of silk! Of course Savonarola came later, not much later, and there was his Bonfire of the Vanities. Poliziano translated Homer. He wrote a great poem on Simonetta Vespucci, you know her?
 
-Then, during the celebrations of some local victory, some¬what plaintive in this hill town, she had said she was not going back to Florence or Rome or any other hospital, her war was over. She would remain with the one burned man they called “the English patient,” who, it was now clear to her, should never be moved because of
+No, said Hana, laughing.
+
+Paintings of her all over Florence. Died of consumption at twenty-three. He made her famous with Le Stanze per la Gios-tra and then Botticelli painted scenes from it. Leonardo painted scenes from it. Poliziano would lecture every day for two hours in Latin in the morning, two hours in Greek in the afternoon. He had a friend called Pico della Mirandola, a wild socialite who suddenly converted and joined Savonarola.
+
+That was my nickname when I was a kid. Pico.
+
+第31页共162页 http://www.en8848.com.cn/ 原版英语阅读网
+
+￼￼￼Yes, I think a lot happened here. This fountain in the wall. Pico and Lorenzo and Poliziano and the young Michelangelo. They held in each hand the new world and the old world. The library hunted down the last four books of Cicero. They im¬ported a giraffe, a rhinoceros, a dodo. Toscanelli drew maps of the world based on correspondence with merchants. They sat in this room with a bust of Plato and argued all night.
+
+And then came Savonarola’s cry out of the streets: “Repen¬tance! The deluge is coming!” And everything was swept away —free will, the desire to be elegant, fame, the right to worship Plato as well as Christ. Now came the bonfires—the burning of wigs, books, animal hides, maps. More than four hundred years later they opened up the graves. Pico’s bones were pre¬served. Poliziano’s had crumbled into dust.
+
+Hana listened as the Englishman turned the pages of his commonplace book and read the information glued in from other books—about great maps lost in the bonfires and the burning of Plato’s statue, whose marble exfoliated in the heat, the cracks across wisdom like precise reports across the valley as Poliziano stood on the grass hills smelling the future. Pico down there somewhere as well, in his grey cell, watching everything with the third eye of salvation.
+
+He poured some water into a bowl for the dog. An old mongrel, older than the war.
+
+He sat down with the carafe of wine the monks from the monastery had given Hana. It was Hana’s house and he moved carefully, rearranging nothing. He noticed her civilisation in the small wildflowers, the small gifts to herself. Even in the overgrown garden he would come across a square foot of grass snipped down with her nurse’s scissors. If he had been a younger man he would have fallen in love with this.
+
+He was no longer young. How did she see him? With his wounds, his unbalance, the grey curls at the back of his neck. He had never imagined himself to be a man with a sense of age and wisdom. They had all grown older, but he still did not feel he had wisdom to go with his aging.
 

@@ -1,103 +1,53 @@
 title: The Autobiography of Benjamin Franklin 028
-date: 2015-01-24 15:44:07
+date: 2015-01-25 03:45:49
 tags: the-autobiography-of-benjamin-franklin
 ---
 
-The British government, not chusing to permit the union of the colo- nies as propos’d at Albany, and to trust that union with their defense, lest they should thereby grow too military, and feel their own strength, suspi- cions and jealousies at this time being entertain’d of them, sent over Gen- eral Braddock with two regiments of regular English troops for that pur- pose. He landed at Alexandria, in Virginia, and thence march’d to Frederictown, in Maryland, where he halted for carriages. Our Assembly apprehending, from some information, that he had conceived violent prejudices against them, as averse to the service, wish’d me to wait upon him, not as from them, but as postmaster-general, under the guise of proposing to settle with him the mode of conducting with most celerity and certainty the despatches between him and the governors of the sev- eral provinces, with whom he must necessarily have continual correspon- dence, and of which they propos’d to pay the expense. My son accompa- nied me on this journey.
+The Assembly finally finding the proprietary obstinately persisted in manacling their deputies with instructions inconsistent not only with the privileges of the people, but with the service of the crown, resolv’d to petition the king against them, and appointed me their agent to go over to England, to present and support the petition.* The House had sent up a bill to the governor, granting a sum of sixty thousand pounds for the king’s use (ten thousand pounds of which was subjected to the orders of the then general, Lord Loudoun), which the governor absolutely refus’d to pass, in compliance with his instructions.
 
-112
+I had agreed with Captain Morris, of the paquet at New York, for my passage, and my stores were put on board, when Lord Loudoun arriv’d at Philadelphia, expressly, as he told me, to endeavor an accommodation between the governor and Assembly, that his majesty’s service might not be obstructed by their dissensions. Accordingly, he desir’d the governor and myself to meet him, that he might hear what was to be said on both sides. We met and discuss’d the business. In behalf of the Assembly, I
 
-The Autobiography of Benjamin Franklin
+* The many unanimous resolves of the Assembly—what date?—marg. note. 131
 
-We found the general at Frederictown, waiting impatiently for the re- turn of those he had sent thro’ the back parts of Maryland and Virginia to collect waggons. I stayed with him several days, din’d with him daily, and had full opportunity of removing all his prejudices, by the information of what the Assembly had before his arrival actually done, and were still willing to do, to facilitate his operations. When I was about to depart, the returns of waggons to be obtained were brought in, by which it appear’d that they amounted only to twenty-five, and not all of those were in serviceable condition. The general and all the officers were surpris’d, declar’d the expedition was then at an end, being impossible, and exclaim’d against the ministers for ignorantly landing them in a country destitute of the means of conveying their stores, baggage, etc., not less than one hundred and fifty waggons being necessary.
+￼The Autobiography of Benjamin Franklin
 
-I happened to say I thought it was a pity they had not been landed rather in Pennsylvania, as in that country almost every farmer had his waggon. The general eagerly laid hold of my words, and said, “Then you, sir, who are a man of interest there, can probably procure them for us; and I beg you will undertake it.” I ask’d what terms were to be offer’d the owners of the waggons; and I was desir’d to put on paper the terms that appeared to me necessary. This I did, and they were agreed to, and a commission and instructions accordingly prepar’d immediately. What those terms were will appear in the advertisement I publish’d as soon as I arriv’d at Lancaster, which being, from the great and sudden effect it produc’d, a piece of some curiosity, I shall insert it at length, as follows:
+urg’d all the various arguments that may be found in the public papers of that time, which were of my writing, and are printed with the minutes of the Assembly; and the governor pleaded his instructions; the bond he had given to observe them, and his ruin if he disobey’d, yet seemed not un- willing to hazard himself if Lord Loudoun would advise it. This his lord- ship did not chuse to do, though I once thought I had nearly prevail’d with him to do it; but finally he rather chose to urge the compliance of the Assembly; and he entreated me to use my endeavours with them for that purpose, declaring that he would spare none of the king’s troops for the defense of our frontiers, and that, if we did not continue to provide for that defense ourselves, they must remain expos’d to the enemy.
 
-“ADVERTISEMENT. “LANCASTER, April 26, 1755.
+I acquainted the House with what had pass’d, and, presenting them with a set of resolutions I had drawn up, declaring our rights, and that we did not relinquish our claim to those rights, but only suspended the exer- cise of them on this occasion thro’ force, against which we protested, they at length agreed to drop that bill, and frame another conformable to the proprietary instructions. This of course the governor pass’d, and I was then at liberty to proceed on my voyage. But, in the meantime, the paquet had sailed with my sea-stores, which was some loss to me, and my only recompense was his lordship’s thanks for my service, all the credit of ob- taining the accommodation falling to his share.
 
-“Whereas, one hundred and fifty waggons, with four horses to each waggon, and fifteen hundred saddle or pack horses, are wanted for the service of his majesty’s forces now about to rendezvous at Will’s Creek, and his excellency General Braddock having been pleased to empower me to contract for the hire of the same, I hereby give notice that I shall attend for that purpose at Lancaster from this day to next Wednesday evening, and at York from next Thursday morning till Friday evening, where I shall be ready to agree for waggons and teams, or single horses, on the following terms, viz.: I. That there shall be paid for each waggon, with four good horses and a driver, fifteen shillings per diem; and for each able horse with a pack-saddle, or other saddle and furniture, two shillings per diem; and for each able horse without a saddle, eighteen
+He set out for New York before me; and, as the time for dispatching the paquet-boats was at his disposition, and there were two then remain- ing there, one of which, he said, was to sail very soon, I requested to know the precise time, that I might not miss her by any delay of mine. His answer was, “I have given out that she is to sail on Saturday next; but I may let you know, entre nous, that if you are there by Monday morning, you will be in time, but do not delay longer.” By some accidental hinder- ance at a ferry, it was Monday noon before I arrived, and I was much afraid she might have sailed, as the wind was fair; but I was soon made easy by the information that she was still in the harbor, and would not move till the next day. One would imagine that I was now on the very point of departing for Europe. I thought so; but I was not then so well acquainted with his lordship’s character, of which indecision was one of the strongest features. I shall give some instances. It was about the begin- ning of April that I came to New York, and I think it was near the end of June before we sail’d. There were then two of the paquet-boats, which had been long in port, but were detained for the general’s letters, which were always to be ready to-morrow. Another paquet arriv’d; she too was detain’d; and, before we sail’d, a fourth was expected. Ours was the first to
 
-113
-
-The Autobiography of Benjamin Franklin
-
-pence per diem. 2. That the pay commence from the time of their joining the forces at Will’s Creek, which must be on or before the 20th of May ensuing, and that a reasonable allowance be paid over and above for the time necessary for their travelling to Will’s Creek and home again after their discharge. 3. Each waggon and team,
-
-and every saddle or pack horse, is to be valued by indifferent persons chosen between me and the owner; and in case of the loss of any waggon, team, or other horse in the service, the price according to such valuation is to be allowed and paid. 4. Seven days’ pay is to be advanced and paid in hand by me to the owner of each waggon and team, or horse, at the time of contracting, if required, and the remainder to be paid by General Braddock, or by the paymaster of the army, at the time of their discharge, or from time to time, as it shall be demanded. 5. No drivers of waggons, or persons taking care of the hired horses, are on any account to be called upon to do the duty of soldiers, or be otherwise employed than in con- ducting or taking care of their carriages or horses. 6. All oats, Indian corn, or other forage that waggons or horses bring to the camp, more than is necessary for the subsistence of the horses, is to be taken for the use of the army, and a reasonable price paid for the same.
-
-“Note.—My son, William Franklin, is empowered to enter into like con- tracts with any person in Cumberland county.
-
-“B. FRANKLIN.”
-
-“To the inhabitants of the Counties of Lancaster, York and Cumberland.
-
-“Friends and Countrymen,
-
-“Being occasionally at the camp at Frederic a few days since, I found
-
-the general and officers extremely exasperated on account of their not being supplied with horses and carriages, which had been expected from this province, as most able to furnish them; but, through the dissensions between our governor and Assembly, money had not been provided, nor any steps taken for that purpose.
-
-“It was proposed to send an armed force immediately into these coun- ties, to seize as many of the best carriages and horses as should be wanted, and compel as many persons into the service as would be necessary to drive and take care of them.
-
-“I apprehended that the progress of British soldiers through these coun- ties on such an occasion, especially considering the temper they are in,
-
-114
+132
 
 The Autobiography of Benjamin Franklin
 
-and their resentment against us, would be attended with many and great inconveniences to the inhabitants, and therefore more willingly took the trouble of trying first what might be done by fair and equitable means. The people of these back counties have lately complained to the Assem- bly that a sufficient currency was wanting; you have an opportunity of receiving and dividing
+be dispatch’d, as having been there longest. Passengers were engag’d in all, and some extremely impatient to be gone, and the merchants uneasy about their letters, and the orders they had given for insurance (it being war time) for fall goods! but their anxiety avail’d nothing; his lordship’s letters were not ready; and yet whoever waited on him found him always at his desk, pen in hand, and concluded he must needs write abundantly.
 
-among you a very considerable sum; for, if the service of this expedition should continue, as it is more than probable it will, for one hundred and twenty days, the hire of these waggons and horses will amount to upward of thirty thousand pounds, which will be paid you in silver and gold of the king’s money.
+Going myself one morning to pay my respects, I found in his ante- chamber one Innis, a messenger of Philadelphia, who had come from thence express with a paquet from Governor Denny for the General. He delivered to me some letters from my friends there, which occasion’d my inquiring when he was to return, and where be lodg’d, that I might send some letters by him. He told me he was order’d to call to-morrow at nine for the general’s answer to the governor, and should set off immediately. I put my letters into his hands the same day. A fortnight after I met him again in the same place. “So, you are soon return’d, Innis?” “Returned! no, I am not gone yet.” “How so?” “I have called here by order every morning these two weeks past for his lordship’s letter, and it is not yet ready.” “Is it possible, when he is so great a writer? for I see him con- stantly at his escritoire.” “Yes,” says Innis, “but he is like St. George on the signs, always on horseback, and never rides on!” This observation of the messenger was, it seems, well founded; for, when in England, I under- stood that Mr. Pitt gave it as one reason for removing this general, and sending Generals Amherst and Wolfe, that the minister never heard from him, and could not know what he was doing.
 
-“The service will be light and easy, for the army will scarce march above twelve miles per day, and the waggons and baggage-horses, as they carry those things that are absolutely necessary to the welfare of the army, must march with the army, and no faster; and are, for the army’s sake, always placed where they can be most secure, whether in a march or in a camp.
+This daily expectation of sailing, and all the three paquets going down to Sandy Hook, to join the fleet there, the passengers thought it best to be on board, lest by a sudden order the ships should sail, and they be left behind. There, if I remember right, we were about six weeks, consuming our sea-stores, and oblig’d to procure more. At length the fleet sail’d, the General and all his army on board, bound to Louisburg, with intent to besiege and take that fortress; all the paquet-boats in company ordered to attend the General’s ship, ready to receive his dispatches when they should be ready. We were out five days before we got a letter with leave to part, and then our ship quitted the fleet and steered for England. The other two paquets he still detained, carried them with him to Halifax, where he stayed some time to exercise the men in sham attacks upon sham forts, then alter’d his mind as to besieging Louisburg, and return’d to New York, with all his troops, together with the two paquets above mentioned, and all their passengers! During his absence the French and savages had taken Fort George, on the frontier of that province, and the savages had massa-
 
-“If you are really, as I believe you are, good and loyal subjects to his majesty, you may now do a most acceptable service, and make it easy to yourselves; for three or four of such as can not separately spare from the business of their plantations a waggon and four horses and a driver, may do it together, one furnishing the waggon, another one or two horses, and another the driver, and divide the pay proportionately between you; but if you do not this service to your king and country voluntarily, when such good pay and reasonable terms are offered to you, your loyalty will be strongly suspected. The king’s business must be done; so many brave troops, come so far for your defense, must not stand idle through your backwardness to do what may be reasonably expected from you; waggons and horses must be had; violent measures will probably be used, and you will be left to seek for a recompense where you can find it, and your case, perhaps, be little pitied or regarded.
-
-“I have no particular interest in this affair, as, except the
-
-satisfaction of endeavoring to do good, I shall have only my labour for my pains. If this method of obtaining the waggons and horses is not likely to succeed, I am obliged to send word to the general in fourteen days; and I suppose Sir John St. Clair, the hussar, with a body of soldiers, will immediately enter the province for the purpose, which I shall be sorry to hear, because I am very sincerely and truly your friend and well- wisher, B. FRANKLIN.”
-
-I received of the general about eight hundred pounds, to be disbursed 115
+133
 
 The Autobiography of Benjamin Franklin
 
-in advance-money to the waggon owners, etc.; but, that sum being insuf- ficient, I advanc’d upward of two hundred pounds more, and in two weeks the one hundred and fifty waggons, with two hundred and fifty- nine carrying horses, were on their march for the camp. The advertise- ment promised payment according to the valuation, in case any waggon or horse should be lost. The owners, however, alleging they did not know General Braddock, or what dependence might be had on his promise, insisted on my bond for the performance, which I accordingly gave them.
+cred many of the garrison after capitulation.
 
-While I was at the camp, supping one evening with the officers of Colonel Dunbar’s regiment, he represented to me his concern for the subalterns, who, he said, were generally not in affluence, and could ill afford, in this dear country, to lay in the stores that might be necessary in so long a march, thro’ a wilderness, where nothing was to be purchas’d. I commiserated their case, and resolved to endeavor procuring them some relief. I said nothing, however, to him of my intention, but wrote the next morning to the committee of the Assembly, who had the disposition of some public money, warmly recommending the case of these officers to their consideration, and proposing that a present should be sent them of necessaries and refreshments. My son, who had some experience of a camp life, and of its wants, drew up a list for me, which I enclos’d in my letter. The committee approv’d, and used such diligence that, conducted by my son, the stores arrived at the camp as soon as the waggons. They consisted of twenty parcels, each containing
+I saw afterwards in London Captain Bonnell, who commanded one of
 
-6 lbs. loaf sugar.
+those paquets. He told me that, when he had been detain’d a month, he acquainted his lordship that his ship was grown foul, to a degree that must necessarily hinder her fast sailing, a point of consequence for a paquet- boat, and requested an allowance of time to heave her down and clean her bottom. He was asked how long time that would require. He answer’d, three days. The general replied, “If you can do it in one day, I give leave; otherwise not; for you must certainly sail the day after to-morrow.” So he never obtain’d leave, though detained afterwards from day to day during full three months.
 
-6 lbs. good Muscovado do.
+I saw also in London one of Bonnell’s passengers, who was so enrag’d against his lordship for deceiving and detaining him so long at New York, and then carrying him to Halifax and back again, that he swore he would sue for damages. Whether he did or not, I never heard; but, as he repre- sented the injury to his affairs, it was very considerable.
 
-1 lb. good green tea.
+On the whole, I wonder’d much how such a man came to be intrusted with so important a business as the conduct of a great army; but, having since seen more of the great world, and the means of obtaining, and mo- tives for giving places, my wonder is diminished. General Shirley, on whom the command of the army devolved upon the death of Braddock, would, in my opinion, if continued in place, have made a much better campaign than that of Loudoun in 1757, which was frivolous, expensive, and dis- graceful to our nation beyond conception; for, tho’ Shirley was not a bred soldier, he was sensible and sagacious in himself, and attentive to good advice from others, capable of forming judicious plans, and quick and active in carrying them into execution. Loudoun, instead of defending the colonies with his great army, left them totally expos’d while he pa- raded idly at Halifax, by which means Fort George was lost, besides, he derang’d all our mercantile operations, and distress’d our trade, by a long embargo on the exportation of provisions, on pretence of keeping sup- plies from being obtain’d by the enemy, but in reality for beating down their price in favor of the contractors, in whose profits, it was said, per- haps from suspicion only, he had a share. And, when at length the em- bargo was taken off, by neglecting to send notice of it to Charlestown, the Carolina fleet was detain’d near three months longer, whereby their bot- toms were so much damaged by the worm that a great part of them foun- dered in their passage home.
 
-1 lb. good bohea do.
+Shirley was, I believe, sincerely glad of being relieved from so burden- some a charge as the conduct of an army must be to a man unacquainted
 
-6 lbs. good ground coffee.
-
-6 lbs. chocolate.
-
-1-2 cwt. best white biscuit.
-
-1-2 lb. pepper.
-
-1 quart best white wine vinegar
-
-1 Gloucester cheese.
-
-1 kegg containing 20 lbs. good butter.
-
-2 doz. old Madeira wine. 2 gallons Jamaica spirits. 1 bottle flour of mustard. 2 well-cur’d hams.
-
-1-2 dozen dry’d tongues. 6 lbs. rice.
-
-6 lbs. raisins.
-
-These twenty parcels, well pack’d, were placed on as many horses, each parcel, with the horse, being intended as a present for one officer. They were very thankfully receiv’d, and the kindness acknowledg’d by letters to me from the colonels of both regiments, in the most grateful terms. The general, too, was highly satisfied with my conduct in procuring him the
-
-116
+134
 
 The Autobiography of Benjamin Franklin
 
-waggons, etc., and readily paid my account of disbursements, thanking me repeatedly, and requesting my farther assistance in sending provisions after him. I undertook this also, and was busily employ’d in it till we heard of his defeat, advancing for the service of my own money, upwards of one thousand pounds sterling, of which I sent him an account. It came to his hands, luckily for me, a few days before the battle, and he return’d me immediately an order on the paymaster for the round sum of one thousand pounds, leaving the remainder to the next account. I consider this payment as good luck, having never been able to obtain that remain- der, of which more hereafter.
+with military business. I was at the entertainment given by the city of New York to Lord Loudoun, on his taking upon him the command. Shirley, tho’ thereby superseded, was present also. There was a great com- pany of officers, citizens, and strangers, and, some chairs having been borrowed in the neighborhood, there was one among them very low, which fell to the lot of Mr. Shirley. Perceiving it as I sat by him, I said, “They have given you, sir, too low a seat.” “No matter,” says he, “Mr. Franklin, I find a low seat the easiest.”
+
+While I was, as afore mention’d, detain’d at New York, I receiv’d all the accounts of the provisions, etc., that I had furnish’d to Braddock, some of which accounts could not sooner be obtain’d from the different persons I had employ’d to assist in the business. I presented them to Lord Loudoun, desiring to be paid the ballance. He caus’d them to be regularly examined by the proper officer, who, after comparing every article with its voucher, certified them to be right; and the balance due for which his lordship promis’d to give me an order on the paymaster. This was, however, put off from time to time; and, tho’ I call’d often for it by appointment, I did not get it. At length, just before my departure, he told me he had, on better consideration, concluded not to mix his accounts with those of his prede- cessors. “And you,” says he, “when in England, have only to exhibit your accounts at the treasury, and you will be paid immediately.”
 

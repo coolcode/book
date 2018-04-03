@@ -1,97 +1,93 @@
 title: House of Cards 010
-date: 2015-01-24 15:44:24
+date: 2015-01-25 03:46:06
 tags: house-of-cards
 ---
 
-'So everyone simply has to remain where they are. Do you think that's a sound strategy?'
+'And let me assure you, Roger, that I know precisely what you have been spending the money on,' he said quietly.
 
-He took a deep mouthful of whisky. 'If I were the captain of the Titanic and I saw a bloody great iceberg dead ahead, I don't think I would be saying "steady as she goes". I'd want a change of course.'
+He took a sip from his cognac as his victim remained motionless, transfixed. 'Roger, as Chief Whip I have to become familiar with every problem known to man. Do you know, in the last two years I have had to deal with cases of wife beating, adultery, fraud, mental illness. I've even had a case of incest. We didn't let him stand for re-election, of course, but there was nothing to be gained by making a public fuss about such things. That's why you almost never hear about them, incest I draw the line at but in general we don't moralise, Roger. Every man is allowed one weakness or indulgence - so long as it remains a private one’
 
-Did you tell this to the Prime Minister this afternoon?'
+He paused. In fact, one of my Junior Whips is a doctor who was appointed specifically to help me spot the signs of strain, and we get quite practised at it After all, we have well over 300 MPs to look after, all of whom are living on the edge and under immense pressure. You'd be surprised, too, how many cases of drug abuse we get at Westminster. The specialists say there is something like 10 per cent of the population, including MPs, who are physiologically or psychologically vulnerable to chemical addiction of one sort or another. Not their fault, it's something in their makeup, and they have much more trouble than the rest of us in resisting drink, pills and the rest. There's a charming and utterly private drying- out farm just outside Dover where we send them, sometimes for a couple of months. Most of them recover completely and return to a full political life.'
 
-'Mattie, you take me too far!' he chuckled in protest. 'While I respect your professional integrity and I am thoroughly enjoying our conversation, I think I would be offering you too much temptation if I started divulging the details of private discussions. That's a shooting offence!'
+He paused yet again to swill the cognac around his glass and sip it gently, but continued to watch O'Neill closely. The other man did not stir. He sat there as if petrified.
 
-Mattie had not moved from the edge of her chair. She understood very clearly the significance of his words, and was determined to gather more. 'Well, let me ask you about Lord Williams. He was with the PM an extraordinarily long time this 'afternoon if all they were deciding was to do nothing’
+'But it helps to catch them early,' Urquhart continued, 'which is why we are so sensitive to the signs of drug abuse. Like cocaine. It's become a real problem recently. They tell me it's fashionable - whatever that means - and too damned easy to obtain. Do you know it can rot your nasal membranes clean away if you let it? Funny drug. Gives people an instant high and persuades them that their brain and senses can complete five hours' work in just five minutes. Makes a good man brilliant, so they say. Pity it's so addictive’
 
-Urquhart had been toying with this specific stiletto for several minutes. Now he threw it with deadly accuracy. 'Have you heard the phrase, "Beware of an old man in a hurry"?'
+There was another pause. 'And expensive’
 
-‘You surely can't imagine that he believes he could become Party Leader. Not from the Lords!'
+Urquhart had not taken his eyes off O'Neill for a second during his narrative, and had witnessed the exquisite agony which had racked O'Neill inside. Any doubt about his diagnosis that he had started with had been brushed aside with the whimpering which began slowly to emerge from the other man. Now his words were tortured and pleading.
 
-'No, even he's not that egotistical. But he still has a couple of years left, and like so many elder statesmen would like to make sure that the leadership found its way into suitable hands’
+'What are you saying? I am not a drug addict. I don't do drugs!'
 
-'Whose hands?'
+'No, of course not, Roger.' Urquhart adopted his most reassuring tone. 'But I think you must accept that there are some people who could jump to the most unfortunate conclusions about you. And the Prime Minister, you know, is not a man to take chances. It's not a matter of condemning a man without trial, simply opting for a quiet life without unnecessary risks.'
 
-If not him, then one of his acolytes’ 'Like who?'
+The Prime Minister can't believe this!' O'Neill gasped as if he had been butted by a charging bull.
 
-'Do you have no thoughts of your own?' 'You mean Michael Samuel’
+I'm afraid that the Chairman was a little less than helpful with the PM the other day - he knows nothing, of course, but I don't think the dear Lord Williams is one of your greatest fans. Don't worry, I reassured the Prime Minister about you, and you have nothing to fear. As long as you have my support.'
 
-Urquhart smiled as he heard the stiletto thud home. ‘I think I've said enough. We must call this conversation to a halt’
+Urquhart knew full well of the paranoia which dominates the minds of cocaine addicts, and the impact which his totally invented story about the Chairman's disaffection would leave on O'Neill's helter-skelter emotions. He also knew that the paranoia was matched by a lust for notoriety, which O'Neill could only achieve through his political connections and the continued patronage of the Prime Minister, and this he could not bear to lose. 'As long as you have my support’ rang in O'Neill's ears. 'One slip and you are dead’ it was saying. The web around O'Neill was complete, and now Urquhart offered him the way out.
 
-Mattie nodded reluctantly, and remained silent, pondering the pieces of the political jigsaw which now lay in front of her. Without further discussion Urquhart guided his guest downstairs, and they were shaking hands by the front door before she spoke again.
+'You see, Roger, I have seen gossip destroy so many men. Gossip founded on no more than circumstantial evidence or even naked jealousy, perhaps, but you know that the corridors around Westminster have been killing fields for less fortunate people than you or me. It would be a tragedy if you were pilloried either because of Lord Williams' hostility towards you or because people misunderstood your arrangement about expenses
 
-‘You've been very helpful, Mr Urquhart But one last question. If there were a leadership election, would you be part of it?' 'Good night, Mattie’ Urquhart said, and closed the front door firmly behind her.
+and your - hay fever.’
 
-Daily Telegraph. Monday 14th June. Page 1.
+'What should I do?' The voice was plaintive.
 
-In a move which startled most observers, the Prime Minister yesterday announced that there were to be no immediate Cabinet changes following the election. After conferring for several hours with his Party
+'Your position is a delicate one, particularly at a time when the political currents within the Government are ebbing and flowing. I would suggest that you trust me. You need a strong supporter in the inner circles of the Party, particularly as the Prime Minister appears to be getting into more difficult waters and will be concentrating on rescuing himself rather than spending his time rescuing others.'
 
-Chairman, Lord Williams, and also with the Chief Whip Francis Urquhart, Mr Collingridge issued a 'steady as she goes' message to his Party.
+He paused to watch O'Neill writhe in his chair. ‘I would suggest the following. I shall tell the agency I have fully established that your expenses are legitimate. I shall ask them to continue with the arrangement, on the basis that we are doing it this way to avoid unhelpful jealousy from some of your colleagues within party headquarters who do not support extensive advertising budgets and who might use your high but perfectly legitimate
 
-Downing Street sources said it was intended that the Government would be able to pursue their programme as quickly and as effectively as possible by leaving all Cabinet Ministers in place. However, senior Westminster sources last night expressed astonishment at the decision. It was
+￼expenses to attack the whole communications set-up. The agency can regard it as a sensible insurance policy. Also, I shall ensure that the Prime Minister continues to be fully informed of the good work you are doing for the Party. I shall certainly try to persuade him of the need to continue a high level publicity campaign to get him through the difficult months ahead, so that your budget is not cut to shreds by the Chairman.'
 
-￼seen in some quarters as betraying the weakness of the Prime Minister's position after the decimation of his parliamentary majority and criticisms of what was seen as a lacklustre campaign, for which both he and the Party Chairman are being blamed.
+'You know I would be most grateful...' O'Neill mumbled.
 
-There was speculation last night that the Prime Minister was unlikely to fight another election, and that some senior Ministers were already manoeuvring for position in the event of an early leadership contest. One Cabinet Minister compared the Prime Minister to 'the captain of the Titanic as it was entering the ice pack'.
+In return, you will keep me informed of eveiything that is going on at party headquarters and in particular what the Chairman is up to. He's a very ambitious and dangerous man, you know. Playing his own game while professing loyalty to the Prime Minister. Between us, though, I think we can ensure that no harm is done to the Prime Minister's - or to your - interests. You must be my eyes and ears, Roger, and you will have to let me know immediately of anything you hear of the Chairman's plans. Your future could depend upon it.' He punched home the words to let O'Neill be in no doubt that he meant it.
 
-The decision not to make any Cabinet changes, the first time since the war that an election has not been followed by some senior reshuffle, was interpreted as being the most effective way for Collingridge to keep the simmering rivalries of some of his Cabinet colleagues under control.
+‘We must work together on this. You will have to help me. I know how much you love politics and the Party, and I think the two of us together can help steer the Party through some difficult times ahead.'
 
-Last night, the Chief Whip defended the decision as being 'the best means of getting on with the job'. However, speculation is already beginning as to who might be the likely contenders in the event of a leadership race.
+'Thank you,' O'Neill whispered.
 
-Lord Williams described any suggestion of an imminent leadership election as 'nonsense'. He said, 'The Prime Minister has gained for the Party an historic fourth election victory, and we are in excellent shape.' However, the position of the Party
+￼WEDNESDAY 30th JUNE
 
-Chairman would be crucial during a leadership race, and Williams is known to be very close to Michael Samuel, the Environment Secretary, who could be one of the contenders.
+The Strangers Bar in the House of Commons is a small, dark room overlooking the Thames where Members of Parliament may take their 'Stranger' or non-Member guests. As a result it is usually crowded and noisy with rumour and gossip. Tonight was no exception as O'Neill propped up the bar with one elbow and struggled valiantly with the other to avoid knocking the drink out of his host's hand.
 
-Opposition spokesmen were quick to pounce on what they saw as indecisiveness on the part of the Prime Minister. Claiming that he had been greatly heartened by the gains his Party had made last Thursday, the Opposition Leader said: The fires of discontent are glowing within the Government. I don't think Mr Collingridge has the strength or the support to put them out. I am already looking forward to the next election...'
+'Another one, Steve?' he asked of his immaculately dressed companion.
 
-￼TUESDAY 22nd JUNE
+Stephen Kendrick looked somewhat out of place in his light grey Armani mohair suit, pearl white cuffs and immaculately manicured hands clasped around a glass of Federation bitter, a draught beer for which the bars of the Palace of Westminster afford a warm home.
 
-Roger O'Neill sat back comfortably in the arms of one of the large leather armchairs which surround the snooker tables in the back room at White's Club. When the tables are not in use, the seats which are spread around the games room offer a quiet and confidential spot for members to take their guests. He had been delighted, and not a little astonished, to receive the invitation from the Chief Whip to dine at his prestigious club in St James's. Urquhart had never shown much warmth towards O'Neill in the past, and O'Neill had been more used to a cold and condescending gaze down Urquhart's aquiline nose, rather like a well-fed bird eyeing future prey, than an invitation 'to celebrate the splendid work which you have done for us all throughout the campaign'.
+'Now you know better than me that Strangers can't buy drinks here. And anyway, I've only been here two weeks and I wouldn't want to ruin my career by having anyone see the Prime Minister's pet Irish wolfhound forcing drinks down the Opposition's newest and fastest rising backbencher. Some of my more dogmatic colleagues would treat that as treachery!'
 
-O'Neill, hypertense as always, had tried to calm his nerves with a couple of mighty vodka-tonics before he arrived, but they had not been necessary. Urquhart's cosy manner, two bottles of Chateau Talbot '78 and the large cognacs which Urquhart was even now ordering from the bar suggested that O'Neill had at last been able to break through the barriers which some traditionalists within the party leadership still erected against the likes of O'Neill and his 'marketing johnnies with their vulgar cars'. Even as O'Neill derided the traditionalists and their narrow jealousies, he desperately wanted their acceptance, and now he felt guilty for having misjudged Urquhart so badly. He beamed broadly as his host returned from the bar with two crystal glasses on a silver tray. O'Neill stubbed out his cigarette in preparation for the Havana which he hoped would be following.
+He grinned and winked at the barmaid to attract her attention. Another pint of dark bitter and a double vodka-tonic were quick in coming.
 
-'Tell me, Roger, what are your plans now the election is over? Are you going to stay on with the Party? We can't afford to lose good men like you.' O'Neill flashed yet another winning smile and assured his host that he would stay on as long as the Prime Minister wanted him.
+‘You know, Rog, I'm still pinching myself. I never really expected to get here, and I still can't decide whether it's a dream or just a bloody awful nightmare. When we worked together at the same little PR shop seven years ago, who would have guessed you would now be the chief grunter for the Prime Minister and I would be a humble if wonderfully talented Opposition MP?'
 
-'But how can you afford to, Roger? May I be brutally honest with you? I know just how little the Party pays its employees, and money is always so short after an election. It's going to be tough for the next couple of years. Your salary will probably get frozen and your budget cut. Aren't you tempted by some of the more handsome offers you must be getting from outside?'
+'Certainly not that little blonde telephonist we used to take turns with’ ribbed O'Neill. They both chuckled at the memory of younger and more frivolous days.
 
-'Well, it's not always easy, Francis, as you've already guessed. It's not so much the salary, you understand. I work in politics because I'm fascinated by it and love to play a part. But it would be a tragedy if the budget gets cut.'
+'Dear little Annie’ mused Kendrick.
 
-His smile faded as he contemplated the prospect and began to fidget nervously with his glass. 'We should start working for the next election now, not in three years' time when it may be too late. Particularly with all these rumours flooding around about splits within the Party and who is to blame for the loss of seats. We need some strong and positive publicity, and I need a budget to create it.'
+‘I thought her name was Jennie’ protested O'Neill.
 
-'The Chairman receptive to all this?' Urquhart raised an enquiring eyebrow. 'Are Chairmen ever?'
+'Rog, in those days I never remember you being fussy about what they were called.'
 
-'Perhaps, Roger, there is something I can do about that. I would like to be able to help you very much, because I think you've done such excellent work. Ill go in to bat with the Chairman about your budget, if you want. But there is something I must ask you first. And I must be blunt.'
+The banter finally broke the ice between the two men which had been slowly thawing with the drink. When O'Neill had telephoned the new MP to suggest a drink for old times' sake, they had both found it difficult to revive the easy familiarity which they had known in earlier years. They had been careful, perhaps too careful, to avoid the subject of politics which now dominated both their lives and it had forced their conversation along artificial lines. Now O'Neill decided to take the plunge.
 
-The older man's blue eyes looked directly into O'Neill's, taking in their habitual flicker. He paused while O'Neill blew his nose loudly. Another habit, Urquhart knew. He examined O'Neill closely. It was as if there were another life going on within O'Neill which was quite separate from the rest of the world, and which communicated itself only through O'Neill's hyperactive mannerisms and twitching eyes.
+'Steve, I don't mind you buying the drinks all night as far as I'm concerned. The way my masters are going at the moment, I think a saint would be driven to drink.'
 
-‘I had a visit the other day from an old colleague I used to know from the days when I held directorships in the City,' Urquhart continued, lie's one of the financial people at the Party's advertising agency. And he was very troubled. Very discreet, but very troubled. He said you were in the habit of asking them for considerable sums of cash to cover your expenses.'
+Kendrick accepted the opening. Tour lot do seem to be getting their robes of office in something of a twist. There are all sorts of weird rumours going round this place about how Samuel is furious with Williams for putting his head on the block with the PM, Williams is furious with Collingridge for screwing up the election campaign, and Collingridge is furious with just about everyone.'
 
-The twitching stopped for a moment, and Urquhart noticed just how rarely he had ever seen O'Neill stop moving.
+'Maybe it's simply that they are all tired after the election and can't wait to get away on holiday’ O'Neill responded. 'Like an irritable family squabbling about how the car is packed before taking a long trip.'
 
-'Roger, let me assure you I am riot trying to trap you or trick you. This is strictly between us. But if I am to help you, I must be sure of the facts.'
+If you don't mind me saying, old chum, I think your leader is going to have to put an end to all the bickering very quickly, or else hell go into the Summer Recess with the family looking more like a pack of Westminster alley cats. No Prime Minister can afford to let those sort of rumours run away from him, otherwise they begin to gain a life of their own. They become reality. Still, that's where you and your vast publicity budgets come to the rescue, like the Seventh Cavalry over the hill.'
 
-The face and the eyes started up again, and O'Neill's ready laugh made a nervous reappearance. 'Francis, let me assure you that there's nothing wrong at all. It's silly, of course, but I am grateful that you raised it with me. It's simply that there are times when I incur expenses on the publicity side which are easier and more convenient for the agency to meet rather than putting them through the Party machine. Like buying a drink for a journalist or taking a Party contributor out for a meal.'
+'More like Custer's last bloody stand’ O'Neill said with some bitterness.
 
-O'Neill was speeding on with his explanation, which showed signs of having been practised. 'You see, if I pay for them myself I have to claim back from the Party. We have a pretty laborious accounts department which takes its own sweet time paying those invoices - two months or more. Frankly, with the way I get paid, I can't afford it. Yet if I charge them through the agency, I get the money back immediately while they have to put them through their own accounts before invoicing us at headquarters. That takes another month or so, which simply means that the Party gets an even longer holiday on repaying those expenses. It's like an interest-free loan for the Party. And in the meantime I can get on with my job. The amounts are really very small’
+'What's the matter, Rog, Uncle Teddy run off with all your toy soldiers or something?' Kendrick asked with genuine curiosity.
 
-O'Neill reached for his glass.
+O'Neill emptied his glass and Kendrick ordered another round.
 
-‘Like £22,300 in the last ten months small?'
+'Between you and me, just as old chums, Steve, he's run off with almost all of them. Hell, we need to find new friends more than ever, but instead of going onto the offensive the Chairman seems content to retreat behind the barricades’
 
-O'Neill nearly choked. He put his glass down quickly and his face contorted as he struggled simultaneously to gulp down air and blurt out a denial. It's nothing like that amount’ he protested. His jaw dropped as he debated what to say next. This explanation he hadn't practised.
+'Ah, do I detect the cries of a frustrated Publicity Director who has been told to shut up shop for a while?'
 
-￼Urquhart turned away from him to signal for another two cognacs. His eyes returned calmly to O'Neill, whose twitching now resembled a fly caught in a spider's web. Urquhart spun more silken threads.
-
-'Roger, you have been charging regular expenses to the agency without clearly accounting for those amounts to the tune of precisely £22,300 since the beginning of. September last year. What began as relatively small amounts have in recent months grown up to £4,000 a month. You don't get through that many drinks and dinners even during an election campaign.'
-
-‘I assure you, Francis, that any expenses I've charged have all been entirely legitimate!' The choking had begun to subside. As the steward placed the fresh drinks on the table, Urquhart moved in to bind his prey with a lethal touch.
+O'Neill banged the bar in exasperation. 'I shouldn't tell you this, I suppose, but as it's not going to happen there's no harm. The new hospital expansion programme which we promised at the election giving matching Government funds for any money raised locally. We had a wonderful promotional campaign, all ready to go throughout the summer while all you bastards were off on the Costa del Cuba or wherever it is you go’
 

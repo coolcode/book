@@ -1,41 +1,141 @@
 title: Dreams from My Father 037
-date: 2015-01-24 15:43:58
+date: 2015-01-25 03:45:40
 tags: dreams-from-my-father
 ---
 
-Nationalism provided that history, an unambiguous morality tale that was easily communicated and easily grasped. A steady attack on the white race, the constant recitation of black people’s brutal experience in this country, served as the ballast that could prevent the ideas of personal and communal responsibility from tipping into an ocean of despair. Yes, the nationalist would say, whites are responsible for your sorry state, not any inherent flaws in you. In fact, whites are so heartless and devious that we can no longer expect anything from them. The self-loathing you feel, what keeps you drinking or thieving, is planted by them. Rid them from your mind and find your true power liberated. Rise up, ye mighty race!
+The parents sat down, and everyone fell into silence. Shirley started to light a cigarette, but Angela elbowed her in the
 
-This process of displacement, this means of engaging in self-criticism while removing ourselves from the object of criticism, helped explain the much-admired success of the Nation of Islam in turning around the lives of drug addicts and criminals. But if it was especially well suited to those at the bottom rungs of American life, it also spoke to all the continuing doubts of the lawyer who had run hard for the gold ring yet still experienced the awkward silence when walking into the clubhouse; those young college students who warily measured the distance between them and life on Chicago’s mean streets, with the danger that distance implied; all the black people who, it turned out, shared with me a voice that whispered inside them-“You don’t really belong here.”
+ribs.
 
-In a sense, then, Rafiq was right when he insisted that, deep down, all blacks were potential nationalists. The anger was there, bottled up and often turned inward. And as I thought about Ruby and her blue eyes, the teenagers calling each other “nigger” and worse, I wondered whether, for now at least, Rafiq wasn’t also right in preferring that that anger be redirected; whether a black politics that suppressed rage toward whites generally, or one that failed to elevate race loyalty above all else, was a politics inadequate to the task.
+“We’re supposed to be concerned about health, remember?”
 
-It was a painful thought to consider, as painful now as it had been years ago. It contradicted the morality my mother had taught me, a morality of subtle distinctions-between individuals of goodwill and those who wished me ill, between active malice and ignorance or indifference. I had a personal stake in that moral framework; I’d discovered that I couldn’t escape it if I tried. And yet perhaps it was a framework that blacks in this country could no longer afford; perhaps it weakened black resolve, encouraged confusion within the ranks. Desperate times called for desperate
+“It’s too late for me, girl,” Shirley muttered, but the pack went back into her purse. A group of men in suits and ties
 
-measures, and for many blacks, times were chronically desperate. If nationalism could create a strong and effective insularity, deliver on its promise of self-respect, then the hurt it might cause well-meaning whites, or the inner turmoil it caused people like me, would be of little consequence.
+came out of the door behind the receptionist’s desk and gave our contingent the once-over as they walked to the elevator. Linda whispered something to Bernadette; Bernadette whispered back.
 
-If nationalism could deliver. As it turned out, questions of effectiveness, and not sentiment, caused most of my quarrels with Rafiq. Once, after a particularly thorny meeting with MET, I asked him whether he could turn out his followers if a public showdown with the city became necessary.
+“What’s everybody whispering for?” I asked loudly.
 
-“I don’t got time to run around passing out flyers trying to explain everything to the public,” he said. “Most of the folks out here don’t care one way or another. The ones that do are gonna be double-crossing Negroes trying to mess things up. Important thing is to get our plan tight and get the city signed on. That’s how stuff gets done-not with a big crowd and noise and all that. Once we got a done deal, then y’all announce it any way you like.”
+The children giggled. Bernadette said, “I feel like I’m waiting to see the principal or something.”
 
-I disagreed with Rafiq’s approach; for all his professed love of black people, he seemed to distrust them an awful lot. But I also knew his approach was dictated by a lack of capacity: Neither his organization nor his mosque, I had discovered, could claim a membership of more than fifty persons. His influence arose not from any strong organizational support but from his willingness to show up at every meeting that remotely affected Roseland and shout his opponents into submission.
+“You hear that, everybody,” I said. “They build these big offices to make you feel intimidated. Just remember that this
 
-What held true for Rafiq was true throughout the city; without the concentrating effect of Harold’s campaign, nationalism dissipated into an attitude rather than any concrete program, a collection of grievances and not an organized force, images and sounds that crowded the airwaves and conversation but without any corporeal existence. Among the handful of groups to hoist the nationalist banner, only the Nation of Islam had any significant following: Minister Farrakhan’s sharply cadenced sermons generally drew a packed house, and still more listened to his radio broadcasts. But the Nation’s active membership in Chicago was considerably smaller-several thousand, perhaps, roughly the size of one of Chicago’s biggest black congregations-a base that was rarely, if ever, mobilized around political races or in support of broad-based programs. In fact, the physical presence of the Nation in the neighborhoods was nominal, restricted mainly to the clean-cut men in suits and bow ties who stood at the intersections of major thoroughfares selling the Nation’s newspaper, The Final Call.
+is a public authority. Folks who work here are responsible to you.”
 
-I would occasionally pick up the paper from these unfailingly polite men, in part out of sympathy to their heavy suits in the summer, their thin coats in winter; or sometimes because my attention was caught by the sensational, tabloid- style headlines (CAUCASIAN WOMAN ADMITS: WHITES ARE THE DEVIL). Inside the front cover, one found reprints of the minister’s speeches, as well as stories that could have been picked straight off the AP news wire were it not for certain editorial embellishments (“Jewish Senator Metzenbaum announced today...”). The paper also carried a health section, complete with Minister Farrakhan’s pork-free recipes; advertisements for Minister Farrakhan’s speeches on videocassette (VISA or MasterCard accepted); and promotions for a line of toiletries-toothpaste and the like-that the Nation had launched under the brand name POWER, part of a strategy to encourage blacks to keep their money within their own community.
+“Excuse me,” the receptionist said to us, her voice rising to match mine. “I’ve been told that the director will not be
 
-After a time, the ads for POWER products grew less prominent in The Final Call; it seems that many who enjoyed Minister Farrakhan’s speeches continued to brush their teeth with Crest. That the POWER campaign sputtered said
+able to see you today. You should report any problems you have to Mr. Anderson out in Altgeld.”
 
-something about the difficulty that faced any black business-the barriers to entry, the lack of finance, the leg up that your competitors possessed after having kept you out of the game for over three hundred years.
+“Look, we’ve already seen Mr. Anderson,” Bernadette said. “If the director’s not here, we’d like to see his deputy.” “I’m sorry but that’s not possible. If you don’t leave right now, I’ll have to call Security.”
 
-But I suspected that it also reflected the inevitable tension that arose when Minister Farrakhan’s message was reduced to the mundane realities of buying toothpaste. I tried to imagine POWER’s product manager looking over his sales projections. He might briefly wonder whether it made sense to distribute the brand in national supermarket chains where blacks preferred to shop. If he rejected that idea, he might consider whether any black-owned supermarket trying to compete against the national chains could afford to give shelf space to a product guaranteed to alienate potential white customers. Would black consumers buy toothpaste through the mail? And what of the likelihood that the cheapest supplier of whatever it was that went into making toothpaste was a white man?
+At that moment, the elevator doors opened and several TV film crews came in, along with various reporters. “Is this
 
-Questions of competition, decisions forced by a market economy and majoritarian rule; issues of power. It was this unyielding reality-that whites were not simply phantoms to be expunged from our dreams but were an active and varied fact of our everyday lives-that finally explained how nationalism could thrive as an emotion and flounder as a program. So long as nationalism remained a cathartic curse on the white race, it could win the applause of the jobless teenager listening on the radio or the businessman watching late-night TV. But the descent from such unifying fervor to the practical choices blacks confronted every day was steep. Compromises were everywhere. The black accountant asked: How am I going to open an account at the black-owned bank if it charges me extra for checking and won’t even give me a business loan because it says it can’t afford the risk? The black nurse said: White folks I work with ain’t so bad, and even if they were, I can’t be quitting my job-who’s gonna pay my rent tomorrow, or feed my children today?
+the protest about asbestos?” one of the reporters asked me.
 
-Rafiq had no ready answers to such questions; he was less interested in changing the rules of power than in the color of those who had it and who therefore enjoyed its spoils. There was never much room at the top of the pyramid, though; in a contest framed in such terms, the wait for black deliverance would be long indeed. During that wait, funny things happened. What in the hands of Malcolm had once seemed a call to arms, a declaration that we would no longer tolerate the intolerable, came to be the very thing Malcolm had sought to root out: one more feeder of fantasy, one more mask for hypocrisy, one more excuse for inaction. Black politicians less gifted than Harold discovered what white politicians had known for a very long time: that race-baiting could make up for a host of limitations. Younger leaders, eager to make a name for themselves, upped the ante, peddling conspiracy theories all over town-the Koreans were funding the Klan, Jewish doctors were injecting black babies with the AIDS virus. It was a shortcut to fame, if not always fortune; like sex or violence on TV, black rage always found a ready market.
+I pointed to Sadie. “She’s the spokesperson.”
 
-Nobody I spoke with in the neighborhood seemed to take such talk very seriously. As it was, many had already given up the hope that politics could actually improve their lives, much less make demands on them; to them, a ballot, if cast at all, was simply a ticket to a good show. Blacks had no real power to act on the occasional slips into anti-Semitism or Asian-bashing, people would tell me; and anyway, black folks needed a chance to let off a little steam every once in a while-man, what do you think those folks say about us behind our backs?
+The TV crews began to set up, and the reporters took out their notebooks. Sadie excused herself and dragged me
 
-Just talk. Yet what concerned me wasn’t just the damage loose talk caused efforts at coalition building, or the emotional pain it caused others. It was the distance between our talk and our action, the effect it was having on us as individuals and as a people. That gap corrupted both language and thought; it made us forgetful and encouraged fabrication; it eventually eroded our ability to hold either ourselves or each other accountable. And while none of this
+aside.
 
-was unique to black politicians or to black nationalists-Ronald Reagan was doing quite well with his brand of verbal legerdemain, and white America seemed ever willing to spend vast sums of money on suburban parcels and private security forces to deny the indissoluble link between black and white-it was blacks who could least afford such make- believe. Black survival in this country had always been premised on a minimum of delusions; it was such an absence of delusions that continued to operate in the daily lives of most black people I met. Instead of adopting such unwavering honesty in our public business, we seemed to be loosening our grip, letting our collective psyche go where it pleased, even as we sank into further despair.
+“I don’t wanna talk in front of no cameras.”
+
+“Why’s that?”
+
+“I don’t know. I never been on TV before.”
+
+“You’ll be fine.”
+
+In a few minutes the cameras were rolling, and Sadie, her voice quavering slightly, held her first press conference. As
+
+she started to field questions, a woman in a red suit and heavy mascara rushed into the reception area. She smiled tightly at Sadie, introducing herself as the director’s assistant, Ms. Broadnax. “I’m so sorry that the director isn’t here,” Ms. Broadnax said. “If you’ll just come this way, I’m sure we can clear up this whole matter.”
+
+“Is there asbestos in all CHA units?” a reporter shouted.
+
+“Will the director meet with the parents?”
+
+“We’re interested in the best possible outcome for the residents,” Ms. Broadnax shouted over her shoulder. We
+
+followed her into a large room where several gloomy officials were already seated around a conference table. Ms. Broadnax remarked on how cute the children were and offered everyone coffee and doughnuts.
+
+“We don’t need doughnuts,” Linda said. “We need answers.”
+
+And that was it. Without a word from me, the parents found out that no tests had been done and obtained a promise that testing would start by the end of the day. They negotiated a meeting with the director, collected a handful of business cards, and thanked Ms. Broadnax for her time. The date of the meeting was announced to the press before we crammed back into the elevator to meet our bus. Out on the street, Linda insisted that I treat everybody, including the bus driver, to caramel popcorn. As the bus pulled away, I tried to conduct an evaluation, pointing out the importance of preparation, how everyone had worked as a team.
+
+“Did you see that woman’s face when she saw the cameras?”
+
+“What about her acting all nice to the kids? Just trying to cozy up to us so we wouldn’t ask no questions.”
+
+“Wasn’t Sadie terrific? You did us proud, Sadie.”
+
+“I got to call my cousin to make sure she gets her VCR set up. We gonna be on TV.”
+
+I tried to stop everybody from talking at once, but Mona tugged on my shirt. “Give it up, Barack. Here.” She handed
+
+me a bag of popcorn. “Eat.”
+
+I took a seat beside her. Mr. Lucas hoisted the children up onto his lap for the view of Buckingham Fountain. As I
+
+chewed on the gooey popcorn, looking out at the lake, calm and turquoise now, I tried to recall a more contented moment.
+
+I changed as a result of that bus trip, in a fundamental way. It was the sort of change that’s important not because it alters your concrete circumstances in some way (wealth, security, fame) but because it hints at what might be possible and therefore spurs you on, beyond the immediate exhilaration, beyond any subsequent disappointments, to retrieve that thing that you once, ever so briefly, held in your hand. That bus ride kept me going, I think. Maybe it still does.
+
+The publicity was nice, of course. The evening after we got back from the CHA office, Sadie’s face was all over the television. The press, smelling blood, discovered that another South Side project contained pipes lined with rotting asbestos. Aldermen began calling for immediate hearings. Lawyers called about a class-action suit.
+
+But it was away from all that, as we prepared for our meeting with the CHA director, that I began to see something wonderful happening. The parents began talking about ideas for future campaigns. New parents got involved. The block-by-block canvass we’d planned earlier was put into effect, with Linda and her swollen belly waddling door-to- door to collect complaint forms; Mr. Lucas, unable to read the forms himself, explaining to neighbors how to fill them out properly. Even those who’d opposed our efforts began to come around: Mrs. Reece agreed to cosponsor the event, and Reverend Johnson allowed some of his members to make an announcement at Sunday service. It was as though Sadie’s small, honest step had broken into a reservoir of hope, allowing people in Altgeld to reclaim a power they had had all along.
+
+The meeting was to be held in Our Lady’s gymnasium, the only building in Altgeld that could accommodate the three hundred people we hoped would turn up. The leaders arrived an hour early, and we went over our demands one last time-that a panel of residents work with CHA to assure containment of asbestos, and that CHA establish a firm timetable for making repairs. As we discussed a few last-minute details, Henry, the maintenance man, waved me over to the public address system.
+
+“What’s the matter?”
+
+“System’s dead. A short or something.”
+
+“So we don’t have a microphone?”
+
+“Not outta here. Gonna have to make do with this thing here.” He pointed to a solitary amplifier, the size of a small
+
+suitcase, with a loose microphone that hung by a single, frayed cord. Sadie and Linda came up beside me and stared down at the primitive box.
+
+“You’re joking,” Linda said.
+
+I tapped on the mike. “It’ll be okay. You guys will just have to speak up.” Then, looking down at the amp again, I said, “Try not to let the director hog the microphone, though. He’ll end up talking for hours. Just hold it up to him after you’ve asked the questions. You know, like Oprah.”
+
+“If nobody comes,” Sadie said, looking at her watch, “we won’t need no mike.”
+
+People came. From all across the Gardens, people came-senior citizens, teenagers, tots. By seven o’clock five hundred people had arrived; by seven-fifteen, seven hundred. TV crews began setting up cameras, and the local politicians on hand asked us for a chance to warm up the crowd. Marty, who had come to watch the event, could barely contain himself.
+
+“You’ve really got something here, Barack. These people are ready to move.”
+
+There was just one problem: The director still hadn’t arrived. Ms. Broadnax said he was caught in traffic, so we decided to go ahead with the first part of the agenda. By the time the preliminaries were over, it was almost eight. I could hear people starting to grumble, fanning themselves in the hot, airless gym. Near the door, I saw Marty trying to lead the crowd in a chant. I pulled him aside.
+
+“What are you doing?”
+
+“You’re losing people. You have to do something to keep them fired up.” “Sit down, will you please.”
+
+I was about to cut our losses and go ahead with Ms. Broadnax when a murmur rose from the back of the gym and the director walked through the door surrounded by a number of aides. He was a dapper black man of medium build, in his early forties. Straightening his tie, he grimly made his way to the front of the room.
+
+“Welcome,” Sadie said into the mike. “We’ve got a whole bunch of people who want to talk to you.”
+
+The crowd applauded; we heard a few catcalls. The TV lights switched on.
+
+“We’re here tonight,” Sadie said, “to talk about a problem that threatens the health of our children. But before we talk
+
+about asbestos, we need to deal with problems we live with every day. Linda?”
+
+Sadie handed the microphone to Linda, who turned to the director and pointed to the stack of complaint forms.
+
+“Mr. Director. All of us in Altgeld don’t expect miracles. But we do expect basic services. That’s all, just the basics.
+
+Now these people here have gone out of their way to fill out, real neat-like, all the things they keep asking the CHA to fix but don’t never get fixed. So our question is, will you agree here tonight, in front of all these residents, to work with us to make these repairs?”
+
+The next moments are blurry in my memory. As I remember it, Linda leaned over to get the director’s response, but when he reached for the microphone, Linda pulled it back.
+
+“A yes-or-no answer, please,” Linda said. The director said something about responding in his own fashion and again reached for the mike. Again, Linda pulled it back, only this time there was the slightest hint of mockery in the gesture, the movement of a child who’s goading a sibling with an ice-cream cone. I tried to wave at Linda to forget what I’d said before and give up the microphone, but I was standing too far in the rear for her to see me. Meanwhile, the director had gotten his hand on the cord, and for a moment a struggle ensued between the distinguished official and the pregnant young woman in stretch pants and blouse. Behind them, Sadie stood motionless, her face shining, her eyes wide. The crowd, not clear on what was happening, began shouting, some at the director, others at Linda.
+
+Then...pandemonium. The director released his grip and headed for the exit. Like some single-celled creature, people near the door lurched after him, and he broke into a near trot. I ran myself, and by the time I had fought my way outside, the director had secured himself in his limousine while a swell of people surrounded the car, some pressing their faces against the tinted glass, others laughing, still others cursing, most just standing about in confusion. Slowly the limo lurched forward, an inch at a time, until a path onto the road opened up and the car sped away, lumping over the cratered street, running over a curb, vanishing from sight.
+
+I walked back toward the gymnasium in a daze, against the current of people now going home. Near the door, a small circle was gathered around a young man in a brown leather jacket whom I recognized as an aide to the alderman.
+
+“The whole thing was put together by Vrdolyak, see,” he was telling the group. “You saw that white man egging the folks on. They just trying to make Harold look bad.”
+
+A few feet away, I spotted Mrs. Reece and several of her lieutenants. “See what you done!” she snapped at me. “This is what happens when you try and get these young folks involved. Embarrassed the whole Gardens, on TV and everything. White folks seeing us act like a bunch of niggers! Just like they expect.”
 

@@ -1,95 +1,81 @@
 title: House of Cards 022
-date: 2015-01-24 15:44:12
+date: 2015-01-25 03:45:55
 tags: house-of-cards
 ---
 
-'But that's all bloody Horlicks, Frankie, and you know it. I put my whole newspaper chain behind your lot at the last election and I've moved my entire worldwide headquarters to London. I've invested millions in the country. And if you lot don't pull your fingers out, the whole bloody performance is going down the drain at the next election. Those buggers in the Opposition will crucify me if they get in because I've been so good to you, but you lot
+There was a short pause for the words to sink in. 'You cannot afford to get this one wrong.'
 
-￼seem to be falling over yourselves to open the damned door for them.'
+Collingridge's wearied assent was mumbled down the phone. His Chief Whip's sudden authoritativeness had stripped away piece by piece both his family pride and the dignity of his office. He had neither the will nor the capacity to argue. He looked through the leaded windows across the fields surrounding Chequers to an ancient beech wood. He tried to draw strength and confidence from the magnificent trees glowing golden in the evening sunshine of autumn. They had always been an inspiration to him, a constant reminder that all problems eventually pass, yet this evening, no matter how he tried, they left him feeling empty and hollow.
 
-He paused to produce a large silk handkerchief from within the folds of his trousers and wipe his brow, while Urquhart goaded him on. 'Surely it's not as bad as that, Ben. All Governments go through sticky patches. We've been through this all before - we'll pull out of it!'
+'What else do I do?'
 
-'Horlicks, Horlicks, bloody Horlicks. That's complacent crap, and you know it, Frankie. Haven't you seen your own latest poll? They phoned it through to me earlier this afternoon. You're down another 3 per cent, that's 10 per cent since the election. If you held it today, you'd get thrashed. Bloody annihilated!'
+'Nothing. Let us see precisely what the Observer says, then we shall have a better idea. In the meantime, instruct your press office to say nothing while we sort out your brother.'
 
-Urquhart relished the thought of the Telegraph headline tomorrow, but could not afford to show it. 'Damn. How on earth did you get hold of that? That will really hurt us at the by-election tomorrow.'
+Thank you, Francis. May I call you later when we see what they print? In the meantime, I would be grateful if you would contact Dr Christian. Sarah will be at my brother's home in just under two hours if she leaves right now. I'll instruct her immediately.'
 
-'Don't worry. I've told Preston to pull it. It'll leak, of course, and we'll probably get some flak in Private Eye about a politically inspired cover-up, but it'll be after the by-election and it will save your conference being turned into a bear pit' He sighed deeply. It's more than you bloody deserve,' he said more quietly, and Urquhart knew he meant it.
+Collingridge had adopted a formal tone in an attempt to stifle the tension inside him, but Urquhart could hear the emotion trembling in his voice.
 
-‘I know the PM will be grateful, Ben,' said Urquhart, feeling sick with disappointment.
+‘Don't worry, Henry. Everything will work out. Trust me.'
 
-'Course he will, but the gratitude of the most unpopular Prime Minister since polls began isn't something you can put in the bank.' 'What do you mean?'
+Charles Collingridge did not object when his sister-in-law let herself into the flat with the spare key. In fact, he was snoring soundly in an armchair, the clutter of an afternoon's heavy indulgence spread around him. He only began to object when Sarah had spent five frustrating minutes trying to shake him awake, and had resorted to ice wrapped in a tea towel. His objections became more vigorous when he began to understand what Sarah was saying, persuading him to 'come away for a few days', but the dialogue became totally incoherent when she began to question him about shares. She could get no sense out of him, and neither could she persuade him to move.
 
-‘Political popularity is cash. While you lot are in, I should be able to get on with my business and do what I do best -make money. That's why I've supported you. But as soon as your popularity begins to fade, the whole thing begins to clam up. The Stock Market sinks. People don't want to invest. Unions get bolshy. I can't look ahead. And it's been happening ever since June. The PM couldn't organise a farting contest in a baked bean factory. His unpopularity is dragging the whole Party down, and my business with it. Unless you do something about it, we're all going to disappear down a bloody great hole.' Do you really feel like that?'
+It took the arrival of Dr Christian and a Junior Whip almost an hour later before the situation progressed any further. An overnight bag was rapidly
 
-Landless paused, just to let Urquhart know it wasn't the champagne speaking. 'Passionately,' he growled. Then it looks as if we have a problem.' 'You do so long as he goes on like he is.' 'But if he won't change...' Then get rid of him!'
+￼packed, and the three of them bundled the still-protesting brother into the back of Dr Christian's car, which was parked out of sight at the back of the building. Fortunately for them, he had lost the physical coordination to take his objections further.
 
-Urquhart raised his eyebrows sharply, but Landless was not to be deflected, life's too short to spend it propping up losers. I haven't spent the last twenty years working my guts out just to watch your boss piss it all away.'
+Unfortunately, however, the whole matter had taken some considerable time, so that when the doctor's Granada swept out from behind the building into the High Street with Sarah and Charles in the back, the whole scene was witnessed by an ITN camera crew, the first to arrive on the scene.
 
-Urquhart found his arm gripped painfully by his guest's huge fingers. There was real strength behind the enormous girth, and Urquhart began to realise how Landless always seemed to get his way. Those he could not dominate with his wealth or commercial muscle he would trap with his physical strength and sharp tongue. Urquhart had always hated being called Frankie, and this was the only man in the world who insisted on using it. But tonight of all nights he did not think he would object. This was one argument he was going to enjoy losing.
+The video tape of a fleeing Charles apparently hiding in the back seat of the car and accompanied by the Prime Minister's wife was played on the late evening news, together with details of the Observer's allegations. The night duty editor at ITN had phoned the managing editor to get approval to play the tape before putting it on air. He wanted his arse covered by senior management on this one. As he had explained, 'Once this gets out, there's no way the Prime Minister can argue he's not involved right up to his neck.'
 
-'Let me give you one example, in confidence. OK, Frankie?' He pinned Urquhart still tighter in the comer. 'Very shortly I expect that United Newspapers will be up for sale. If it is, I want to buy it. In fact, I've already had some serious discussions with them. But the lawyers are telling me that I already own one newspaper group and that the Government isn't going to allow me to buy another. I said to them, you are telling me that I can't become the biggest newspaper owner in the country, even if I commit all of the titles to supporting the Government!'
+￼SUNDAY 17th OCTOBER
 
-Perspiration was slipping freely from his face, but he ignored it. You know what they said, Frankie? It's precisely because ‘I do support the Government that I'm in trouble. If I moved to take over United Newspapers the Opposition would kick up the most godawful stink. No one would have the guts to stand up and defend me. The takeover would be referred to the Monopolies and Mergers Commission where it would get bogged down for months with a herd of expensive lawyers stuck in a bloody committee room, with me having to listen to a bunch of closet queen bureaucrats lecturing me on how to run my own business. And whatever arguments I use, in the end the Government will bow to pressure and refuse to allow the deal to go through, because they haven't got the stomach for a public fight.'
+The scenes of the fugitive Charles Collingridge were still being played at midday on Sunday as Weekend Watch came on the air. The programme had been thrown together in frantic haste, and there were many untidy ends. The control room reeked of sweat and tension as the programme started. It had not been rehearsed fully, much of it was being done live, and the autocue for the latter stages of the programme was still being typed as the presenter welcomed his viewers.
 
-He blew cigar smoke in Urquhart's face.
+It had been impossible to find any Minister who would agree to appear on the programme, and one of the invited pundits had not yet arrived. A special overnight opinion poll had been commissioned through Gallup and the polling company's chief executive, Gordon Heald, was presenting the results himself. He had been kicking his computer all morning and was sitting slightly flushed under the hot lights. The computer analysis did nothing to help his sense of ease, for his polling agents had uncovered still further disenchantment with the Prime Minister.
 
-In other words, Mr Chief Whip, because your Government doesn't have the balls, my company is going to go through the wringer. Because you're buggering up your own business, you're going to bugger up mine as well!'
+Yes, admitted Heald, it was a significant fall. No, he acknowledged, no Prime Minister had ever won an election after being so low in the polls.
 
-The point had been forcefully made and the pressure applied. It was not a subtle way to lobby a Minister, but he had always found the direct approach to be far more effective than complicated minuets. Politicians could be bullied like any other men. He paused to refresh himself from his glass, waiting for a reply.
+The gloomy prognostications were supported by two senior newspaper commentators and an economist forecasting turmoil in the financial markets in the days ahead, before the presenter switched his attention to Peter Bearstead. Normally the garrulous East Midlands MP would have been videotaped beforehand, but there had been no time for recording. The Honourable and diminutive Member for Leicester North was on live. He was scheduled on the director's log for only two minutes fifty seconds, but the presenter soon discovered that it was the politician whohad taken charge of proceedings.
 
-Urquhart framed his response slowly, to emphasise that he too, like Landless, was speaking in earnest.
+‘Yes, Mr Bearstead, but how much trouble do you think the Party is in?' That depends.'
 
-'That would be a tremendous pity, Ben. You have been a great friend of the Party, and it would be a great shame if we were unable to repay that friendship. I cannot speak for the Prime Minister. In fact, I find myself increasingly unable to speak for him nowadays. But from my point of view, I would do everything I could to support you when you needed it.'
+'On what?'
 
-'That's good to know, Frankie. I appreciate it, very much. If only Henry could be so decisive, but I know that's simply not his nature. If it were up to me, he'd be out.'
+'On how long we have to go with the present Prime Minister.'
 
-'But isn't it up to you?'
+'So you are standing by your comment of earlier in the week that perhaps the Prime Minister should be considering his position?'
 
-￼'Me?'
+'Not exactly. I'm saying that the Prime Minister should resign. His present unpopularity is destroying the Party, and now he has become enmeshed in what looks like a family scandal. It cannot go on. It must not go on!'
 
-'You have your newspapers. They are tremendously influential, and you control them. One headline can make news and break politicians. You were saying that the polls show the public's dislike for the PM is undermining the whole Party. It's personal, not political.'
+'But do you think that the Prime Minister is likely to resign? After all, there are almost another five years before an election is necessary, and that must leave enormous scope for recovering lost ground.'
 
-Landless nodded his assent.
+'We will not survive another five years with this Prime Minister!' The MP was clearly agitated, rocking back and forth in his studio chair. It is time for clear heads, not faint hearts; and I am determined that the Party must come to a decision on the matter. If he does not resign, then I shall stand against him for election as Leader of the Party.'
 
-‘Let you say you are not going to publish because it will turn the conference into a bear fight. Do you really think you are going to be able to sort this out without one hell of a fight?'
+You will challenge him for the Party leadership?' the presenter spluttered in surprise. He was nervous, trying to follow the voluble MP while at the same time listening to instructions in his earpiece which were getting rapidly more heated. 'But surely you can't win?'
 
-The bullying Landless of a few moments ago had disappeared, to be replaced by a subtle man who understood every nuance of what was being suggested to him.
+'Of course I can't win. But it's up to the senior figures within the Party to grasp the initiative and sort the problem out. They are all constantly griping about it, but none of them has the guts to do anything. If they won't take a stand or won't act, then I will. Flush it into the open. We can't let this continue to fester behind closed doors.'
 
-‘I think I see your point, Frankie. And I think we understand each other.' ‘I think we do.'
+‘I want to be absolutely clear about this, Mr Bearstead. You are demanding that the Prime Minister resigns, or else you will stand against him for leadership of the Party... ?'
 
-They shook hands. Urquhart almost winced as his hand disappeared inside the vice-like grip of Landless. He knew the other's handshake was distinctly ambiguous - an expression of friendship, by all means, but also a promise to crush anyone who reneged on a deal.
+'There has to be a leadership election no later than Christmas: it's Party rules after an election. Instead of a mere formality I shall make it into a real contest where my colleagues will have to make up their minds.'
 
-'Then I have some work to do, Frankie. The Telegraph first edition is closing in less than thirty minutes and I shall have to make a telephone call.' He grabbed his jacket and draped it over his arm.
+There was a pained expression on the presenter's face. He was holding his earpiece, through which a shouting match was under way. The director was demanding that the dramatic interview should continue and to hell with the schedule; the editor was shouting that they should get away from it before the bloody fool changed his mind and ruined a sensational story.
 
-'Thanks for the party. It's been most stimulating.'
+'We shall be going for a short commercial break,' announced the presenter.
 
-Urquhart watched silently as the industrialist, damp shirt sticking closely to his broad back, shuffled across the crowded room and disappeared through the door.
+￼MONDAY 18th OCTOBER - FRIDAY 22nd OCTOBER
 
-Across the other side of the room beyond the dignitaries, journalists and hangers-on who were squashed together, Roger O'Neill was huddled on a small sofa with a young and attractive conference-goer. O'Neill was in an excited and very nervous state. He fidgeted incessantly and his words rattled out at an alarming pace. The young girl from Rotherham had already been overwhelmed with the names O'Neill had skilfully dropped and the passion of his words, and she looked on with wide-eyed astonishment, an innocent bystander in a one-way conversation.
+Shortly before midnight in London as the Tokyo financial markets opened, sterling began to be marked down heavily. By 9 a.m. and with all the Monday newspapers leading on the public challenge to Collingridge's leadership, the FT All Share Index was down 63 points, and down a further 44 points by ‘I p.m. when it became clear that Bearstead intended to proceed. The money men don't like surprises.
 
-The Prime Minister's under constant surveillance by our security men. There's always a threat. Irish. Arabs. Black Militants. One of them's trying to get me, too. They've been trying for months, and the Special Branch boys insisted on giving me protection throughout the election. Apparently, they'd found a hit list; if the PM were too well protected they might turn to targets close to the PM like me. So they gave me twenty-four-hour cover. It's not public knowledge, of course, but all the journos know.'
+The Prime Minister wasn't feeling on top form, either. He hadn't slept and had scarcely talked since Saturday evening. His wife had kept him at Chequers rather than allowing him to return to Downing Street, and had called the doctor. Dr Wynne-Jones, Collingridge's loyal and highly experienced physician, had immediately recognised the signs of strain and had prescribed a sedative and rest. The sedative gave some immediate release in the form of the first lengthy spell of sleep he had had since the start of the party conference a week earlier, but his wife could still detect the tension which fluttered beneath his closed eyelids and which kept his fingers firmly clamped onto the bedclothes.
 
-He dragged furiously at a cigarette and started coughing. He took out a soiled handkerchief and blew his nose loudly, inspecting it before returning it to his pocket.
+. Late on Monday afternoon when he had come out of his drugged sleep, he instructed the besieged Downing Street press office to make it known that of course he would contest the leadership election and was confident of victory. He was too busy getting on with official Government business to give any interviews, but undoubtedly he would have something to say later in the week. He effected to give a display of total authority and Prime Ministerial stature, but unfortunately no one had yet been able to get any sense out of Charles and there was not a word to be said to refute the allegations of illegal share dealing.
 
-'But why you, Roger?' his companion ventured.
+While Downing Street tried to give the impression of business as usual, over at party headquarters Lord Williams ordered additional opinion research to be rushed through. He wanted to know what the country really thought.
 
-'Soft target. Easy access. High publicity hit,' he rattled. If they can't get the PM, they'll go for someone like me.' He looked around nervously, his eyes fluttering wildly.
+The rest of the party machinery moved less quickly. For a further forty-eight hours it was stunned into silence by events which had suddenly sprung off in a totally unexpected direction. The rules for a contested leadership election following a general election were dusted off both in party headquarters and in the media, with many discovering for the first time that the process was under the control of the Chairman of the Parliamentary Party's Backbench Committee, Sir Humphrey Newlands, although the choice of timing was left in the hands of the Party Leader. This proved to be a wise decision since Sir Humphrey, displaying an acutely poor sense of timing, had left the previous weekend for a ten-day holiday on a private island in the West Indies, and was proving extraordinarily difficult to contact. Some speculated that he was deliberately keeping his head low while the awesome but invisible powers of the party hierarchy were mobilised to persuade Bearstead to withdraw. It would be only weeks rather than months, they thought, before Bearstead found himself preoccupied wilii a senior directorship in industry, in Government as a Junior Minister, or silenced in some other lucrative fashion.
 
-'Can you keep a confidence? A real secret?' He took another deep drag. They think I've been followed all week. And this morning I found my car had been tampered with, so the Bomb Squad boys went over it with a fine tooth comb. They found the wheel nuts on one of the front wheels had been all but removed. Straight home on the motorway, the wheel comes off at eighty miles an hour and - more work for the road sweepers! They think it was deliberate. The Murder Squad are on their way over to interview me right now.'
+By Wednesday, however, the Sun had discovered Sir Humphrey on a silver stretch of beach somewhere near St Lucia along with several friends, including at least three scantily clad young women who were obviously nearly half a century younger than him. It was announced that he would be returning to London as soon as flights could be arranged, for consultation about the election with the Prime Minister.
 
-'Roger, that's awful’ she gasped.
-
-'Mustn't tell anyone. The SB don't want to frighten them off if there's a chance of catching them unawares.'
-
-‘I hadn't realised you were so close to the Prime Minister’ she said with growing awe. 'What a terrible time for...' She suddenly gasped. 'Are you all right, Roger? You are looking very upset. Your, your eyes...' she stammered.
-
-O'Neill's eyes were flickering wildly, flashing still further lurid hallucinations into his brain. His attention seemed to have strayed elsewhere; he was no longer with her but in some other world, with some other conversation. His eyes wavered back to her, but they were gone again in an instant. They were bloodshot and watering, and were having difficulty in finding something on which to focus. His nose was dribbling like an old man in winter, and he gave it a cursory and unsuccessful wipe with the back of his hand.
-
-As she watched, his face turned to an ashen grey, his body twitched and he stood up sharply. He appeared terrified, as if the walls were falling in on him. She looked round helplessly, unsure what he needed, too embarrassed to make a public scene. She moved to take his arm and support him, but as she did so he turned on her and lost his balance. He grabbed at her to steady himself, caught her blouse and a button popped.
-
-'Get out of my way, get out of my way’ he snarled.
-
-He thrust her violently backwards, and she fell heavily into a table laden with glasses before sprawling back onto the sofa. The crash of glass onto the floor stopped all conversation in the room as everyone looked round. Three more buttons had gone, and her left breast stood exposed amidst the torn silk.
-
-￼There was absolute silence as O'Neill stumbled towards the door, pushing still more people out of the way as he tumbled into the night. The young girl clutched at her tattered clothing and was fighting back the tears of humiliation as he disappeared. An elderly guest was helping her rearrange herself and shepherding her towards the bathroom and, as the bathroom door shut behind the two women, a ripple of speculation began which quickly grew into a broad sea of gossip, washing backwards and forwards over the gathering. It would go on all evening. - Penny Guy did not join in the gossip. A moment before she had been laughing merrily, thoroughly enjoying the engaging wit and Merseyside charm of Patrick Woolton. Urquhart had introduced them more than an hour earlier, and had ensured that the champagne flowed as easily as their conversation. But the magic had been smashed with the uproar. As Penny had taken in O'Neill's stumbling departure, the sobbing girl's dishevelled clothing and the ensuing speculation and chatter, her face had dissolved into a picture of misery. She fought a losing battle to control the tears which had welled up and spilled down her cheeks and, although Woolton provided a large handkerchief and considerable support, the pain in Penny's face was all too real.
+Collingridge was back in Downing Street, but not in better spirits. Every day brought racy new headlines about turmoil in the Party as newspapers fought to find some new angle on the story. As still further reports began to circulate of growing disaffection between Downing Street and party headquarters, Collingridge began to find himself drifting, cut off from the information and advice which he had previously gained so freely from his wise and wily Party Chairman.
 

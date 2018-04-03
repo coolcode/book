@@ -1,141 +1,141 @@
 title: House of Cards 033
-date: 2015-01-24 15:44:02
+date: 2015-01-25 03:45:44
 tags: house-of-cards
 ---
 
-bunch of merry men has distinguished itself recently. A poor election campaign, then all those infuriating bloody leaks. Now I'm told that the news of my visit to the Palace yesterday also leaked out of the backdoor at Smith Square.'
+And she was also lonely. Her bed was once more an Arctic outpost fit only for penguins, and gave her no comfort from her other problems.
 
-His tone hardened. ‘I can't forgive that, Francis. The
+Yet the story kept taking over and pushing to one side
 
-Cabinet swore on their oaths of office to keep it confidential, to let me offer my resignation with some dignity
+any thoughts of dismay in her mind, while the Telegraph's editorial intervention had given it a totally new twist. Throughout the early evening she had watched the various television news programmes, all of which were dominated by speculation as to whether Urquhart would stand, and informing a generally unaware audience about what a
 
-instead of being the clown in a damned media circus. I will not stand for it. I will not have party headquarters interfering in this election!'
+￼Chief Whip actually does and who Urquhart was.
 
-He leaned towards Urquhart. ‘I suspect you have no great love for Teddy Williams, particularly after he did such an effective demolition job on your reshuffle proposals - I'm sure you guessed that at the time’
+She needed to talk, and without wishing to question too deeply the conflicting emotions which were tangling in her
 
-Urquhart was glad to have his suspicions confirmed. On Judgement Day it might help to justify a lot of his recent actions.
+mind she found herself waiting on a wooden platform which bobbed in the Thames tide alongside Charing Cross
 
-'So what can I do, Francis, to make sure this election is run properly?'
+pier. Just a few minutes later she could see the approach of
 
-Urquhart smiled to himself. A 'proper' election was now defined as one in which Michael Samuel felt the full force of the Prime Minister's revenge.
+the Telegraph's private river taxi which shuttled employees between the newspaper's dockland plant downstream and the rather more central and civilised reaches of the capital.
 
-￼￼￼￼￼'My interests, like yours, are simply to ensure fair play. I know that neither you nor I wish to interfere in any way - let party democracy have its way, of course. My only concern is that the process is likely to go ahead in such a rush that there will be no proper time for mature reflection or consideration. In the past, leadership elections have taken place only a week to ten days after they were announced - Ted Heath was elected just five days after
+As she had hoped, Krajewski was on board. He said nothing as he found her standing on the pier, but accepted her silent invitation to walk.
 
-Alec Douglas-Home resigned - but on those occasions the resignations were expected. People had time to think, to make a proper and balanced judgement. That won't be the case this time. I'm afraid it will all be over in a breathless rush, and become just another part of the media circus’ 'So?'
+It was a dry and clear November night, so they wrapped
 
-'So give them just a little longer to make their choice. Slow the pace down. Enjoy your last few weeks in office, and hand over to a successor who has been chosen by the Party, not the media’
+up warm and without speaking strolled along the Embankment, tracing the sharp curves of the river bank and with it the floodlit vistas of the Festival Hall and the Houses of Parliament beyond, with the tower of Big Ben looking
 
-'What you say makes sense. I've no wish to extend the period of uncertainty while the campaign is fought, but I'm sure an extra week or so could do no great harm.'
+down from high above. It was some time before he broke the silence. No questions about the other night, he decided. He knew what was foremost in her mind.
 
-He extended his hand towards Urquhart. 'Francis, I'm sorry to cut this short; Humphrey will be waiting outside. I
+'So what do you make of it all?'
 
-shall have to consult him as Chairman of the Backbench Committee, but the final choice on timing is entirely in my hands. I'm going to think very carefully overnight about what you have said, and let you know in the morning what I decide.'
+She smiled shyly in gratitude for the lifeline, for not demanding an explanation of her motives which she would not - or was it could not? - give.
 
-He led the Chief Whip towards the door. 'I'm so grateful, Francis. It's really comforting to have a source of advice with no axe to grind.'
+It's extraordinary. They're building him up like a Messiah on a white charger galloping to the rescue. Why did Grev do it?'
 
-Daily Telegraph. Wednesday 27th October. Page 1.
+‘I don't know. He just came in late yesterday, not a word to anyone, turned the paper inside out and produced his
 
-Samuel is favoured candidate -takes early lead in party soundings
+front page editorial from out of his pocket. No warning; no explanation. Still, seems to have caused quite a story. Perhaps he got it right after all.'
 
-Michael Samuel, the youthful Environment Secretary, was last night emerging as the early front runner to succeed Henry Collingridge as Party Leader and Prime Minister.
+Mattie shook her head. It wasn't Grev. He's not capable of making a decision like that. It took balls to position' - she almost used the word 'commit' but stopped herself just in time - 'to position the paper in that way, and it could only have come from one place: the desk of our – your beloved proprietor, Mr Landless. Last time he interfered he was dethroning Collingridge, now he's trying to hand the crown to someone else.'
 
-In a poll conducted during the last two days by the Telegraph amongst 212 of the 337 Government MPs eligible to vote, 24 per cent nominated him as their first choice in the forthcoming party leadership election, well ahead of other potential candidates.
+As they traced their way along the winding river bank, they kicked through the windswept piles of leaves and passed by the pale, massive bulk of the Ministry of Defence.
 
-While Samuel has yet to announce his candidature, he is expected to do so soon. Moreover, he is expected
+'But why? Why Urquhart?'
 
-to get the backing of influential party figures such as Lord Williams, the Party Chairman, whose influence as the Party's elder statesman could be crucial.
+'No idea,' Mattie responded. 'Urquhart is very low profile, although he's been in the House for many years. He
 
-No other name attracted more than 18 per cent. Five potential candidates obtained between 12 per
+comes across as being vaguely aristocratic, patrician, old school tie. He's something of a loner, certainly not one of the boys, which means he's got no great fan club but also no one hates him enough to campaign against him as they are doing with Samuel. Nobody knows what his views really are, he's never had to express them as Chief Whip.'
 
-cent and 18 per cent, including Patrick Woolton the Foreign Secretary, Arnold Dollis the Home Secretary,
+She turned to face him. You know, he might just slip through the middle as the man the others dislike least. Landless could have picked a winner.' 'You think hell stand, then?'
 
-Harold Earle the Education Secretary, Peter McKenzie the Health Secretary, and Francis Urquhart the Chief Whip.
+'Certain of it. He told me way back in June that there was going to be a leadership race, and he flatly refused then to rule himself out. He wants it all right, and he'll stand.'
 
-The inclusion of Urquhart's name in the list at 14 per cent caused something of a surprise last night at Westminster, as he is not even a full member of the Cabinet. As Chief Whip he has a strong base in the Parliamentary Party and could be a strong outside candidate. However, sources close to Urquhart last
+That sounds like a great feature - 'The Man Who Saw It Coming''.' If only I had a paper to write it for,' she said with a wistful smile.
 
-night emphasised he had made no decision to enter the contest, and he would clarify his position sometime today.'
+He stopped and looked at Mattie, her fair hair glowing in the lights which bounced back from the soft yellow stone of the Houses of Parliament behind her, wondering if he detected a hint of regret in her voice.
 
-'Mattie, I think I've got it!'
+'Grev refuses to print your story and then announces the paper's support for Urquhart Defusing one bomb and then launching another. Isn't that a bit of a coincidence?'
 
-Krajewski was striding across the room as if he had discovered a blazing fire in his pocket. He was breathless
+I've been thinking about that all day,' she said. 'The simple explanations are always the easiest to accept, and
 
-with excitement. As he reached Mattie's desk in the Telegraph news room, he pulled a lOx 12 colour photograph out of the large manila envelope he was clutching, and threw it on her desk. The face of the driver stared at her, slightly blurred and distorted from the lines of the video screen, but nonetheless clearly recognisable.
+the simple fact is that Grev Preston is a pathetic excuse for
 
-‘Freddie came up trumps. He took this along to his meeting of AA last night, and the group leader recognised it immediately. It's a Dr Robert Christian, who's a well known authority on the treatment of drug and alcohol
+an editor who is terrified of getting anything wrong. Knowing that Landless was going to throw Urquhart's hat into
 
-addiction. Runs a treatment centre in a large private house near the south coast in Kent. That's where our Charlie is bound to be’ He was flushed with triumph.
+the ring, he didn't have the nerve to upset his proprietor's plans and I suspect he found my story simply too hot to handle.'
 
-'Johnnie, I could kiss you - but not in the office!'
+'So you think Landless may be at the bottom of it all?'
 
-His face contorted into a picture of mock misery.
+It's possible. He certainly welcomed the leadership contest, but then so did many others. Urquhart told me the weekend after the election of all the internal rivalry and bitterness inside the Government. Whoever is stirring it behind the scenes, we have the entire Cabinet to choose from, as well as Landless. And I am going to find out who.'
 
-'And there I was hoping you would want to sleep your way to the top...' he said mournfully.
+‘But how, without a newspaper?'
 
-The Prime Minister read all the newspapers that morning. He smiled ruefully as he read the commentaries which a week before had been excoriating him and for the most part were now, in their fickle and inconstant fashion, lauding him for his statesmanlike and responsible action in allowing the Government to make a fresh start - 'although he must still resolve many outstanding personal and family
+'Preston has been stupid enough to insist that I shall remain employed by the Telegraph for another three months. OK. They may not print it, but I'm still a journalist and I can still ask questions. If the truth is half as devious as I suspect it is, the story will still he worth printing in three months' or even three years' time. They can't lock up the truth for ever. I may have lost my job, Johnnie, but I haven't lost my curiosity.'
 
-issues to the public's satisfaction', thundered The Times. As always, the press had no shame in playing both sides.
+And what about your commitment? he asked silently.
 
-He read the Telegraph particularly carefully, and twice. Their prompt polling of Government MPs had given them
+'And will you be my spy on the inside, keeping an eye on what that bastard Landless is up to?' He nodded, wondering just how much she was using him.
 
-a lead over the other journals, many of which were forced to
+Thanks, Johnnie,' she whispered. She squeezed his hand, and disappeared into the night.
 
-refer to the poll findings in their later editions. The consensus seemed to be emerging: it was an open race but Samuel was clearly the front runner.
+TUESDAY 16th NOVEMBER
 
-￼He summoned his political secretary.
+The following day's news was still being dominated by intense speculation as to whether Urquhart would run. It was clear that the media had excited itself to the point where they would feel badly let down if he didn't, yet at
 
-'Grahame. I want you to send an instruction to Lord Williams, with a copy to Sir Humphrey Newlands. Party headquarters are to issue a press release at 12.30 this afternoon for the lunchtime news that nominations for election as Leader of the Party will close in three weeks' time, on Thursday November 18, with the first ballot to take place on the following Tuesday November 23. If a second ballot is required it will be held as prescribed by the Party's rules on the following Tuesday, November 30, with any final run-off ballot two days later. Have you got that?'
+3 p.m. he was still keeping his own counsel. By this time, Mattie was feeling irked, not by Urquhart but by O'Neill. She had been waiting in his office with growing impatience for a full half hour.
 
-He noticed his secretary's obvious anguish. It was the first time since his resignation announcement that they had been able to talk.
+When she had telephoned party headquarters the previous day wanting to get an official view about computers,
 
-That means in exactly six weeks and one day, Grahame, you and I will be out of a job. Don't worry. You've been an
+literature sales, accounting procedures, Charles Collingridge and all the other things which were bothering her, she
 
-excellent aide to me. I haven't always found time as I should to thank you properly in the past, but I want you to know I'm very grateful.'
+discovered that Spence had been absolutely right about the ban on staff contact with the media for the duration of the
 
-The aide shuffled with embarrassment.
+campaign. She could only deal with the press office, and no press officer seemed capable or willing to talk to her about computers or accounts.
 
-'You must start thinking about your own future. I'm certain that there are several newly knighted gentlemen in
+'Sounds as if you are investigating our expenses,' a voice only half-jokingly had said down the telephone.
 
-the City or any other part of industry who would be happy to make you a generous offer. Think about it for a few days and let me know what interests you. I still have a few favours to cash in.'
+So she had asked for the Director of Publicity's office, and had been put through to Penny Guy. Mattie asked to come and talk the following morning with O'Neill, whom she had met a couple of times at receptions.
 
-The secretary mumbled his thanks, looking much relieved, and made to depart
+'I'm sorry, Miss Storin, but Mr O'Neill likes to keep his mornings free to clear his paper work and for internal
 
-'By the way, Grahame. It's possible that the Party Chairman might seek to get hold of me and encourage me to shorten the period of the election process. I shall not be available, and you are to ensure he realises that these are instructions, not terms for negotiation, and they are to be issued without fail by 12.30.'
+meetings.' It was a lie, and one she was increasingly forced to use as O'Neill's time keeping had become spectacularly
 
-There was a short pause.
+erratic. He rarely came into the office before ‘I p.m. nowadays. 'How about 2.30 in the afternoon?' she had suggested, playing safe.
 
-'Otherwise, tell him, I shall be forced to leak them myself.'
+She did not comprehend the mind-pulverising effects of cocaine, which kept O'Neill hyperactive and awake well into the small hours, unable to sleep until a cascade of depressant drugs had gradually overwhelmed the cocaine and forced him into an oblivion from which he did not return before midday or later. She did not comprehend this, but she suffered deeply from it nonetheless.
 
-It is often written that time and tide wait for no man. They certainly did not wait that day for Michael Samuel. He had
+Now she was getting increasingly embarrassed as Mattie sat waiting for O'Neill. He had promised his secretary faithfully he would be on time, but as the wall clock ticked remorselessly on, her ability to invent new excuses disappeared completely. Her faith in O'Neill, with his public bravado and his private remorse, his inexplicable behaviour and his irrational outbursts, was slowly and painfully fading.
 
-been as openly astounded and as privately elated by Collingridge's bombshell as the rest of his colleagues. His
+She brought Mattie yet another cup of coffee.
 
-natural enthusiasm had quickly turned to the positive aspect of events, and the opportunities which they afforded
+‘let me give him a call at home. Perhaps he's had to go back there. Something he forgot, or not feeling too well...'
 
-him. He recognised that no one started the race as favourite, and that he had as good a chance as any, if he played his cards right.
+She sat on the corner of his desk, picked up the direct line and punched the numbers. With some embarrassment she greeted Roger on the phone, explaining that Mattie had been waiting for more than half an hour and ... Her face became gradually more concerned, then anguished and finally horrified before she dropped the phone and fled from the office as if pursued by demons.
 
-He had consulted the redoubtable Lord Williams, who agreed on his assessment of his chances. 'Patience,
+Mattie watched these happenings with complete astonishment, rooted to her chair, clutching her saucer, unable to speak or move. As the door banged shut behind the fleeing secretary she rose and moved over to the phone, picking the dangling receiver up from where it was swinging beside the desk and putting it to her ear.
 
-Michael,' he had advised. 'You will almost certainly be the youngest candidate, and they will try to say you are too
+The voice coming out of the phone was unrecognisable as that of O'Neill, or indeed anyone. The words were incoherent, indecipherable, slowed and slurred to the point where it sounded like a doll with the batteries almost dead. There were gasps, moans, long pauses, the sound of tears.
 
-youthful, too inexperienced and too ambitious. So don't look too much as if you want the job. Show a little restraint, and let them come to you.'
+falling, and of a man falling apart She replaced the receiver gently in the cradle.
 
-Which was to prove excellent advice, but entirely irrelevant to the circumstances. The media had been
+Mattie went in search of the secretary, and found her washing her face in the cloakroom. Her eyes were red and swollen. Mattie put a consoling arm around her shoulders.
 
-having a busy day. No sooner had the Telegraph hit the streets promoting Samuel's name than Urquhart appeared in front of television cameras to confirm that he had no intention of standing, because he felt it was in the Party's best interests that the Chief Whip should be entirely impartial in this contest. These two events had the instant effect of getting the media hunt firmly under way for those candidates who would be standing, and promoting a wide degree of praise for Urquhart's unselfishness and loyalty. The release later that morning of the detailed timetable for nomination and election only added fuel to the flames. None of which helped the front runner.
+'How long has he been like that, Penny?'
 
-By the time the television cameras had tracked him down to the Intercontinental Hotel off Hyde Park, which
+‘I can't say anything!' she blurted, and started weeping once more.
 
-he was just about to enter for an early lunch meeting, they were in no mood to accept conditional answers. He couldn't say no, they wouldn't accept maybe, and after some considerable harassment he was forced into making a reluctant announcement that he would indeed be running.
+'Look, Penny, he's obviously in a very bad way. I'm not going to print any of this, for goodness sake. I would like to help.'
 
-The one o'clock news offered a clear contrast between Urquhart, in a dignified and elder party statesman role declining to run, and the youthful and apparently eager Samuel, holding an impromptu press conference on the street and launching himself as the first official candidate, nearly a month before the first ballot was to be held.
+The other girl turned towards Mattie, fell into her arms, let the pain and worry of the last few months gush out, and sobbed until there were no more tears left.
 
-As Urquhart watched the proceedings with considerable satisfaction, the telephone rang. A gruff voice which he
+When she had recovered sufficiently to escape from the cloakroom, Mattie took her gently by the arm and they went for a walk in nearby Victoria Gardens, where they could refresh themselves in the cold, vigorous air blowing off the Thames and talk without interruption. Penny told her how the Prime Minister's resignation had deeply upset O'Neill, how he had always been a little 'emotionally extravagant', as she put it, and the recent internal party turmoil and Prime Minister's resignation had really brought him close to a breakdown.
 
-recognised instantly as Landless said simply, 'Moses parted the Red Sea. We shall see whether Michael can catch the tide.'
+'But why, Penny? Surely they weren't that close?'
 
-They both laughed before the voice rang off.
+'He liked to think he was close to the whole Collingridge family. He was always arranging for flowers and special photographs to be sent to Mrs Collingridge, doing little favours whenever he could. He loved it all.'
 
-￼SATURDAY 30th OCTOBER
+Mattie shrugged her shoulders, as if she were shrugging off O'Neill's reputation once and for all. It's a great pity, of course, that he should be so weak and go to pieces just when the Party needs him most. But we both heard him this afternoon, Penny. Something has really got to Roger, something which is eating away at him from the inside.'
 
-The following Saturday, Mattie had a clear day. She climbed into her BMW, filled it with petrol, and pointed it in the direction of Dover. Having barged her way through the shopping crowds of Greenwich, she emerged with great relief onto the A2, the old Roman road which for nearly two thousand years had pointed the way from London into the heart of Kent. It took her past the cathedral town of Canterbury, and a few miles beyond she turned off at the picturesque little village of Barham. Her road map was not very helpful in finding the even smaller village of Norbington nearby, but with the help of several locals she found herself some while later outside a large Victorian house, bearing a. subdued sign in the shrubbery which announced, 'Fellowship Treatment Centre'.
+Mattie threw down the challenge. It wasn't fair, of course, but she gambled that Penny would not stand by and see O'Neill accused of weakness. She would loyally try to defend her boss - and would not lie in order to do so.
 

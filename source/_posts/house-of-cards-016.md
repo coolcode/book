@@ -1,79 +1,113 @@
 title: House of Cards 016
-date: 2015-01-24 15:44:18
+date: 2015-01-25 03:46:01
 tags: house-of-cards
 ---
 
-‘I am sure that could be arranged. Perhaps you and your wife would like to attend a reception at Downing Street?'
+Somewhat donnishly Spence explained the foibles of opinion polling, the margin of error you should always remember, the rogue polls which in spite of all the pollsters' efforts still sneaked through and simply got it wrong. like the one I've just seen’ Mattie remarked with a twinge, still tender from her earlier embarrassment,
 
-The Indian was nodding. It would be an honour, of course, to be able to have just a few private words with him, simply to express my great personal enthusiasm.'
+'What do you mean?' Spence enquired sharply.
 
-"That might be possible, too, but you will understand that the Prime Minister himself could not accept the money. It would not be-how should I put it? - delicate for him to be involved with such matters.'
+Mattie looked at him and saw that the affable official had now developed a flush which even as she looked was spreading from the collar up to the
 
-'Of course, of course, Mr Urquhart. Which is why I would be delighted if you would accept the money on his behalf.'
+￼eyes. The eyes themselves had lost their eagerness. Spence was not a trained politician and was not adept at hiding his feelings, and the confusion was flowing through. Why was he so flustered? Mattie mentally kicked herself. Surely the damned figures couldn't be right after all? The dynamic young reporter of the year had already jumped several somersaults that morning, and feeling rather sour with herself decided that one more leap could scarcely dent her professional pride any further.
 
-I'm afraid I can only give you a rudimentary receipt. Perhaps you would prefer to deliver the money directly to the party treasurers.'
+‘I understand, Kevin, that your latest figures are quite disappointing. In fact, somebody mentioned a figure of 31 per cent.'
 
-Jhabwala threw up his hands in horror. 'Sir, I do not require a receipt from you. You have my fullest trust. It was you as my local Member of Parliament I wished to see, not a party official. I have even taken the liberty of engraving your initials on the hide case, Mr Urquhart, a small gesture which I hope you will accept for all your dutiful work in Surrey.'
+Spence, whose cheeks had been getting even redder as Mattie spoke, reached for his tea to give himself time to think, but his hand was trembling.
 
-You crafty, ingratiating little sod, thought Urquhart, all the while smiling broadly at Jhabwala and wondering how long it would be before he got the first call about planning permission. Perhaps he should have thrown the Indian out, but an idea was already forming in his mind. He reached across the table and shook Jhabwala's hand warmly.
+'And the PM personally is down to 24 per cent’ she ventured. ‘I can't remember any Prime Minister being as unpopular as that.'
 
-It has been a great pleasure meeting you at last, Mr Jhabwala.'
+At this point the tea began to spill from the cup, and Spence returned it quickly to the saucer.
 
-The night was hot and humid, even for late July. Mat tie had taken a long, cool shower and thrown the windows wide open, but she could get no relief from the still and heavy air. She lay in the darkness upon her bed, feeling her hair stick clammily to the nape of her neck. She could not sleep while the scenes of parliamentary turmoil she had witnessed earlier in the day kept tumbling through her thoughts. But there was something else, too, something not of the mind but in her body that was disturbing her, making her restless.
+‘I don't know what you're talking about’ he muttered, addressing the napkin which he was using to mop up the tea.
 
-She lay back on her lonely, cold bed and felt the dampness trickling between her shoulder blades. She could not forget that it was the first time since Yorkshire she had sweated in bed, for any reason...
+'Aren't these your latest figures?' Mattie reached once more inside her bag and pulled out the mysterious sheet of paper which she proceeded to smooth on the table cloth. As she did so, she noticed for the first time .the initials KJS typed along the bottom.
 
-￼FRIDAY 23rd JULY
+Spence reached out and tried to push the paper away from him, seemingly afraid to get too near to it 'Where on earth did you get that?' He looked around desperately to see whether anyone had noticed the exchange.
 
-The following morning a young black woman walked into a scruffy newsagents just off Praed Street in Paddington and enquired after the cost of accommodation address facilities advertised on the card in the shop window. She explained that she was working in the area and needed a local address to which she could direct her mail. It was a brilliant summer's day in London, but behind the thick shutters and dirty windows the shop was dark and musty. At first the fleshy, balding assistant behind the counter scarcely lifted his eyes from his copy of Playboy. This was one of London's notorious red light areas, and young women or seedy men asking to open an accommodation address was one of the less surprising requests he had to deal with. This girl was particularly attractive, though, and he wondered where she did business. His wife was staying with her mother over the weekend, and a little distraction would be better than the long list of household jobs she was threatening to leave behind.
+Mattie picked up the piece of paper and began reading it out loud.' "Opinion Research Survey Number 40" - this is yours, isn't it?' Yes, but... Please, Miss Storin!'
 
-He brushed away the cigarette ash he had spilled over the counter and smiled encouragingly at her. He got no response, however. With scarcely another word, the young woman paid the fee for the minimum three months, carefully put away the receipt which would be needed for identification, and left.
+He was not used to dissembling. Spence was clearly deeply upset, and seeing no way of escape decided to throw himself on the mercy of his breakfast companion. In a hushed voice, and still looking nervously around the room, he pleaded with her.
 
-The assistant had time only for one last look at the retreating and beautifully curved backside before he was engaged by the complaints of an old age pensioner who had not yet received her morning newspaper, and he did not see the young woman get into the taxi outside.
+I'm not supposed to talk to you about any opinion research. It's strictly confidential.'
 
-'All right, Pen?' asked the man waiting inside.
+‘But Kevin, it's only one piece of paper.'
 
-‘No problem, Roger’ his secretary answered. 'But why couldn't he do it himself?'
+You don't know what it's like. If these figures get out, and I'm the one thought to have given them to you, I'd be out on my ear. Everyone's looking for scapegoats. There are so many rumours flooding around. The PM doesn't trust the Chairman. The Chairman doesn't trust us. Everybody says that heads are going to roll. I like my job, Miss Storin. I can't afford to be blamed for leaking confidential figures to you.'
 
-'Look, I told you that he has some delicate personal problems to sort out and needs some privacy for his mail. Dirty magazines for all I know. So no questions, and not a word to anyone. OK?'
+‘I didn't realise morale was so bad.'
 
-Urquhart had sworn him to secrecy, and he suspected that the Chief Whip would be furious if he discovered that O'Neill had got Penny Guy to carry out his dirty work. But he knew he could trust Penny with such chores. After all, what were secretaries for?
+Spence looked utterly miserable. I've never known it worse. Everyone was exhausted after the election, and there was a lot of bad feeling flying around because the result wasn't as good as we expected. Then all those leaks and reports that the Cabinet were at each other's throats, so instead of a long break during the summer Lord Williams kept us all hard at it. Frankly, all most of us are trying to do is to keep our heads down so that when it hits the fan we get as little of it as possible.'
 
-As the taxi drew away, Penny once again remarked to herself how strangely O'Neill was beginning to act nowadays.
+He looked at Mattie eye-to-eye for the first time. 'Please don't drag me into this.'
 
-The day was growing ever hotter by the time the man in the sports jacket and trilby hat ventured into the North London branch of the Union Bank of Turkey on the Seven Sisters Road. The Cypriot counter clerk often swore that Englishmen only ever had one set of clothes which they wore throughout the winter or summer, irrespective of the temperature. And this one obviously had money since he wanted to open an account. In a slight but perceptible regional accent which the clerk could not quite place, he explained that he lived in Kenya but was visiting the United Kingdom for a few months to develop the holiday business which he ran. He was interested in investing in a hotel which was being built just outside the Turkish resort of Antalya, on the southern Mediterranean coast.
+'Kevin, you did not leak this report to me and I shall confirm that to anyone who wants to know. But if I'm to help you I shall need a little help myself. This is your latest polling report, right?'
 
-The clerk responded that he did not know Antalya personally, but had heard that it was a beautiful spot, and of course the bank would be delighted to help him in whatever way possible. He offered the prospective customer a simple registration form, requiring details of his name, address, previous banking reference and other details.
+She slipped the paper back across the table. Spence took another anguished look at it and nodded in confirmation.
 
-Five minutes later, the customer had returned to the clerk's window with the completed form. He apologised f6r being able to provide a banking reference only from Kenya, but this was his first trip to London in nearly twenty years. The clerk assured the older man that the bank was very accustomed to dealing with overseas enquiries, and the banking reference in Kenya would be no problem.
+They are prepared, by you and circulated on a tightly restricted basis?’ Another nod.
 
-That's what you think, the other thought. He knew it would take at least four weeks for the reference to be checked, and probably another four before it could be clearly established that the reference was false. By that time the account would have been closed with all bank charges paid, so no one would care or question.
+'All I need to know from you, Kevin, is who gets them. That can't be a state secret, can it?'
 
-The clerk sought no further verification of any of the other items on the form. 'How would you like to open your account, sir?'
+There was no more fight left in Spence. He seemed to hold his breath for a long time before replying.
 
-‘I would like to make an initial deposit of £50,000 - in cash’
+'Numbered copies are circulated in double-sealed envelopes solely to Cabinet Ministers and five senior headquarters personnel: the Deputy Chairman and four senior directors.'
 
-The man pulled open a brown corduroy holdall and passed the bundles of notes across the counter. He was glad he did not have to count them. It had been years since he had last worn these glasses, and in the meantime he had changed his contact lens prescription twice. His eyes were not focusing properly and they ached, but Urquhart knew that his simple disguise would be more than enough to avoid recognition by any but his closest colleagues. There was after all some benefit in being the most faceless senior member of Her Majesty's Government, he told himself sarcastically. He delighted at long last in being able to take advantage of his enforced anonymity.
+He tried to moisten his mouth with another drink of tea, but discovered he had already spilt most of it. How on earth did you get hold of it?'
 
-The clerk had finished counting the money, with a colleague double checking the total, and was already filling out a receipt. Banks are like plumbers, Urquhart thought, cash in hand and no questions asked.
+‘Let's just say someone got a little careless, shall we?'
 
-'Rather than have the cash just sitting idle in a current account, I would like you to purchase some shares for me. Can you arrange that?' he requested.
+'Not my office?' he gasped, his insecurity flooding out.
 
-It took only another five minutes for Urquhart to fill out two further forms placing an order for 20,000 ordinary shares in the Renox Chemical Company PLC, currently trading at just over 240p per share. He was assured that the order would be completed by 4 p.m. that afternoon, at a cost of £49,288 including stamp duties and brokers' fees, leaving him exactly £712 in his new account Urquhart signed the forms with a flourish and a signature that was illegible.
+'No, Kevin. You've just given me the names of over two dozen people who receive the figures, and with their secretaries it would bring the possible number of sources to well over fifty.' She gave him one of her most reassuring, warm smiles. Don't worry, I won't involve you. But let's keep in touch.'
 
-￼The clerk smiled as he pushed the receipt across the counter. 'A great pleasure doing business with you, Mr Collingridge’
+Mattie left the breakfast room. She should have been feeling elated about the front page story she was now able to write but she was wondering too hard how the devil she was ever going to identify the turncoat.
 
-￼MONDAY 26th JULY - WEDNESDAY 28th JULY
+￼Room 561 in the hotel could not be described as five star. It was one of the smallest rooms, far away from the main entrance and at the end of the top floor corridor under the eaves. The party hierarchy did not stay here, it was definitely a room for the workers.
 
-Seventy-two hours later MPs gathered in the House to begin the final week of bickering before the summer recess. There were relatively few Members present, as many of their colleagues had tried to take their leave of London early. There had been little attempt to dissuade them, since there was already enough tetchiness around Westminster without piling on needless aggravation. There was very much an end-of-term mood amongst the parliamentarians and little business was done. However, the Hansard record of parliamentary proceedings for that day would be thick, fleshed out with a remarkable number of Written Answers to MPs' questions which the Government were anxious to deal with while attention was diverted elsewhere and before Ministers and their civil servants left for their own recuperation. Ministers from the Department of Health were particularly careful not to be seen around the corridors of Westminster that day, because one of the many Written Answers they had issued concerned the long-awaited postponement of the hospital expansion programme. They did not expect to get much comfort from MPs of any party on that subject.
+Penny Guy hadn't heard the steps outside in the corridor before the door burst open. She sat bolt upright in bed, startled and exposing two perfectly formed breasts.
 
-It was not surprising, therefore, that few noted another announcement from the Department concerning a list of three drugs which the Government, on the advice of their Chief Medical Officer and the Committee on the Safety of Medicines, were now licensing for general use. One of the drugs was Cybernox, a new medication developed by the Renox Chemical Company PLC which had proved startlingly effective in controlling the craving for nicotine when fed in small doses to addicted rats and beagles. The same excellent results had been obtained during extensive test programmes with humans, and now the drug had been approved for general use under doctor's prescription.
+'Shit, Roger, don't you ever bloody knock?' She threw a pillow at the intruder. 'And what the hell are you doing up so early? You don't normally surface until lunchtime.'
 
-The announcement caused a flurry of activity at Renox Chemicals. A press conference for the medical and scientific press was called for the following day, the Marketing Director pressed the button on a pre-planned mail shot to every single general practitioner throughout the country, and the company's broker informed the Stock Exchange of the new licence.
+She did not bother to cover herself as O'Neill sat down at the end of the bed. There was an ease between them suggesting an absence of any sexual threat which would have startled most people. O'Neill constantly flirted with her, particularly in public, but on the two occasions when Penny had offered, O'Neill had been very affectionate and warm but had complained of being too exhausted. She guessed he had a deep streak of sexual insecurity running through him, which he hid beneath flattery and innuendo. Penny had heard from other women who had spent time with O'Neill that he was frequently too exhausted - attentive, Very forward, suggestive, but rarely able to commit himself fully. She was very fond of him, and longed to ease the insecurities out of him with her long, electric fingers, but she knew he would not drop his guard long enough to let her weave her magic. She had worked for O'Neill for nearly three years and had seen him slowly change as he found the pressures of political and public life increasingly infatuating, yet steadily more difficult to cope with.
 
-The response was immediate. Shares in the Renox Chemical Company PLC jumped from 244p to 295p. The 20,000 ordinary shares purchased two days before by the Union Bank of Turkey's brokers were now worth exactly £59,000.
+To those who did not know him well he was extrovert, amusing, full of charm, ideas and energy. But Penny had watched him become increasingly erratic. He rarely came into the office nowadays before noon,’ he had started making many private phone calls, getting agitated, disappearing suddenly. His constant hay fever and sneezing were unpleasant, but Penny was devoted to him. She did not understand many of the odd ways he had developed -particularly why he would not sleep with her. She had that strange blindness for him which comes with daily familiarity and strong affections. But she knew he depended on her. If he didn't need her in bed, he needed her practically every other moment of his day. It wasn't the same as love, but her warm heart responded anyway. She would do
 
-Shortly before noon the next day, a telephone call instructed the bank to sell the shares and credit the amount to the appropriate account. The caller also explained that regrettably the hotel venture in Antalya was not proceeding, and the account holder was returning to Kenya. Would the bank be kind enough to close the account, and expect a visit from the account holder later that afternoon?
+almost anything for him.
 
-Just before the bank closed at 3 p.m. the same bespectacled man in the hat and sports jacket walked into the branch on Seven Sisters Road and collected £58,962 which he placed in bundles of £20 notes in the bottom of his brown corduroy bag. He bridled at the £750 in charges which the bank had levied on his short-lived and simple account but, as the deputy manager had suspected, he chose not to make a fuss. He asked for a closing statement to be sent to him at his address in Paddington, and thanked the clerk for his courtesy.
+‘You got up this early just to come and woo me, didn't you? You can't resist me after all,' she teased.
+
+'Shut up, you little tart, and cover up those gorgeous tits. That's not fair.'
+
+Smiling wickedly, she lifted her breasts up towards him, goading him. 'Can't resist them after all. Well, who am I to refuse an order from the boss?'
+
+Playfully she threw the bedclothes off her naked body and moved over on the mattress to make room for him. O'Neill's eyes couldn't help but follow the line of her long legs, and for the first time since Penny had known him he began to blush. She giggled as she noticed him staring hypnotically at her body, and he made a grab for the bedclothes to try and cover her up but instead succeeded only in losing his balance and getting tangled up in her long brown arms. As he lifted his head off the mattress, he found a rigid dark nipple staring at him from less than three inches away, and he had to use all of his strength to tear himself free. He retreated to the other side of the small room, visibly shaking.
+
+‘Pen, please! You know I'm not at my best this early in the morning.'
+
+'OK, Roger. Don't worry. I'm not going to rape you.' She was laughing playfully as she pulled the sheets loosely around her. ‘But what are you doing up so early?'
+
+I've just left this incredibly beautiful Brazilian gymnast who has spent all night teaching me a whole series of new exercises. We didn't have any gymnastic rings, so we used the chandelier. OK?'
+
+She shook her head firmly.
+
+'How could one so young and beautiful be so cynical?' he protested. 'All right. I had to make a delivery in the vicinity and I thought I'd come and say good morning.'
+
+He didn't bother to add that Mattie Storin had nearly caught him as he was placing the document amongst the newspapers, and he welcomed the chance to lie low in his secretary's room for a while. He was still elated at the trouble which the leaked poll would cause the Party Chairman, who had been openly hostile to him in the last few weeks. Through his paranoia, worked on by Urquhart, he had failed to notice that the hard-pressed Williams had been short with most of his colleagues as well.
+
+Penny tried to bring him back down to earth. 'Yeah, but next time you come to say good morning, try knocking first. And make it after 8.30’ 'Don't give me a hard time. You know I can't live without you.'
+
+'Enough passion, Roger. What do you want? You have to want something, don't you, even if not my body?'
+
+'Actually, I did come to ask you something. It's a bit delicate really...'
+
+'Go ahead, Roger. You can be frank. You've already seen there's no one else in the bed!' She started laughing again.
+
+O'Neill began to recover his salesman's charms, and started upon the story which Urquhart had drummed into him me previous evening.
+
+'Pen, you remember Patrick Woolton, the Foreign Secretary. You typed a couple of his speeches during the election, and he certainly remembers you. He asked after you when I saw him last night and I think he's rather smitten with you. Anyway, he wondered if you would be interested in dinner with him but he didn't want to upset or offend you by asking direct, so I sort of offered to have a quiet word as it might be easier for you to say no to me rather than to him personally, you see’
+
+￼'OK, Roger’ 'OK what, Pen?'
+
+'OK. I'll have dinner with him. What's the big deal?' 'Nothing. Except... Woolton's got a bit of a reputation with the ladies. He might just want more than - dinner.' Hoger, every man I've ever been out with since the age of fourteen has always wanted more than dinner. I can handle it. Might be interesting. He could improve my French!' She burst into fits of giggles once again, and threw her last pillow at him. O'Neill retreated through the door as Penny was looking around for something else to throw.
 

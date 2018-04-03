@@ -1,123 +1,57 @@
 title: House of Cards 035
-date: 2015-01-24 15:44:00
+date: 2015-01-25 03:45:42
 tags: house-of-cards
 ---
 
-'Kevin, Charles Collingridge ordered material from the Party's sales andliterature service and asked them to be delivered to an address inPaddington. Right?’
+'What do you think? Will he get away with it?'
 
-'Correct. I checked it as soon as I heard, but it's there all right. Look.'
+If I know our Ben, he won't be relying just on industrial logic or compelling rhetoric. He will have prepared the ground very carefully beforehand. We'll soon see how many politicians owe him favours.'
 
-He tapped a few characters on the keyboard, and up came theincriminating evidence on the screen.
+The answer seemed to be that many politicians owed Landless, at least on the Government side. With nominations closing the following day and the first ballot due in just a week, few contenders seemed willing to risk antagonising the combined might of the Telegraph and United groups and their substantial number of national newspapers. Within hours the endorsements for Landless grew into a stampede of support amongst contenders as they struggled not to be left behind in finding airtime to praise his 'enlightened and patriotic industrial leadership'. By teatime, Landless was well pleased with his day's work and the careful planning which had gone into it. Once again, it seemed that his sense of riming and understanding of politicians had been just right. The Independentcould not resist the temptation to have a dig at the proceedings. 'The Landless announcement burst like a grenade in the middle of the leadership race -which presumably was his intention. The sight of so many senior politicians falling over themselves to kiss his hand was reminiscent of Tammany Hall at its worst. It is salutary to reflect that these very same politicians, just a few months ago at the time when Landless bought out Telegraph Newspapers, were insisting that he sign a public declaration of non-interference with the editorial policies of his newspapers. Only on the basis of that solemn and binding undertaking did they allow the purchase to proceed. Today, in their craven attempts to placate Landless, they are acting as if they automatically assume that alongside his personal support goes the editorial support of his many newspapers. They seem to prefer to swim with sharks rather than honour their own undertakings.'
 
-'Chas Collingridge Esq 216 Praed St Paddington London W2 — 001 A’01.0091.'
+Not all the aspirants joined the stampede, however. Samuel was cautious and noncommittal - he had too many knife wounds in his back from the previous weeks to wish to stick his head above the parapet yet again, and he said he wished to consult the workforce of the two groups before reaching his decision. Immediately the union representatives issued their vigorous denunciation of the scheme. They had noted that there were no guarantees about job security in the published document, and they had plenty of experience of Landless's quite ruthless 'industrial rationalisation programmes'. In a careless moment Landless had once joked that he had fired 10,000 people for every million he had made, and he was an exceedingly wealthy man. Samuel realised after his brief consultation with the unions that it would be absurd in the face of their public opposition for him now to endorse the deal, so sought refuge in silence.
 
-'What do these other hieroglyphics mean?'
+Urquhart also stood out from the crowd. Within an hour of the announcement he was on television and radio giving a thoroughly polished and well informed analysis of the global information market and its likely trends, all of which seemed to support the Landless proposal. His technical expertise far outshone his rivals, yet he was cautious.
 
-'The first set simply means that he subscribes to our comprehensiveliterature service and the second that his subscription has been fullypaid from the beginning of the year. If he wanted to receive only the mainpublications, or was a member of our specialist book club or one of our other marketing programmes, that would be shown by a different set ofreference numbers. Also if he were behind with his subscriptionpayments.'
+'While I have the highest respect for Benjamin Landless I think it would be wrong of me to jump to immediate conclusions before I have had an opportunity to consider all the details of the proposal. I think politicians should be careful; it gives politics a bad name if they are perceived as dashing around trying to buy the support of the editorial columns. So to avoid any possible misinterpretation, I shall not be announcing my own views until the leadership contest is over. By which time, of course,' he said modestly, 'they may be of no interest anyway.'
 
-￼'And this information is shown on all the monitors throughout mebuilding?' 'Yes. It's not information we regard as particularly confidential.'
+If only all his colleagues could have taken the dignified and principled stand of the Chief Whip', praised the Independent, Urquhart is establishing a statesmanlike tone for his campaign which marks him out from the pack and will certainly improve his chances.'
 
-'And if you felt like bending the rules a little and wanted to make me asubscriber to your comprehensive literature service, could you do that,enter my details from this terminal?'
+Other editorials echoed the line, not least of all the Telegraph.
 
-'Without making the proper payments through the accounts department,you mean? Why... yes.'
+We encouraged Francis Urquhart to stand for the leadership because of our respect for his independence of mind and his integrity. We were delighted when he accepted the challenge, and we are still convinced that our recommendation was correct. His refusal to rush to judgement over the Telegraph-United newspaper merger and his determination to consider his views carefully is no less than we would expect from someone with the qualities to lead this country.
 
-Spence was beginning to follow her line of enquiry.
+We still hope and believe that after due deliberation he will wholeheartedly endorse the merger plans, but our judgement of Urquhart is based on much more than commercial interest. He is the only candidate who so far has demonstrated that he is also a man of principle.
 
-'You think that Charles Collingridge's details were falsely entered from aterminal within this building, Miss Storin? Yes, it could be done. Look.' Within a few seconds the screen was showing a comprehensiveliterature subscription in the name of 'M Mouse Esq, 99 DisneylandMiami.'
+￼There was the sound around the corridors of Westminster of doors being slammed shut in frustration as ambitious politicians realised that Urquhart had once again stolen a march on them.
 
-'But you couldn't get away with backdating it to the beginning of the yearbecause... What a stupid fool I am!
+How the heck does that fart-artist do it?' barked Woolton, discarding any vestige of diplomatic restraint.
 
-Of course!' he exploded, and startedthrashing away at the keyboard. If you really know what you're doing,which very few people in this building do, you can tap into the mainframe subdirectory...'
+In a Mayfair penthouse overlooking Hyde Park, Landless and Urquhart smiled serenely and toasted each other's health and good fortune as they reviewed the success of each other's campaign.
 
-His words were almost drowned in the clattering of the keys.
+To the next Prime Minister’ saluted Landless.
 
-That gives access to the more restricted financial data.
+'And to his impartial endorsement of the merger’ responded his companion.
 
-So I can check the exact date when the account was paid, whether itwas paid by cheque or credit card, when the subscription was firststarted...'
+￼THURSDAY 18th NOVEMBER
 
-The monitor screen started glowing.
+When nominations closed at noon on Thursday, the only surprise was the last minute withdrawal of Peter Bearstead, who had been the first to announce his intention to stand.
 
-'And those financial details can only be entered or altered by accountsdepartment staff with their security passwords’
+I've done what I set out to do, which was to get a proper election going,' he announced punchily. I'm not going to win and I don't want a consolation prize of a Ministerial job, so now let the others get on with it.'
 
-He sat back to consider the details on the screen. He tapped a fewmore characters into the computer, and then turned to Mattie.
+He immediately signed up with the Daily Express to write personal and indiscreet profiles of the candidates for the duration of the campaign.
 
-'Miss Storin. According to this, Mr Collingridge has never paid for theliterature service, this month or any month. His details only appear on thedistribution file, not the payment file.'
+That left nine declared candidates, an unprecedentedly large field. However, the general view was that only five of them were in with a serious chance - Samuel, Woolton, Earle, McKenzie and Urquhart. With a completed list of contestants, pollsters redoubled their efforts to contact Government MPs and decipher which way the tide was running.
 
-'Can you tell me when his name first appeared on the distribution file?'
+The starter's flag had now officially fallen, and Peter McKenzie was determined to make an immediate showing. The Secretary of State for Health was a frustrated man. Having been in charge of the health service for more than five years, he had hoped as ardently as Urquhart for a new challenge and new responsibility after the June general election. The long years in charge of an unresponsive bureaucracy, watching almost helplessly as the remorselessly expensive progress of medical science grew faster than the taxpayers' ability or willingness to keep pace, had left him deeply scarred. A few years previously he had been regarded as the rising star of the Party, the man who could combine a tough intellectual approach with an obvious deep sense of caring, and many said he would go all the way. But the health service had been utterly unresponsive to his attempts to reform and improve it, and his repeated encounters with picket lines of protesting nurses and ambulance men had left his image as a man of conscience and humanity in tatters. The postponement of his much touted hospital expansion plan had been the last straw. He had become deeply dispirited, and had talked with his wife about quitting politics at the next election if his lot did not improve.
 
-A few more keystrokes.
+He greeted Collingridge's downfall like a drowning man discovers a life raft. It was the only thing that mattered to him, and drew all his concentration and effort. Of course he had made mistakes during the initial stages of the campaign, as had most of his rivals, but he entered the final five days before the first ballot full of enthusiasm and energy. He had planned from the start to make an impact on Nomination Day itself, determined to get his head above the crowd. So he had asked his staff to find a suitable visit for him to make which would provide some powerful photo-opportunities for the cameramen and a chance to revive his tarnished image as a humane and caring politician.
 
-'Jesus. Exactly two weeks ago today.'
+But no hospitals, he instructed He had spent the first three years in the Ministry visiting hospitals and trying to learn about patient care, only to be met on bad days by massed picket lines of boisterous nurses complaining about pay and on worse days by violent demonstrations from ancillary staff protesting about 'savage cuts'. Even the doctors seemed to have embraced the philosophy that health budgets were now set by the level of noise rather than the level of need. He almost never got to see the patients, and even when he tried to sneak into a hospital by a side or back entrance, the demonstrators always seemed to know beforehand precisely where he would be, ready to throw their personal and deeply hurtful abuse at him just when the television camera crews had arrived. No Minister had ever found an effective way of dealing with protesting nurses; the public will always side with the angels of mercy, leaving the politician in the role of perpetual villain. So McKenzie had simply stopped visiting hospitals. Rather than running an inevitable and image-denting gauntlet of abuse, he opted out and stuck to safer venues.
 
-'So someone in this building, not the accounts staff or anyone whounderstood computers very well, two weeks ago altered the file toinclude Charles Collingridge's name for the first time.'
+Just a couple of hours after nominations closed, the Secretary of State's car was approaching the Humanifit Laboratories just off the M4 where he would spend a couple of hours in front of cameras opening the new factory and examining the wide range of equipment which they manufactured for handicapped people. They had just developed a revolutionary new wheelchair which would operate to the voice commands of paraplegic patients unable to move their limbs. The combination of new British technology and enhanced care for the disabled was just what he had hoped his office would find for him, and he was looking forward to his afternoon and the media coverage it would generate.
 
-This is terrible, Miss Storin...' Spence's face had gone white.
+McKenzie had been careful, however, not taking the success of the visit for granted. He had been ambushed by protesters too many times to take chances that the television camera crews would bring a demonstration with them in order to enhance the vividness of their pictures. 'One good demo is worth a thousand new factory openings to us’ a friendly television executive had once advised him, and he had taken care to ensure that the media had been informed only three hours before his impending arrival, soon enough to get their camera crews there, but not sufficient time for anyone to arrange a welcoming demonstration. Yes, he thought as the factory came into view, his office had been very efficient and he had been sensibly cautious. It should all work very well.
 
-'Kevin, can you by any chance tell me who might have altered the file, orfrom which terminal it was altered?'
-
-'Sadly, no. It could have been done from any terminal in this building. Thecomputer programme trusts us ...' He shook his head as if he had totally failed the most crucial test of his life.
-
-‘Don't worry, Kevin. We're on the trail. But I must ask you not to utter aword of this to anyone. I want to catch whoever did this, and if he knows we're looking he will cover his trail. Will you help me once more, andkeep quiet until I have something more to go on?'
-
-'Who on earth would believe me, anyway?' he murmured.
-
-￼SUNDAY 7th NOVEMBER
-
-The newspapers that weekend were irritable. In the convention of leadership elections, candidates were discouraged from outright electioneering or making personal attacks on their rivals; the right leader was supposed somehow still to 'emerge' without any apparent effort on his part from a process of consensus rather than combat. So all the press had been left with for ten days was a series of coded messages which failed to inspire the public or ignite the hoped-for forest of press headlines. The campaign had not so much run out of steam; it had simply never generated any effective heat
-
-So the press took it out on the candidates - they had no alternative. 'A disappointing and uninspiring campaign so far, still waiting for one of the candidates to breathe life back into the Party and Government', pronounced the Observer. Irrelevant and irritating', complained the Sunday Minor. Not to be outdone, the Sun in characteristic style described it all as 'flatulent, a passing breeze in the night'.
-
-Far from allowing a thorough airing of the issues, as Urquhart had predicted to the Prime Minister, the lengthy campaign was suffering from a severe dose of boredom, as all along he had secretly hoped.
-
-This came as little comfort to Mattie, who was finding her growing conviction that skulduggery was afoot matched only by her inability to find the opportunity to proceed with her investigations. Journalists have to work much harder when there is no news to report, and the flaccid leadership campaign was causing more than a few nightmares amongst the political lobby in their collective efforts to find new angles with which to fill their column inches.
-
-You have to face it, Mattie, you still don't have a case’ Johnnie told her. 'Fascinating circumstantial evidence about computers, perhaps, but what about the shares, what about the bank account, what about Paddington?'
-
-She unwrapped herself from his arms where she had been dozing for most of Sunday afternoon. The weather was appalling, the scudding grey skies hurling angry bursts of rain against the windows. They hadn't needed much encouragement to decide to spend the whole afternoon in bed.
-
-Those shares were bought by whoever had the bank account and arranged the false address in Paddington’ Mattie began, marshalling her arguments. 'That's the only conclusion you can reasonably reach. But the trail is very difficult to follow. Apart from telling us that the account was opened for less than a fortnight, the bank will tell us nothing, and have point-blank refused to let us see the signatures on the documents relating to the bank account. And the Paddington tobacconist's is even less helpful. I think all the attention and notoriety has put paid to some of the more profitable sidelines which he seems to have run out of his back room.'
-
-Johnnie was not finished. 'But what is it you are trying to prove? The documentation is scarcely going to tell you any more than you know already. What you need to establish is not so much whether it was Charles Collingridge, but whether it could have been anyone other than him. If it could, along with your computer tampering you might have the beginnings of a circumstantial story.'
-
-She rolled out of his arms to look him directly in the face. 'You still don't believe it was a frame-up, do you?'
-
-'You haven't even yet proved that a crime was committed, let alone having any idea as to who might have done it’ he argued, but his voice softened as he recognised the growing impatience in her eyes. You have to be realistic, Mattie. If you are going to launch yourself publicly into this great conspiracy theory, you will have a very sceptical audience who will want more than a few 'maybes'. If you turn out to be wrong, you will do yourself and your career a lot of harm. And should you turn out to be right, you're going to have some very powerful enemies out there, who could do you
-
-even more harm. If they can nobble the Prime Minister, what could they do to you?’I He stroked her hair tenderly.
-
-It's not a matter of whether I believe your theory, Mattie. It's a matter of caring about you, of not wanting you to get caught in something which could be bigger than both of us and could cause you a great deal of pain. Frankly I'm scared you might be taking this one a bit too far. Is it really worth it?'
-
-Instantly he knew he had said something wrong. He didn't know why, but he sensed her body go rigid, unresponsive, enveloped by a cold shell that had suddenly divided the bed in two.
-
-Hell, Johnnie, I would be even more scared if it turned out to be true and nobody did anything about it,' she snapped. 'And damn it, it was you who encouraged me to go after the story.'
-
-'But that was before... well, before you got into my bed and into my life. This isn't just another story for me, Mattie, this is personal. I really care about you.'
-
-'So that's it. Drop the bloody story and concentrate on getting laid. Thanks, but no thanks! I asked you to go to bed with me, Johnnie, not own me.'
-
-She rolled away from him so that he could no longer see her face. She could sense his bewilderment and pain, but how could she tell him. The feeling of panic which had come over her as he confronted her with a choice between her career and his caring. God, it was' going to happen all over again.
-
-'Look, Johnnie ...' She was having tremendous difficulty finding the right words. ‘I am fond of you - very fond, you know that. But my career is most important to me. This story is most important to me. I can't let anything else get in its way’ She paused for a painful moment. 'Perhaps we made a mistake.'
-
-￼'What are you saying? Goodbye? Just like that? You drag me into bed as if I'm the last caveman left on earth for a couple of hot nights and then -
-
-￼bugger off ? What is it? Just adding to your collection of notches on the bedpost?'
-
-The sarcasm bit deep and rattled her. ‘I needed you, Johnnie. I needed a man, not a lifelong commitment, I needed to feel like a woman again, it had been so long...'
-
-'Great. A million pricks out there and you had to pick this one. I didn't realise it was just that, Mattie. I really wish you hadn't bothered,' he said with evident bitterness and anger.
-
-'Johnnie, stop! This isn't right. Don't make me say something I don't mean. I like you, very much. That's the problem.'
-
-'That's a problem? Well, I'm glad you have managed to put it behind you.' He gave a dry, humourless laugh and stared straight at the ceiling.
-
-Mattie buried her head in the pillow. She hadn't intended to hurt him, but how could she make him understand. She hadn't told anyone in London before, but maybe now was the time.
-
-There was someone else,' she began, her voice faltering. In Yorkshire. Someone I was very close to. We had known each other since we were children and everyone assumed that our relationship was... sort of permanent. That was the trouble. No one asked me, they just assumed. But I wanted something more, and when he forced me to choose between him and my career, I chose my career. It was the
-
-only way for me to live with myself, Johnnie!' she exclaimed, as if fearing that he would neither understand nor accept. His cold expression told her she was right.
-
-'But... he went to pieces. There were begging letters, midnight telephone calls. I would see Him just standing at the end of my street, waiting for hours, sometimes all through the night.'
-
-She drew a deep breath as if the memory were exhausting her. Then, there was a car crash. A long, straight piece of road with no other traffic, and his car hit a tree. They had to cut him out. When I heard, it was as if it were all my fault, as if I had been the one who had crashed the car. I felt so guilty, do you see, yet I felt so angry with myself for feeling that way. I hadn't done anything wrong!'
+Unfortunately for McKenzie, his office had been too efficient. Governments need to know where their Ministers and supporters are at all times, in case of emergency or in case of a sudden vote in the House of Commons for which they will need to be called in at short notice. And the office accorded the responsibility for mamtaining and updating the information on the whereabouts of Ministers is, of course, that of the Chief Whip. On the previous Friday, following her standing instructions to the letter, Mc-Kenzie's diary secretary had sent a full list of his forth-corning week's engagements over to Urquhart's office in 12 Downing Street. Thereafter, one telephone call was all it took.
 

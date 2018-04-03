@@ -1,55 +1,105 @@
 title: Dreams from My Father 035
-date: 2015-01-24 15:44:00
+date: 2015-01-25 03:45:42
 tags: dreams-from-my-father
 ---
 
-Or there was Mr. Marshall, a single man in his early thirties who worked as a bus driver for the Transit Authority. He was not typical of the leadership-he had no children, lived in an apartment-and so I wondered why he was so interested in doing something about drug use among teenagers. When I offered to give him a ride one day to pick up a car he had left in the shop, I asked him the question. And he told me about his father’s dreams of wealth in a nowhere town in Arkansas; how the various business ventures had gone sour and how other men had cheated him; how his father had turned to gambling and drink, lost his home and family; how his father was finally pulled out of a ditch somewhere, suffocated in his own vomit.
+great coup, and for weeks Rafiq had begged to have the activities start at his building. He wasn’t the only one. The alderman had said he’d be happy to host a briefing with the mayor at his office. The state senator, an old ward heeler who’d made the mistake of backing one of the white candidates in the last mayoral election, had promised to help us get money for any project we wanted if we just got him on the program. Even Reverend Smalls had called, suggesting that we’d be helping ourselves by letting him introduce his “good friend Harold.” Whenever I walked into the DCP office, my secretary would hand me the latest batch of messages.
 
-That’s what the leadership was teaching me, day by day: that the self-interest I was supposed to be looking for extended well beyond the immediacy of issues, that beneath the small talk and sketchy biographies and received opinions people carried within them some central explanation of themselves. Stories full of terror and wonder, studded with events that still haunted or inspired them. Sacred stories.
+“You’ve sure become popular, Barack,” she would say before the phone started ringing again.
 
-And it was this realization, I think, that finally allowed me to share more of myself with the people I was working with, to break out of the larger isolation that I had carried with me to Chicago. I was tentative at first, afraid that my prior life would be too foreign for South Side sensibilities; that I might somehow disturb people’s expectations of me. Instead, as people listened to my stories of Toot or Lolo or my mother and father, of flying kites in Djakarta or going to school dances at Punahou, they would nod their heads or shrug or laugh, wondering how someone with my background
+I looked now at the crowd that had gathered inside Rafiq’s warehouse, mostly politicians and hangers-on, all of them taking peeks out the door every few minutes while plainclothes policemen spoke into their walkie-talkies and surveyed the scene. Wading my way across the room, I found Will and Angela and pulled them aside.
 
-had ended up, as Mona put it, so “country-fied,” or, most puzzling to them, why anyone would willingly choose to spend a winter in Chicago when he could be sunning himself on Waikiki Beach. Then they’d offer a story to match or confound mine, a knot to bind our experiences together-a lost father, an adolescent brush with crime, a wandering heart, a moment of simple grace. As time passed, I found that these stories, taken together, had helped me bind my world together, that they gave me the sense of place and purpose I’d been looking for. Marty was right: There was always a community there if you dug deep enough. He was wrong, though, in characterizing the work. There was poetry as well-a luminous world always present beneath the surface, a world that people might offer up as a gift to me, if I only remembered to ask.
+“You guys ready?”
 
-Not to say that everything I learned from the leaders cheered my heart. If they often revealed a strength of spirit that I hadn’t imagined, they also forced me to acknowledge the unspoken forces that retarded our efforts, secrets that we kept from each other as well as from ourselves.
+They nodded.
 
-That’s how it was with Ruby, for example. After our aborted meeting with the police commander, I had worried that she might back away from organizing. Instead, she had thrown herself headlong into the project, working hard to build a network of neighbors that could be regularly delivered to our events, coming up with ideas for registering voters or working with school parents. She was what every organizer dreamed about-someone with untapped talent, smart, steady, excited by the idea of a public life, eager to learn. And I liked her son, Kyle Jr. He had just turned fourteen, and in all of his awkwardness-one moment frisky and bumping into me while we shot baskets together in the neighborhood park, the next instant bored and sullen-I could see all the contours of my own youthful struggles. Sometimes Ruby would question me about him, exasperated with a mediocre report card or a cut on his chin, baffled by a young man’s unruly mind.
+“Remember,” I said, “try to get Harold to commit to come to our rally in the fall. Do it while his scheduler is around.
 
-“Last week he said he was going to be a rap artist,” she would report. “Today he tells me he’s going to the Air Force Academy to be a fighter pilot. When I ask him why, he just says ‘So I can fly.’ Like I was stupid. I swear, Barack, sometimes I don’t know whether to hug him or beat his skinny behind.”
+Tell him about all the work we’re doing out here, and why-”
 
-“Try both,” I would tell her.
+At that moment, a murmur ran through the crowd, then a sudden stillness. A large motorcade pulled up, a limousine
 
-One day just before Christmas, I asked Ruby to stop by my office so I could give her a present for Kyle. I was on the phone when she walked in, and out of the corner of my eye I thought I saw something different about her, but I couldn’t quite put my finger on what it was. Only after I had hung up and she turned toward me did I realize that her eyes, normally a warm, dark brown that matched the color of her skin, had turned an opaque shade of blue, as if someone had glued plastic buttons over her irises. She asked me if something was wrong.
+door opened, and from behind a phalanx of policemen I saw the Man himself. He wore a plain blue suit and a rumpled trench coat; his gray hair looked a little frazzled, and he was shorter than I had expected. Still, his presence was undeniable, his smile that of a man at the height of his powers. Immediately, the crowd began chanting-“Ha-rold! Ha- rold!”-and the mayor made a small pirouette, his hand held up in acknowledgment. With Ms. Alvarez and the plainclothes cops leading the way, he began making his way through the throng. Past the senator and the alderman. Past Rafiq and me. Past Reverend Smalls’s outstretched hand. Until he finally came to a stop directly in front of Angela.
 
-“What did you do to your eyes?”
+“Ms. Rider.” He took her hand, and made a slight bow. “It’s a pleasure. I’ve heard excellent things about your work.”
 
-“Oh, these.” Ruby shook her head and laughed. “They’re just contacts, Barack. The company I work for makes cosmetic lenses, and I get them at a discount. You like them?”
+Angela looked like she was going to pass out. The mayor asked if she would introduce him to her associates, and she began to laugh and flutter about before gathering enough composure to take him down the row of leaders. They all stood at attention like a line of scouts, each one wearing the same helpless grin. When the review was over, the mayor offered Angela his arm, and together they walked toward the door, the crowd pressing behind them.
 
-“Your eyes looked just fine the way they were.”
+“Honey, can you believe this?” Shirley whispered to Mona.
 
-“It’s just for fun,” she said, looking down. “Something different, you know.”
+The ceremony lasted about fifteen minutes. Police had closed off two blocks of Michigan Avenue, and a small stage had been set up in front of the storefront where the MET center would soon open. Angela introduced all the church members who’d worked on the project, as well as the politicians in attendance; Will gave a brief speech about DCP. The mayor congratulated us on our civic involvement, while the senator, Reverend Smalls, and the alderman jockeyed for position behind him, smiling widely for the photographers they’d hired. The ribbon was cut, and that was it. As the limousine sped away to the next event, the crowd dispersed almost instantly, leaving just a few of us standing in the litter-blown road.
 
-I stood there, not knowing what to say. Finally I remembered Kyle’s gift and handed it to her. “For Kyle,” I said. “A
+I walked over to Angela, who was busy talking to Shirley and Mona. “When I heard him say ‘Ms. Rider,’” she was saying, “I swear I just about died.”
 
-book on airplanes...I thought he might like it.”
+Shirley shook her head. “Girl, don’t I know it.”
 
-Ruby nodded and put the book inside her purse. “That’s nice of you, Barack. I’m sure he will.” Then, abruptly, she stood up and straightened her skirt. “Well, I better get going,” she said, and hurried out the door.
+“We got the pictures to prove it,” Mona said, holding up her Instamatic camera.
 
-For the rest of the day and into the next, I thought about Ruby’s eyes. I had handled the moment badly, I told myself, made her feel ashamed for a small vanity in a life that could afford few vanities. I realized that a part of me expected her and the other leaders to possess some sort of immunity from the onslaught of images that feed every American’s insecurities-the slender models in the fashion magazines, the square-jawed men in fast cars-images to which I myself was vulnerable and from which I had sought protection. When I mentioned the incident to a black woman friend of mine, she stated the issue more bluntly.
+I tried to break in. “Did we get a date for the rally?”
 
-“What are you surprised about?” my friend said impatiently. “That black people still hate themselves?”
+“So then he tells me that I look too young to have a fourteen-year-old daughter. Can you imagine?”
 
-No, I told her, it wasn’t exactly surprise that I was feeling. Since my first frightening discovery of bleaching creams in Life magazine, I’d become familiar with the lexicon of color consciousness within the black community-good hair, bad hair; thick lips or thin; if you’re light, you’re all right, if you’re black, get back. In college, the politics of black fashion, and the questions of self-esteem that fashion signified, had been a frequent, if delicate, topic of conversation for black students, especially among the women, who would smile bitterly at the sight of the militant brother who always seemed to be dating light-skinned girls-and tongue-lash any black man who was foolish enough to make a remark about black women’s hairstyles.
+“Did he agree to come to our rally?” I repeated.
 
-Mostly I had kept quiet when these subjects were broached, privately measuring my own degree of infection. But I noticed that such conversations rarely took place in large groups, and never in front of whites. Later, I would realize that the position of most black students in predominantly white colleges was already too tenuous, our identities too scrambled, to admit to ourselves that our black pride remained incomplete. And to admit our doubt and confusion to whites, to open up our psyches to general examination by those who had caused so much of the damage in the first place, seemed ludicrous, itself an expression of self-hatred-for there seemed no reason to expect that whites would look at our private struggles as a mirror into their own souls, rather than yet more evidence of black pathology.
+The three of them looked at me impatiently. “What rally?”
 
-It was in observing that division, I think, between what we talked about privately and what we addressed publicly, that I’d learned not to put too much stock in those who trumpeted black self-esteem as a cure for all our ills, whether substance abuse or teen pregnancy or black-on-black crime. By the time I reached Chicago, the phrase self-esteem seemed to be on everyone’s lips: activists, talk show hosts, educators, and sociologists. It was a handy catchall to describe our hurt, a sanitized way of talking about the things we’d been keeping to ourselves. But whenever I tried to pin down this idea of self-esteem, the specific qualities we hoped to inculcate, the specific means by which we might feel good about ourselves, the conversation always seemed to follow a path of infinite regress. Did you dislike yourself because of your color or because you couldn’t read and couldn’t get a job? Or perhaps it was because you were unloved as a child-only, were you unloved because you were too dark? Or too light? Or because your mother shot heroin into her veins...and why did she do that anyway? Was the sense of emptiness you felt a consequence of kinky hair or the fact that your apartment had no heat and no decent furniture? Or was it because deep down you imagined a godless universe?
+I threw up my hands and started stomping down the street. As I reached my car, I heard Will coming up from behind. “Where you off to in such a hurry?” he said.
 
-Maybe one couldn’t avoid such questions on the road to personal salvation. What I doubted was that all the talk about self-esteem could serve as the centerpiece of an effective black politics. It demanded too much honest self-reckoning
+“I don’t know. Somewhere.” I tried to light a cigarette, but the wind kept blowing out the match. I cursed, tossing the
 
-from people; without such honesty, it easily degenerated into vague exhortation. Perhaps with more self-esteem fewer blacks would be poor, I thought to myself, but I had no doubt that poverty did nothing for our self-esteem. Better to concentrate on the things we might all agree on. Give that black man some tangible skills and a job. Teach that black child reading and arithmetic in a safe, well-funded school. With the basics taken care of, each of us could search for our own sense of self-worth.
+matches to the ground, and turned to Will. “You wanna know something, Will?”
 
-Ruby shook up this predisposition of mine, the wall I had erected between psychology and politics, the state of our pocketbooks and the state of our souls. In fact, that particular episode was only the most dramatic example of what I was hearing and seeing every day. It was expressed when a black leader casually explained to me that he never dealt with black contractors (“A black man’ll just mess it up, and I’ll end up paying white folks to do it all over again”); or in another leader’s rationale for why she couldn’t mobilize other people in her church (“Black folks are just lazy, Barack- don’t wanna do nothing”). Often the word nigger replaced black in such remarks, a word I’d once liked to think was spoken in jest, with a knowing irony, the inside joke that marked our resilience as a people. Until the first time I heard a young mother use it on her child to tell him he wasn’t worth shit, or watched teenage boys use it to draw blood in a quick round of verbal sparring. The transformation of the word’s original meaning was never complete; like the other defenses we erected against possible hurt, this one, too, involved striking out at ourselves first.
+“What.”
 
-If the language, the humor, the stories of ordinary people were the stuff out of which families, communities, economies would have to be built, then I couldn’t separate that strength from the hurt and distortions that lingered inside us. And it was the implications of that fact, I realized, that had most disturbed me when I looked into Ruby’s eyes. The stories that I had been hearing from the leadership, all the records of courage and sacrifice and overcoming of great odds, hadn’t simply arisen from struggles with pestilence or drought, or even mere poverty. They had arisen out of a very particular experience with hate. That hate hadn’t gone away; it formed a counternarrative buried deep within each person and at the center of which stood white people-some cruel, some ignorant, sometimes a single face, sometimes just a faceless image of a system claiming power over our lives. I had to ask myself whether the bonds of community could be restored without collectively exorcising that ghostly figure that haunted black dreams. Could Ruby love herself without hating blue eyes?
+“We’re trifling. That’s what we are. Trifling. Here we are, with a chance to show the mayor that we’re real players in
+
+the city, a group he needs to take seriously. So what do we do? We act like a bunch of starstruck children, that’s what. Standing around, cheesing and grinning, worrying about whether we got a picture taken with him-”
+
+“You mean you didn’t get yourself a picture?” Will smiled cheerfully and held up a Polaroid shot, then put a hand on my shoulder. “You mind if I tell you something, Barack? You need to lighten up a little bit. What you call trifling was the most fun Angela and them have had all year. Ten years from now, they’ll still be bragging about it. It made ’em feel important. And you made it happen. So what if they forgot to invite Harold to a rally? We can always call him back.”
+
+I climbed into my car and rolled down the window. “Forget it, Will. I’m just frustrated.”
+
+“Yeah, I can see that. But you should be asking yourself why you so frustrated.”
+
+“Why do you think?”
+
+Will shrugged. “I think you’re just trying to do a good job. But I also think you ain’t never satisfied. You want
+
+everything to happen fast. Like you got something to prove out here.”
+
+“I’m not trying to prove anything, Will.” I started the car and began to pull away, but not fast enough to avoid hearing Will’s parting words.
+
+“You don’t have to prove nothing to us, Barack. We love you, man. Jesus loves you!”
+
+Almost a year had passed since my arrival in Chicago, and our labor had finally begun to bear fruit. Will’s and Mary’s street corner group had grown to fifty strong; they organized neighborhood cleanups, sponsored career days for area youth, won agreements from the alderman to improve sanitation services. Farther north, Mrs. Crenshaw and Mrs. Stevens had pressed the Park District into overhauling run-down parks and playlots; work there had already begun. Streets had been repaired, sewers rooted, crime-watch programs instituted. And now the new job intake center, where once only an empty storefront had been.
+
+As the organization’s stock had grown, so had my own. I began receiving invitations to sit on panels and conduct workshops; local politicians knew my name, even if they still couldn’t pronounce it. As far as our leadership was concerned, I could do little wrong. “You should have seen him when he first got here,” I’d overhear Shirley tell a new leader one day. “He was just a boy. I swear, you look at him now, you’d think he was a different person.” She spoke like a proud parent: I’d become a sort of surrogate prodigal son.
+
+The appreciation of those you worked with, concrete improvements in the neighborhood, things you could hang a price tag on. It should have been enough. And yet what Will had said was true. I wasn’t satisfied.
+
+Maybe it was connected to Auma’s visit and the news she had brought of the Old Man. Where once I’d felt the need to live up to his expectations, I now felt as if I had to make up for all his mistakes. Only the nature of those mistakes still wasn’t clear in my mind; I still couldn’t read the signposts that might warn me away from the wrong turns he’d taken. Because of that confusion, because my image of him remained so contradictory-sometimes one thing, sometimes another, but never the two things at once-I would find myself, at random moments in the day, feeling as if I was living out a preordained script, as if I were following him into error, a captive to his tragedy.
+
+Then there were my problems with Marty. We had officially separated our respective efforts that spring; since then he’d been spending most of his time with the suburban churches, where it turned out that parishioners, black and white, were less concerned about jobs than they were about the same pattern of white flight and dropping property values that had swept through the South Side a decade before.
+
+These were difficult issues, rife with the racialism and delicacy that Marty found so distasteful. So he had decided to move on. He had hired another organizer to do most of the day-to-day work in the suburbs and was now busy starting a new organization in Gary, a city where the economy had long ago collapsed-where things were so bad, Marty said, that no one would care about the color of an organizer. One day, he asked me to come with him.
+
+“This is a bad training situation for you,” he explained. “The South Side’s too big. Too many distractions. It’s not your fault. I should have known better.”
+
+“I can’t just leave, Marty. I just got here.”
+
+He looked at me with infinite patience. “Listen, Barack, your loyalty is admirable. But right now you need to worry about your own development. Stay here and you’re bound to fail. You’ll give up organizing before you gave it a real shot.”
+
+He had it all worked out in his head: how much time it would take to hire and train a replacement for me, the need to leave a respectable budget in place. As I listened to him lay out his plans, it occurred to me that he’d made no particular attachments to people or place during his three years in the area, that whatever human warmth or connection he might require came from elsewhere: from his gracious wife, from his handsome young son. In his work, it was only the idea that drove him, the idea that a closed plant symbolized but that was larger than the plant, larger than Angela or Will or the lonely priests who had agreed to work with him. That idea might take spark anywhere; for Marty, it was simply a matter of finding the right combination of circumstances, the right mix of compounds.
+
+“Marty.”
+
+“What?”
+
+“I’m not going anywhere.”
+
+We had eventually come to an agreement: He would provide me the consultation I still desperately needed; the fee he
+
+received would help subsidize his work elsewhere. In our weekly meetings, though, he would remind me of the choice I’d made, that there was no risk in my modest accomplishments, that the men in fancy suits downtown were still calling all the shots. “Life is short, Barack,” he would say. “If you’re not trying to really change things out here, you might as well forget it.”
+
+Ah, yes. Real change. It had seemed like such an attainable goal back in college, an extension of my personal will and my mother’s faith, like boosting my grade point average or giving up liquor: a matter of taking and assigning responsibility. Only now, after a year of organizing, nothing seemed simple. Who was responsible for a place like Altgeld? I found myself asking. There were no cigar-chomping crackers like Bull Connor out there, no club-wielding Pinkerton thugs. Just a small band of older black men and women, a group characterized less by malice or calculation than by fear and small greeds. People like Mr. Anderson, the Altgeld project manager, a balding, older man one year short of retirement. Or Mrs. Reece, a plump woman with a pincushion face who was president of the official tenant council and spent most of her time protecting the small prerogatives that came with her office: a stipend and a seat at the yearly banquet; the ability to see that her daughter got a choice apartment, her nephew a job in the CHA bureaucracy. Or Reverend Johnson, Mrs. Reece’s pastor and head of the only large church in Altgeld, who, the first and only time that we met, had stopped me the minute I mentioned the word organizing.
 

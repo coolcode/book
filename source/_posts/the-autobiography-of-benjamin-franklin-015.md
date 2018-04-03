@@ -1,55 +1,239 @@
 title: The Autobiography of Benjamin Franklin 015
-date: 2015-01-24 15:44:19
+date: 2015-01-25 03:46:02
 tags: the-autobiography-of-benjamin-franklin
 ---
 
-58
+At length he took for his text that verse of the fourth chapter of Philippians, “Finally, brethren, whatsoever things are true, honest, just, pure, lovely, or of good report, if there be any virtue, or any praise, think on these things.” And I imagin’d, in a sermon on such a text, we could not miss of having some morality. But he confin’d himself to five points only, as meant by the apostle, viz.: 1. Keeping holy the Sabbath day. 2. Being diligent in reading the holy Scriptures. 3. Attending duly the publick worship. 4. Partaking of the Sacrament. 5. Paying a due respect to God’s ministers. These might be all good things; but, as they were not the kind of good things that I expected from that text, I despaired of ever meeting with them from any other, was disgusted, and attended his preaching no more. I had some years before compos’d a little Liturgy, or form of prayer, for my own private use (viz., in 1728), entitled, Articles of Belief and Acts of Religion. I return’d to the use of this, and went no more to the public assemblies. My conduct might be blameable, but I leave it, without at- tempting further to excuse it; my present purpose being to relate facts, and not to make apologies for them.
+
+It was about this time I conceiv’d the bold and arduous project of arriv- ing at moral perfection. I wish’d to live without committing any fault at any time; I would conquer all that either natural inclination, custom, or com- pany might lead me into. As I knew, or thought I knew, what was right and wrong, I did not see why I might not always do the one and avoid the other. But I soon found I had undertaken a task of more difficulty than I bad imagined. While my care was employ’d in guarding against one fault, I was often surprised by another; habit took the advantage of inattention; incli- nation was sometimes too strong for reason. I concluded, at length, that the mere speculative conviction that it was our interest to be completely virtu- ous, was not sufficient to prevent our slipping; and that the contrary habits must be broken, and good ones acquired and established, before we can have any dependence on a steady, uniform rectitude of conduct. For this
+
+68
 
 The Autobiography of Benjamin Franklin
 
-About this time, our club meeting, not at a tavern, but in a little room of Mr. Grace’s, set apart for that purpose, a proposition was made by me, that, since our books were often referr’d to in our disquisitions upon the queries, it might be convenient to us to have them altogether where we met, that upon occasion they might be consulted; and by thus clubbing our books to a common library, we should, while we lik’d to keep them together, have each of us the advantage of using the books of all the other members, which would be nearly as beneficial as if each owned the whole. It was lik’d and agreed to, and we fill’d one end of the room with such books as we could best spare. The number was not so great as we ex- pected; and tho’ they had been of great use, yet some inconveniences occurring for want of due care of them, the collection, after about a year, was separated, and each took his books home again.
+purpose I therefore contrived the following method.
 
-And now I set on foot my first project of a public nature, that for a subscription library. I drew up the proposals, got them put into form by our great scrivener, Brockden, and, by the help of my friends in the Junto, procured fifty subscribers of forty shillings each to begin with, and ten shillings a year for fifty years, the term our company was to continue. We afterwards obtain’d a charter, the company being increased to one hun- dred: this was the mother of all the North American subscription librar- ies, now so numerous. It is become a great thing itself, and continually increasing. These libraries have improved the general conversation of the Americans, made the common tradesmen and farmers as intelligent as most gentlemen from other countries, and perhaps have contributed in some degree to the stand so generally made throughout the colonies in defense of their privileges.
+In the various enumerations of the moral virtues I had met with in my
 
-Memo. Thus far was written with the intention express’d in the begin- ning and therefore contains several little family anecdotes of no impor- tance to others. What follows was written many years after in compliance with the advice contain’d in these letters, and accordingly intended for the public. The affairs of the Revolution occasion’d the interruption.
+reading, I found the catalogue more or less numerous, as different writers included more or fewer ideas under the same name. Temperance, for ex- ample, was by some confined to eating and drinking, while by others it was extended to mean the moderating every other pleasure, appetite, inclination, or passion, bodily or mental, even to our avarice and ambition. I propos’d to myself, for the sake of clearness, to use rather more names, with fewer ideas annex’d to each, than a few names with more ideas; and I included under thirteen names of virtues all that at that time occurr’d to me as necessary or desirable, and annexed to each a short precept, which fully express’d the ex- tent I gave to its meaning.
 
-Letter from Mr. Abel James, with Notes of my Life (received in Paris).
+These names of virtues, with their precepts, were:
 
-“My Dear and Honored Friend: I have often been desirous of writing to thee, but could not be reconciled to the thought that the letter might fall into the hands of the British, lest some printer or busy-body should
+1. TEMPERANCE. Eat not to dullness; drink not to elevation.
 
-59
+2. SILENCE. Speak not but what may benefit others or yourself; avoid trifling conversation.
 
-The Autobiography of Benjamin Franklin
+3. ORDER. Let all your things have their places; let each part of your business have its time.
 
-publish some part of the contents, and give our friend pain, and myself censure.
+4. RESOLUTION. Resolve to perform what you ought; perform with- out fail what you resolve.
 
-“Some time since there fell into my hands, to my great joy, about twenty-three sheets in thy own handwriting, containing an account of the parentage and life of thyself, directed to thy son, ending in the year 1730, with which there were notes, likewise in thy writing; a copy of which I inclose, in hopes it may be a means, if thou continued it up to a later period, that the first and latter part may be put together; and if it is not yet continued, I hope thee will not delay it. Life is uncertain, as the preacher tells us; and what will the world say if kind, humane, and benevolent Ben. Franklin should leave his friends and the world de- prived of so pleasing and profitable a work; a work which would be useful and entertaining not only to a few, but to millions? The influence writings under that class have on the minds of youth is very great, and has nowhere appeared to me so plain, as in our public friend’s journals. It almost insen- sibly leads the youth into the resolution of endeavoring to become as good and eminent as the journalist. Should thine, for instance, when published (and I think it could not fail of it), lead the youth to equal the industry and temperance of thy early youth, what a blessing with that class would such a work be! I know of no character living, nor many of them put together, who has so much in his power as thyself to promote a greater spirit of industry and early attention to business, frugality, and temperance with the American youth. Not that I think the work would have no other merit and use in the world, far from it; but the first is of such vast importance that I know nothing that can equal it.”
+5. FRUGALITY. Make no expense but to do good to others or yourself; i.e., waste nothing.
 
-The foregoing letter and the minutes accompanying it being shown to a friend, I received from him the following:
+6. INDUSTRY. Lose no time; be always employ’d in something useful; cut off all unnecessary actions.
 
-Letter from Mr. Benjamin Vaughan. “Paris, January 31, 1783.
+7. SINCERITY. Use no hurtful deceit; think innocently and justly, and, if you speak, speak accordingly.
 
-“My dearest sir: When I had read over your sheets of minutes of the prin- cipal incidents of your life, recovered for you by your Quaker acquain- tance, I told you I would send you a letter expressing my reasons why I thought it would be useful to complete and publish it as he desired. Vari- ous concerns have for some time past prevented this letter being written, and I do not know whether it was worth any expectation; happening to be at leisure, however, at present, I shall by writing, at least interest and instruct myself; but as the terms I am inclined to use may tend to offend
+8. JUSTICE. Wrong none by doing injuries, or omitting the benefits that are your duty.
 
-60
+9. MODERATION. Avoid extreams; forbear resenting injuries so much as you think they deserve.
 
-The Autobiography of Benjamin Franklin
-
-a person of your manners, I shall only tell you how I would address any other person, who was as good and as great as yourself, but less diffident. I would say to him, Sir, I solicit the history of your life from the following motives: Your history is so remarkable, that if you do not give it, some- body else will certainly give it; and perhaps so as nearly to do as much harm, as your own management of the thing might do good. It will more- over present a table of the internal circumstances of your country, which will very much tend to invite to it settlers of virtuous and manly minds. And considering the eagerness with which such information is sought by them, and the extent of your reputation, I do not know of a more effica- cious advertisement than your biography would give. All that has hap- pened to you is also connected with the detail of the manners and situa- tion of a rising people; and in this respect I do not think that the writings of Caesar and Tacitus can be more interesting to a true judge of human nature and society. But these, sir, are small reasons, in my opinion, com- pared with the chance which your life will give for the forming of future great men; and in conjunction with your Art of Virtue (which you design to publish) of improving the features of private character, and conse- quently of aiding all happiness, both public and domestic. The two works I allude to, sir, will in particular give a noble rule and example of self- education. School and other education constantly proceed upon false principles, and show a clumsy apparatus pointed at a false mark; but your apparatus is simple, and the mark a true one; and while parents and young persons are left destitute of other just means of estimating and becoming prepared for a reasonable course in life, your discovery that the thing is in many a man’s private power, will be invaluable! Influence upon the pri- vate character, late in life, is not only an influence late in life, but a weak influence. It is in youth that we plant our chief habits and prejudices; it is in youth that we take our party as to profession, pursuits and matrimony. In youth, therefore, the turn is given; in youth the education even of the next generation is given; in youth the private and public character is de- termined; and the term of life extending but from youth to age, life ought to begin well from youth, and more especially before we take our party as to our principal objects. But your biography will not merely teach self- education, but the education of a wise man; and the wisest man will receive lights and improve his progress, by seeing detailed the conduct of another wise man. And why are weaker men to be deprived of such helps, when we see our race has been blundering on in the dark, almost without a guide in this particular, from the farthest trace of time? Show then, sir, how much is to be done, both to sons and fathers; and invite all wise men
-
-61
+10. CLEANLINESS. Tolerate no uncleanliness in body, cloaths, or habitation. 69
 
 The Autobiography of Benjamin Franklin
 
-to become like yourself, and other men to become wise. When we see how cruel statesmen and warriors can be to the human race, and how absurd distinguished men can be to their acquaintance, it will be instruc- tive to observe the instances multiply of pacific, acquiescing manners; and to find how compatible it is to be great and domestic, enviable and yet good-humored.
+11. TRANQUILLITY. Be not disturbed at trifles, or at accidents com- mon or unavoidable.
 
-“The little private incidents which you will also have to relate, will have considerable use, as we want, above all things, rules of prudence in ordinary affairs; and it will be curious to see how you have acted in these. It will be so far a sort of key to life, and explain many things that all men ought to have once explained to them, to give, them a chance of becom- ing wise by foresight. The nearest thing to having experience of one’s own, is to have other people’s affairs brought before us in a shape that is interesting; this is sure to happen from your pen; our affairs and manage- ment will have an air of simplicity or importance that will not fail to strike; and I am convinced you have conducted them with as much origi- nality as if you had been conducting discussions in politics or philoso- phy; and what more worthy of experiments and system (its importance and its errors considered) than human life?
+12. CHASTITY. Rarely use venery but for health or offspring, never to dulness, weakness, or the injury of your own or another’s peace or repu- tation.
 
-“Some men have been virtuous blindly, others have speculated fantas- tically, and others have been shrewd to bad purposes; but you, sir, I am sure, will give under your hand, nothing but what is at the same moment, wise, practical and good, your account of yourself (for I suppose the par- allel I am drawing for Dr. Franklin, will hold not only in point of charac- ter, but of private history) will show that you are ashamed of no origin; a thing the more important, as you prove how little necessary all origin is to happiness, virtue, or greatness. As no end likewise happens without a means, so we shall find, sir, that even you yourself framed a plan by which you became considerable; but at the same time we may see that though the event is flattering,the means are as simple as wisdom could make them;that is, depending upon nature, virtue, thought and habit.Another thing demonstrated will be the propriety of everyman’s waiting for his time for appearing upon the stage of the world. Our sensations being very much fixed to the moment, we are apt to forget that more moments are to follow the first, and consequently that man should arrange his conduct so as to suit the whole of a life. Your attribution appears to have been applied to your life, and the passing moments of it have been enliv- ened with content and enjoyment instead of being tormented with fool- ish impatience or regrets. Such a conduct is easy for those who make virtue and themselves in countenance by examples of other truly great
+13. HUMILITY. Imitate Jesus and Socrates.
 
-62
+My intention being to acquire the habitude of all these virtues, I judg’d it would be well not to distract my attention by attempting the whole at once, but to fix it on one of them at a time; and, when I should be master of that, then to proceed to another, and so on, till I should have gone thro’ the thirteen; and, as the previous acquisition of some might facili- tate the acquisition of certain others, I arrang’d them with that view, as they stand above. Temperance first, as it tends to procure that coolness and clearness of head, which is so necessary where constant vigilance was to be kept up, and guard maintained against the unremitting attraction of ancient habits, and the force of perpetual temptations. This being acquir’d and establish’d, Silence would be more easy; and my desire being to gain knowledge at the same time that I improv’d in virtue, and consid- ering that in conversation it was obtain’d rather by the use of the ears than of the tongue, and therefore wishing to break a habit I was getting into of prattling, punning, and joking, which only made me acceptable to tri- fling company, I gave Silence the second place. This and the next, Order, I expected would allow me more time for attending to my project and my studies. Resolution, once become habitual, would keep me firm in my endeavors to obtain all the subsequent virtues; Frugality and Industry freeing me from my remaining debt, and producing affluence and inde- pendence, would make more easy the practice of Sincerity and Justice, etc., etc. Conceiving then, that, agreeably to the advice of Pythagoras in his Golden Verses, daily examination would be necessary, I contrived the following method for conducting that examination.
+
+I made a little book, in which I allotted a page for each of the virtues. I rul’d each page with red ink, so as to have seven columns, one for each day of the week, marking each column with a letter for the day. I cross’d these columns with thirteen red lines, marking the beginning of each line with the first letter of one of the virtues, on which line, and in its proper column, I might mark, by a little black spot, every fault I found upon examination
+
+70
 
 The Autobiography of Benjamin Franklin
 
-men, of whom patience is so often the characteristic. Your Quaker corre- spondent, sir (for here again I will suppose the subject of my letter resem- bling Dr. Franklin), praised your frugality, diligence and temperance, which he considered as a pattern for all youth; but it is singular that he should have forgotten your modesty and your disinterestedness, without which you never could have waited for your advancement, or found your situa- tion in the mean time comfortable; which is a strong lesson to show the poverty of glory and the importance of regulating our minds. If this cor- respondent had known the nature of your reputation as well as I do, he would have said, Your former writings and measures would secure atten- tion to your Biography, and Art of Virtue; and your Biography and Art of Virtue, in return, would secure attention to them. This is an advantage attendant upon a various character, and which brings all that belongs to it into greater play; and it is the more useful, as perhaps more persons are at a loss for the means of improving their minds and characters, than they are for the time or the inclination to do it. But there is one concluding reflection, sir, that will shew the use of your life as a mere piece of biogra- phy. This style of writing seems a little gone out of vogue, and yet it is a very useful one; and your specimen of it may be particularly serviceable, as it will make a subject of comparison with the lives of various public cutthroats and intriguers, and with absurd monastic self- tormentors or vain literary triflers. If it encourages more writings of the same kind with your own, and induces more men to spend lives fit to be written, it will be worth all Plutarch’s Lives put together. But being tired of figuring to myself a character of which every feature suits only one man in the world, with- out giving him the praise of it, I shall end my letter, my dear Dr. Franklin, with a personal application to your proper self. I am earnestly desirous, then, my dear sir, that you should let the world into the traits of your genuine character, as civil broils nay otherwise tend to disguise or traduce it. Considering your great age, the caution of your character, and your peculiar style of thinking, it is not likely that any one besides yourself can be sufficiently master of the facts of your life, or the intentions of your mind. Besides all this, the immense revolution of the present period, will necessarily turn our attention towards the author of it, and when virtu- ous principles have been pretended in it, it will be highly important to shew that such have really influenced; and, as your own character will be the principal one to receive a scrutiny, it is proper (even for its effects upon your vast and rising country, as well as upon England and upon Europe) that it should stand respectable and eternal. For the furtherance of human happiness, I have always maintained that it is necessary to prove
+to have been committed respecting that virtue upon that day.
+
+I determined to give a week’s strict attention to each of the virtues successively. Thus, in the first week, my great guard was to avoid every the least offence against Temperance, leaving the other virtues to their ordinary chance, only marking every evening the faults of the day. Thus, if in the first week I could keep my first line, marked T, clear of spots, I suppos’d the habit of that virtue so much strengthen’d and its opposite weaken’d, that I might venture extending my attention to include the next, and for the following week keep both lines clear of spots. Proceed- ing thus to the last, I could go thro’ a course compleat in thirteen weeks, and four courses in a year. And like him who, having a garden to weed, does not attempt to eradicate all the bad herbs at once, which would exceed his reach and his strength, but works on one of the beds at a time, and, having accomplish’d the first, proceeds to a second, so I should have, I hoped, the encouraging pleasure of seeing on my pages the progress I made in virtue, by clearing successively my lines of their spots, till in the end, by a number of courses, I should he happy in viewing a clean book,
+
+after a thirteen weeks’ daily examination.
+
+This my little book had for its motto these lines from Addison’s Cato:
+
+“Here will I hold. If there’s a power above us (And that there is all nature cries aloud
+
+Thro’ all her works), He must delight in virtue; And that which he delights in must be happy.”
+
+Another from Cicero,
+
+(See table on following page.)
+
+71
+
+The Autobiography of Benjamin Franklin
+
+FORM OF THE PAGES
+
+EAT NOT TO DULNESS; DRINK NOT TO ELEVATION.
+
+￼￼￼￼￼S
+
+M
+
+T
+
+W
+
+T
+
+F
+
+S
+
+T
+
+S
+
+*
+
+*
+
+*
+
+*
+
+O
+
+**
+
+*
+
+*
+
+*
+
+*
+
+*
+
+R
+
+*
+
+*
+
+F
+
+*
+
+*
+
+I
+
+*
+
+S
+
+J
+
+M
+
+C
+
+T
+
+C
+
+H
+
+￼￼￼￼￼￼￼￼￼￼￼￼￼￼￼￼“O vitae Philosophia dux! O virtutum indagatrix expultrixque vitiorum! Unus dies, bene et ex praeceptis tuis actus, peccanti immortalitati est anteponendus.”
+
+Another from the Proverbs of Solomon, speaking of wisdom or virtue:
+
+“Length of days is in her right hand, and in her left hand riches and honour. Her ways are ways of pleasantness, and all her paths are peace.” iii. 16, 17.
+
+And conceiving God to be the fountain of wisdom, I thought it right and necessary to solicit his assistance for obtaining it; to this end I formed
+
+72
+
+The Autobiography of Benjamin Franklin
+
+the following little prayer, which was prefix’d to my tables of examina- tion, for daily use.
+
+“O powerful Goodness! bountiful Father! merciful Guide! increase in me that wisdom which discovers my truest interest. Strengthen my reso- lutions to perform what that wisdom dictates. Accept my kind offices to thy other children as the only return in my power for thy continual favors to me.”
+
+I used also sometimes a little prayer which I took from Thomson’s Poems, viz.:
+
+“Father of light and life, thou Good Supreme!
+
+O teach me what is good; teach me Thyself!
+
+Save me from folly, vanity, and vice,
+
+From every low pursuit; and fill my soul
+
+With knowledge, conscious peace, and virtue pure; Sacred, substantial, never-fading bliss!”
+
+The precept of Order requiring that every part of my business should have its allotted time, one page in my little book contain’d the following scheme of employment for the twenty-four hours of a natural day:
+
+I enter’d upon the execution of this plan for self-examination, and continu’d it with occasional intermissions for some time. I was surpris’d to find myself so much fuller of faults than I had imagined; but I had the satisfaction of seeing them diminish. To avoid the trouble of renewing now and then my little book, which, by scraping out the marks on the paper of old faults to make room for new ones in a new course, became full of holes, I transferr’d my tables and precepts to the ivory leaves of a memorandum book, on which the lines were drawn with red ink, that
+
+(See image on next page.)
+
+73
+
+The Autobiography of Benjamin Franklin
+
+74
+
+The Morning. Question. What good shall I do this day?
+
+{5}Rise, wash, and address Powerful
+
+6 Goodness! Con- trive day's business
+
+7 and take the res- olution of the day;
+
+prosecute the present study, and breakfast.
+
+89 } W o r k . 10
+
+11
+
+1 {12}
+
+Noon.
+
+2345 } W o r k .
+
+{6}Put things in their 7 places. Supper. Question. What good 8 Music or diversion,
+
+Evenining.
+
+have I done today?
+
+Night.
+
+9
+
+10
+
+or conversation. Examination of the day.
+
+{11 } 3
+
+4
+
+12 1 2
+
+Sleep.
+
+Read, or overlook my accounts, and dine.
+
+The Autobiography of Benjamin Franklin
+
+made a durable stain, and on those lines I mark’d my faults with a black- lead pencil, which marks I could easily wipe out with a wet sponge. After a while I went thro’ one course only in a year, and afterward only one in several years, till at length I omitted them entirely, being employ’d in voyages and business abroad, with a multiplicity of affairs that interfered; but I always carried my little book with me.
 

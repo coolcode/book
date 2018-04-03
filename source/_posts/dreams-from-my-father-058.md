@@ -1,123 +1,135 @@
 title: Dreams from My Father 058
-date: 2015-01-24 15:43:37
+date: 2015-01-25 03:45:19
 tags: dreams-from-my-father
 ---
 
-pair of university students who sip sweet, creamed tea and eat samosas in a dimly lit teahouse. I smell him in the cigarette smoke of the businessman who covers one ear and shouts into a pay phone; in the sweat of the day laborer who loads gravel into a wheelbarrow, his face and bare chest covered with dust. The Old Man’s here, I think, although he doesn’t say anything to me. He’s here, asking me to understand.
+“Your nephew!” the white-haired man said, pointing to himself.
 
-CHAPTER SIXTEEN
+The short one laughed and said, “His hair is white, but he calls you uncle! Ha-ha. You like this English? Come.”
 
-B ERNARD RANG THE DOORBELL at ten o’clock sharp. He wore faded blue shorts and a T-shirt several sizes too small; in his hands was a bald orange basketball, held out like an offering.
+They led us to a wooden table set with an unlabeled bottle of clear liquid and three glasses. The white-haired man held
 
-“Ready?” he asked.
+up the bottle, then carefully poured what looked like a couple of shots into each glass. “This is better than whiskey, Barry,” Billy said as he lifted his glass. “It makes a man very potent.” He threw the drink down his throat, and Roy and I followed suit. I felt my chest explode, raining down shrapnel into my stomach. The glasses were refilled, but Sayid took a pass, so the short man held the extra drink in front of my eyes, his face distorted through the glass.
 
-“Almost. Give me a second to put on my shoes.”
+“More?”
 
-He followed me into the apartment and stepped over to the desk where I had been working. “You’ve been reading
+“Not right now,” I said, suppressing a cough. “Thanks.”
 
-again, Barry,” he said, shaking his head. “Your woman will get bored with you, always spending time with books.” I sat down to tie my sneakers. “I’ve been told.”
+“You may perhaps have something for me?” the white-haired man said. “T-shirt maybe? Shoes?”
 
-He tossed the ball into the air. “Me, I’m not so interested in books. I’m a man of action. Like Rambo.”
+“I’m sorry...I left everything back in Alego.”
 
-I smiled. “Okay, Rambo,” I said, standing up and opening the door. “Let’s see how you do running down to the
+The short man kept smiling as if he hadn’t understood and again offered me a drink. This time Billy pushed the man’s
 
-courts.”
+hand away.
 
-Bernard looked at me doubtfully. “The courts are far away. Where’s the car?”
+“Leave him be!” Billy shouted. “We can drink more later. First we should see our grandfather.”
 
-“Auma took it to work.” I went out onto the veranda and started stretching. “Anyway, she told me it’s just a mile.
+The two men led us into a small back room. There, in front of a kerosene lamp, sat what looked like the oldest man I
 
-Good for warming up those young legs of yours.”
+had ever seen. His hair was snow-white, his skin like parchment. He was motionless, his eyes closed, his fleshless arms propped on the armrests of his chair. I thought perhaps he was asleep, but when Billy stepped forward the old man’s head tilted in our direction, and I saw a mirror image of the face I’d seen yesterday in Alego, in the faded photograph on Granny’s wall.
 
-He followed me halfheartedly through a few stretching exercises before we started up the graveled driveway onto the
+Billy explained who was there, and the old man nodded and began to speak in a low, quaking voice that seemed to rise out of a chamber beneath the floor.
 
-main road. It was a perfect day, the sun cut with a steady breeze, the road empty except for a distant woman, walking with a basket of kindling on top of her head. After less than a quarter of a mile, Bernard stopped dead in his tracks, beads of sweat forming on his high, smooth forehead.
+“He says that he is glad you have come,” Roy translated. “He was your grandfather’s brother. He wishes you well.” I said that I was happy to see him, and the old man nodded again.
 
-“I’m warmed up, Barry,” he said, gulping for air. “I think now we should walk.”
+“He says that many young men have been lost to...the white man’s country. He says his own son is in America and
 
-The University of Nairobi campus took up a couple of acres near the center of town. The courts were above the athletic field on a slight rise, their pebbled asphalt cracked with weeds. I watched Bernard as we took turns shooting, and thought about what a generous and easy companion he’d been these last few days, taking it upon himself to guide me through the city while Auma was busy grading exams. He would clutch my hand protectively as we made our way through the crowded streets, infinitely patient whenever I stopped to look at a building or read a sign that he passed by every day, amused by my odd ways but with none of the elaborate gestures of boredom or resistance that I would have shown at his age.
+has not come home for many years. Such men are like ghosts, he says. When they die, no one will be there to mourn them. No ancestors will be there to welcome them. So...he says it is good that you have returned.”
 
-That sweetness, the lack of guile, made him seem much younger than his seventeen years. But he was seventeen, I reminded myself, an age where a little more independence, a sharper edge to his character, wouldn’t be such a bad thing. I realized that he had time for me partly because he had nothing better to do. He was patient because he had no
+The old man raised his hand and I shook it gently. As we got up to leave, the old man said something else, and Roy nodded his head before closing the door behind us.
 
-particular place he wanted to go. I needed to talk to him about that, as I’d promised Auma I would-a man-to-man talk....
+“He says that if you hear of his son,” Roy explained, “you should tell him that he should come home.”
 
-“You have seen Magic Johnson play?” Bernard asked me now, gathering himself for a shot. The ball went through the netless rim, and I passed the ball back out to him.
+Perhaps it was the effects of the moonshine, or the fact that the people around me were speaking in a language I didn’t understand. But when I try to remember the rest of that evening, it’s as if I’m walking through a dream. The moon hangs low in the sky, while the figures of Roy and the others merge with the shadows of corn. We enter another small house and find more men, perhaps six, perhaps ten, the numbers constantly changing as the night wears on. In the center of a rough wooden table sit three more bottles, and the men begin pouring the moonshine into the glasses, ceremoniously at first, then faster, more sloppily; the dull, labelless bottle passed from hand to hand. I stop drinking after two more shots, but no one seems to notice. Old faces and young faces all glow like jack-o’-lanterns in the shifting lamplight, laughing and shouting, slumped in dark corners or gesticulating wildly for cigarettes or another drink, anger or joy pitching up to a crest, then just as quickly ebbing away, words of Luo and Swahili and English running together in unrecognizable swirls, the voices wheedling for money or shirts or the bottle, the voices laughing and sobbing, the outstretched hands, the faltering angry voices of my own sodden youth, of Harlem and the South Side; the voices of my father.
 
-“Just on TV.”
+I’m not sure how long we stayed. I know that at some point, Sayid came up and shook my arm. “Barry, we are going,” he said. “Bernard is not feeling well.”
 
-Bernard nodded. “Everybody has a car in America. And a telephone.” They were more statements than questions. “Most people. Not everybody.”
+I said I’d go with them, but as I stood up, Abo leaned over to me and grabbed my shoulders. “Barry! Where are you going?”
 
-He shot again and the ball clanged noisily off the rim. “I think it is better there,” he said. “Maybe I will come to
+“To sleep, Abo.”
 
-America. I can help you with your business.”
+“You must stay here with us! With me! And Roy!”
 
-“I don’t have a business right now. Maybe after I finish law school-”
+I looked up to see Roy slumped on the couch. Our eyes met, and I nodded toward the door. It seemed then that the
 
-“It must be easy to find work.”
+entire room became silent, as if I were watching the scene on television and the sound had gone off. I saw the white- haired man fill Roy’s glass, and I thought about pulling Roy out of the room. But Roy’s eyes slid away from mine; he laughed and poured the drink down his throat to much cheering and applause, cheering that I still could hear even after Sayid, Bernard, and I had started making our way back toward Salina’s house.
 
-“Not for everybody. Actually, lots of people have a tough time in the States. Black people especially.”
+“Those people were too drunk,” Bernard said weakly as we walked across the field.
 
-He held the ball. “Not as bad as here.”
+Sayid nodded and turned to me. “I’m afraid Roy is too much like my eldest brother. You know, your father was very popular in these parts. Also in Alego. Whenever he came home, he would buy everyone drinks and stay out very late. The people here appreciated this. They would tell him, ‘You are a big man, but you have not forgotten us.’ Such words made him happy, I think. I remember once, he took me to Kisumu town in his Mercedes. On the way, he saw a matatu picking up passengers, and he said to me, ‘Sayid, we will be matatu drivers this evening!’ At the next matatu stop, he picked up the remaining people and told me to collect the regular fare from them. I think we squeezed eight people into his car. He took them not only to Kisumu but to their houses, or wherever they needed to go. And when each of them got out, he gave them all their money back. The people didn’t understand why he did this thing, and I also didn’t understand at the time. After we were done, we went to the bar, and he told the story of what we had done to all of his friends. He laughed very well that night.”
 
-We looked at each other, and I tried to picture the basketball courts back in the States. The sound of gunshots nearby,
+Sayid paused, choosing his words carefully.
 
-a guy peddling nickel hits in the stairwell-that was one picture. The laughter of boys playing in their suburban backyard, their mother calling them in for lunch. That was true, too. The two pictures collided, leaving me tongue-tied. Satisfied with my silence, Bernard returned to his dribbling.
+“This is what made my brother such a good man, these things. But I think also that once you are one thing, you cannot pretend that you are something else. How could he be a matatu driver, or stay out all night drinking, and also he is writing Kenya’s economic plan? A man does service for his people by doing what is right for him, isn’t this so? Not by doing what others think he should do. But my brother, although he prided himself on his independence, I also think that he was afraid of some things. Afraid of what people would say about him if he left the bar too early. That perhaps he would no longer belong with those he’d grown up with.”
 
-When the sun became too strong, we walked to an ice-cream parlor a few blocks from the university. Bernard ordered a chocolate sundae and began eating methodically, measuring out the ice cream half a teaspoon at a time. I lit a cigarette and leaned back in my chair.
+“I don’t want to be that way,” Bernard said.
 
-“Auma tells me that you’re thinking about trade school,” I said.
+Sayid looked at his nephew with something like regret. “I did not mean to speak so freely, Bernard. You must respect your elders. They clear the way for you so that your path is easier. But if you see them falling into a pit, then you must learn to what?”
 
-He nodded, his expression noncommittal.
+“Step around,” Bernard said.
 
-“What kind of courses are you interested in?”
+“You are right. Diverge from that path and make your own.”
 
-“I don’t know.” He dipped his spoon in his sundae and thought for a moment. “Maybe auto mechanics. Yes...I think
+Sayid put his arm over the younger man’s shoulders. As we approached Salina’s house, I looked back behind me. I
 
-auto mechanics is good.”
+could still see the dim light of the old man’s window, and sense his blind eyes staring out into the darkness.
 
-“Have you tried to get into some sort of program?”
+CHAPTER NINETEEN
 
-“No. Not really.” He stopped to take another bite. “You must pay fees.”
+R OY AND ABO BOTH woke up with bad headaches, and along with Kezia stayed in Kendu for another day. In slightly better shape, I decided to make the trip back to Home Squared with Sayid and Bernard by bus, a decision I soon regretted. We had to stand for most of the way, our heads forced down by the bus’s low roof. To make matters worse, I’d come down with a case of the runs. My stomach lurched with every bump. My head throbbed with each wayward turn. And so it was in a cautious trot that I first appeared to Granny and Auma upon our return, offering them a curt wave before racing across the backyard, around an errant cow, and into the outhouse.
 
-“How old are you now, Bernard?”
+Twenty minutes later I emerged, blinking like a prisoner in the light of the early afternoon. The women were gathered on straw mats under the shade of a mango tree while Granny braided Auma’s hair and Zeituni braided the hair of a neighbor’s girl.
 
-“Seventeen,” he said cautiously.
+“Did you have a nice time?” Auma said, trying not to smile.
 
-“Seventeen.” I nodded, blowing smoke at the ceiling. “You know what that means, don’t you? It means you’re almost
+“Wonderful.” I sat down beside them and watched as a skinny old woman came out of the house and took a spot next to Granny. The old woman was in her early seventies, I guessed, but was dressed in a bright pink sweater; she folded her legs to the side like a bashful schoolgirl. She peered at me and spoke to Auma in Luo.
 
-a man. Somebody with responsibilities. To your family. To yourself. What I’m trying to say is, it’s time you decided on something that interested you. Could be auto mechanics. Could be something else. But whatever it is, you’re gonna have to set some goals and follow through. Auma and I can help you with school fees, but we can’t live your life for you. You’ve got to put in some effort. You understand?”
+“She says you don’t look so well.”
 
-Bernard nodded. “I understand.”
+The old woman smiled at me, revealing two missing bottom front teeth.
 
-We both sat in silence for a while, watching Bernard’s spoon twirl through the now-liquid mess. I began to imagine how hollow my words must be sounding to this brother of mine, whose only fault was having been born on the wrong
+“This is our grandfather’s sister, Dorsila,” Auma continued. “The last child of our great-grandfather Obama. She lives
 
-side of our father’s cloven world. He didn’t resent me for this, it seemed. Not yet. Only he must have been wondering why I was pretending that my rules somehow applied to him. All he wanted was a few tokens of our relationship-Bob Marley cassettes, maybe my basketball shoes once I was gone. So little to ask for, and yet anything else that I offered- advice, scoldings, my ambitions for him-would seem even less.
+in another village, but when she heard-Ow! I tell you, Barack, you are lucky you don’t have braids to undo. What was I
 
-I stamped out my cigarette and suggested we get going. As we stepped into the street, Bernard draped his arm over my shoulder.
+saying? Yah...Dorsila says that when she heard that we had come she walked all the way to see us. She brings greetings from all the people of her village.”
 
-“It’s good to have a big brother around,” he said before waving good-bye and vanishing into the crowd.
+Dorsila and I shook hands, and I mentioned that I’d met her older brother in Kendu Bay. She nodded and spoke again.
 
-What is a family? Is it just a genetic chain, parents and offspring, people like me? Or is it a social construct, an economic unit, optimal for child rearing and divisions of labor? Or is it something else entirely: a store of shared memories, say? An ambit of love? A reach across the void?
+“She says her brother is very old,” Auma translated. “When he was younger, he looked just like our grandfather. Sometimes even she couldn’t tell them apart.”
 
-I could list various possibilities. But I’d never arrived at a definite answer, aware early on that, given my circumstances, such an effort was bound to fail. Instead, I drew a series of circles around myself, with borders that shifted as time passed and faces changed but that nevertheless offered the illusion of control. An inner circle, where love was constant and claims unquestioned. Then a second circle, a realm of negotiated love, commitments freely chosen. And then a circle for colleagues, acquaintances; the cheerful gray-haired lady who rang up my groceries back in Chicago. Until the circle finally widened to embrace a nation or a race, or a particular moral course, and the commitments were no longer tied to a face or a name but were actually commitments I’d made to myself.
+I agreed and took out my lighter. As I pulled at the flame, our great-aunt hooted and spoke rapidly to Auma.
 
-In Africa, this astronomy of mine almost immediately collapsed. For family seemed to be everywhere: in stores, at the post office, on streets and in the parks, all of them fussing and fretting over Obama’s long-lost son. If I mentioned in passing that I needed a notebook or shaving cream, I could count on one of my aunts to insist that she take me to some far-off corner of Nairobi to find the best bargains, no matter how long the trip took or how much it might inconvenience her.
+“She wants to know where the fire comes from.”
 
-“Ah, Barry...what is more important than helping my brother’s son?”
+I handed Dorsila the lighter and showed her how it worked as she continued to speak. Auma explained, “She says that
 
-If a cousin discovered, much to his distress, that Auma had left me to fend for myself, he might walk the two miles to Auma’s apartment on the off chance that I was there and needed company.
+things are changing so fast it makes her head spin. She says that the first time she saw television, she assumed the people inside the box could also see her. She thought they were very rude, because when she spoke to them they never answered back.”
 
-“Ah, Barry, why didn’t you call on me? Come, I will take you to meet some of my friends.”
+Dorsila chuckled at herself good-humoredly, while Zeituni went into the cooking hut. A few minutes later, Zeituni came out with a mug in her hand. I asked her what had happened to Sayid and Bernard.
 
-And in the evenings, well, Auma and I simply surrendered ourselves to the endless invitations that came our way from uncles, nephews, second cousins or cousins once removed, all of whom demanded, at the risk of insult, that we sit down for a meal, no matter what time it happened to be or how many meals we had already eaten.
+“They’re asleep,” she said, handing me the cup. “Here. Drink this.”
 
-“Ah, Barry...we may not have much in Kenya-but so long as you are here, you will always have something to eat!”
+I took a sniff of the steaming green liquid. It smelled like a swamp.
 
-At first I reacted to all this attention like a child to its mother’s bosom, full of simple, unquestioning gratitude. It conformed to my idea of Africa and Africans, an obvious contrast to the growing isolation of American life, a contrast I understood, not in racial, but in cultural terms. A measure of what we sacrificed for technology and mobility, but that here-as in the kampongs outside Djakarta or in the country villages of Ireland or Greece-remained essentially intact: the insistent pleasure of other people’s company, the joy of human warmth.
+“What is it?”
 
-As the days wore on, though, my joy became tempered with tension and doubt. Some of it had to do with what Auma had talked about that night in the car-an acute awareness of my relative good fortune, and the troublesome questions such good fortune implied. Not that our relatives were suffering, exactly. Both Jane and Zeituni had steady jobs; Kezia made do selling cloth in the markets. If cash got too short, the children could be sent upcountry for a time; that’s where another brother, Abo, was staying, I was told, with an uncle in Kendu Bay, where there were always chores to perform, food on the table and a roof over one’s head.
+“It’s made from a plant that grows here. Trust me...it will firm up your stomach in a jiffy.”
 
-Still, the situation in Nairobi was tough and getting tougher. Clothes were mostly secondhand, a doctor’s visit reserved for the direst emergency. Almost all the family’s younger members were unemployed, including the two or three who had managed, against stiff competition, to graduate from one of Kenya’s universities. If Jane or Zeituni ever fell ill, if their companies ever closed or laid them off, there was no government safety net. There was only family, next of kin; people burdened by similar hardship.
+I took a tentative first sip. The brew tasted as bad as it looked, but Zeituni stood over me until I had gulped down the
 
-Now I was family, I reminded myself; now I had responsibilities. But what did that mean exactly? Back in the States, I’d been able to translate such feelings into politics, organizing, a certain self-denial. In Kenya, these strategies seemed hopelessly abstract, even self-indulgent. A commitment to black empowerment couldn’t help find Bernard a job. A faith in participatory democracy couldn’t buy Jane a new set of sheets. For the first time in my life, I found myself thinking deeply about money: my own lack of it, the pursuit of it, the crude but undeniable peace it could buy. A part of me wished I could live up to the image that my new relatives imagined for me: a corporate lawyer, an American businessman, my hand poised on the spigot, ready to rain down like manna the largesse of the Western world.
+last drop. “That is your grandfather’s recipe,” she said. “I told you he was a herbalist.”
+
+I took another puff from my cigarette and turned to Auma. “Ask Granny to tell me more about him,” I said. “Our
+
+grandfather, I mean. Roy says that he actually grew up in Kendu, then moved to Alego on his own.”
+
+Granny nodded to Auma’s translation. “Does she know why he left Kendu?”
+
+Granny shrugged. “She says that originally his people came from this land,” Auma said.
+
+I asked Granny to start from the beginning. How did our great-grandfather Obama come to live in Kendu? Where did
+
+our grandfather work? Why did the Old Man’s mother leave? As she started to answer, I felt the wind lift, then die. A row of high clouds crossed over the hills. And under the fanning shade of the mango tree, as hands wove black curls into even rows, I heard all our voices begin to run together, the sound of three generations tumbling over each other like the currents of a slow-moving stream, my questions like rocks roiling the water, the breaks in memory separating the currents, but always the voices returning to that single course, a single story....
 

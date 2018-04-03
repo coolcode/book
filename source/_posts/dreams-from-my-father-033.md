@@ -1,105 +1,57 @@
 title: Dreams from My Father 033
-date: 2015-01-24 15:44:02
+date: 2015-01-25 03:45:44
 tags: dreams-from-my-father
 ---
 
-“Before we adjourn,” he announced, “I want us to try something out. This here’s a church-based organization, and that means we devote a part of each meeting to reflection on ourselves, our relationships to each other, and our relationship to God. So I want everybody to take out just a minute to think about what brought them here tonight, some thoughts or feelings that you haven’t talked about, and then I want you to share ’em with the group.”
+“So what happened.”
 
-Will let the silence build for several minutes. “Anybody want to share their thoughts?” he repeated.
+I shrugged. “I pushed her away. We started to fight. We started thinking about the future, and it pressed in on our warm little world. One night I took her to see a new play by a black playwright. It was a very angry play, but very funny. Typical black American humor. The audience was mostly black, and everybody was laughing and clapping and hollering like they were in church. After the play was over, my friend started talking about why black people were so angry all the time. I said it was a matter of remembering-nobody asks why Jews remember the Holocaust, I think I said- and she said that’s different, and I said it wasn’t, and she said that anger was just a dead end. We had a big fight, right in front of the theater. When we got back to the car she started crying. She couldn’t be black, she said. She would if she could, but she couldn’t. She could only be herself, and wasn’t that enough.”
 
-People looked down at the table uncomfortably.
+“That’s a sad story, Barack.”
 
-“Okay,” Will said. “I’ll share something that’s been on my mind for a while. Nothing big-just memories. You know,
+“I suppose. Maybe even if she’d been black it still wouldn’t have worked out. I mean, there are several black ladies out there who’ve broken my heart just as good.” I smiled and scraped the cut-up peppers into the pot, and then turned back to Auma. “The thing is,” I said, no longer smiling, “whenever I think back to what my friend said to me, that night outside the theater, it somehow makes me ashamed.”
 
-my folks weren’t rich or nothing. We lived out in Altgeld. But when I think back on my own childhood, I remember some really good times. I remember going to Blackburn Forest with my folks to pick wild berries. I remember making skating carts with my cut buddies out of empty fruit crates and old roller skate wheels and racing around the parking lot. I remember going on field trips at school, and on the holidays meeting all the families in the park, everybody out and nobody scared, and then in the summers sleeping out in the yard together if it got too hot inside. A lot of good memories...seemed like I was smiling all the time, laughing-”
+“Do you ever hear from her?”
 
-Will broke off suddenly and bowed his head. I thought he was preparing to sneeze, but when he raised his head back up, I saw tears rolling down his cheeks. He continued in a cracking voice, “And you know, I don’t see kids smiling around here no more. You look at ’em listen to ’em...they seem worried all the time, mad about something. They got nothing they trust. Not their parents. Not God. Not themselves. And that’s not right. That just ain’t the way things supposed to be...kids not smiling.”
+“I got a postcard at Christmas. She’s happy now; she’s met someone. And I have my work.” “Is that enough?”
 
-He stopped again and pulled a handkerchief from his hip pocket to blow his nose. Then, as if the sight of this big man weeping had watered the dry surface of their hearts, the others in the room began speaking about their own memories in solemn, urgent tones. They talked about life in small Southern towns: the corner stores where men had gathered to learn the news of the day or lend a hand to women with their groceries, the way adults looked after each other’s children (“Couldn’t get away with nothing, ’cause your momma had eyes and ears up and down the whole block”), the sense of public decorum that such familiarity had helped sustain. In their voices was no little bit of nostalgia, elements of selective memory; but the whole of what they recalled rang vivid and true, the sound of shared loss. A feeling of witness, of frustration and hope, moved about the room from mouth to mouth, and when the last person had spoken, it hovered in the air, static and palpable. Then we all joined hands, Mr. Green’s thick, callused hand in my left, Mrs. Turner’s, slight and papery to the touch, in my right, and together we asked for the courage to turn things around.
+“Sometimes.”
 
-I helped Will and Mary put back the chairs, rinse out the coffee pot, lock up, and turn off the lights. Outside, the night was cold and clear. I turned up my collar and quickly evaluated the meeting: Will needed to watch the time; we had to research the issue of city services before the next meeting and interview everyone who had come. At the end of my checklist, I put my arm around Will’s shoulders.
+I took the next day off, and we spent the day together, visiting the Art Institute (I wanted to go see the shrunken heads at the Field Museum, but Auma refused), digging old photos out of my closet, visiting the supermarket, where Auma decided that Americans were friendly and overweight. She was stubborn sometimes, sometimes impish, sometimes burdened with the weight of the world, and always asserting a self-reliance that I recognized as a learned response-my own response to uncertainty.
 
-“That reflection at the end was pretty powerful, Will.”
+We didn’t speak much about our father, though; it was as if our conversation stopped whenever we threatened to skirt his memory. It was only that night, after dinner and a long walk along the lake’s crumbling break wall, that we both
 
-He looked at Mary and they both smiled. “We noticed you didn’t share anything with the group,” Mary said.
+sensed we couldn’t go any further until we opened up the subject. I made us some tea and Auma began to tell me about the Old Man, at least what she could remember.
 
-“The organizer’s supposed to keep a low profile.”
+“I can’t say I really knew him, Barack,” she began. “Maybe nobody did...not really. His life was so scattered. People only knew scraps and pieces, even his own children.
 
-“Who says?”
+“I was scared of him. You know, he was already away when I was born. In Hawaii with your mum, and then at Harvard. When he came back to Kenya, our oldest brother, Roy, and I were small children. We had lived with our mum in the country, in Alego, up until then. I was too young to remember much about him coming. I was four, but Roy was six, so maybe he can tell you more about what happened. I just remember that he came back with an American woman named Ruth, and that he took us from our mother to go live with them in Nairobi. I remember that this woman, Ruth, was the first white person I’d ever been near, and that suddenly she was supposed to be my new mother.”
 
-“It’s in my organizer’s handbook. Come on, Mary, I’ll give you a ride home.”
+“Why didn’t you stay with your own mother?”
 
-Will mounted his bike and waved good-bye, and Mary and I drove the four blocks to her house. I let her out in front of
+Auma shook her head. “I don’t know exactly. In Kenya, men get to keep children in a divorce-if they want them, that is. I asked my mum about this, but it’s difficult for her to talk about. She only says that the Old Man’s new wife refused to live with another wife, and that she-my mum-thought us children would be better off living with the Old Man because he was rich.
 
-her door and watched her take a few steps before I stretched across the passenger seat and rolled down the window. “Hey, Mary.”
+“In those first years, the Old Man was doing really well, you see. He was working for an American oil company-Shell, I think. It was only a few years after independence, and the Old Man was well connected with all the top government people. He had gone to school with many of them. The vice-president, ministers, they would all come to the house sometimes and drink with him and talk about politics. He had a big house and a big car, and everybody was impressed with him because he was so young but he already had so much education from abroad. And he had an American wife, which was still rare-although later, when he was still married to Ruth, he would go out sometimes with my real mum. As if he had to show people, you see. That he could also have this beautiful African woman whenever he chose. Our four other brothers were born at this time. Mark and David, they were Ruth’s children, born in our big house in Westlands. Abo and Bernard, they were my mum’s children, and lived with her and her family upcountry. Roy and I didn’t know Abo and Bernard then. They never came to the house to see us, and when the Old Man visited them, he would always go alone, without telling Ruth.
 
-She came back and bent down to look at me.
+“I didn’t think about this much until later, the way our lives were divided in two, because I was so young. I think it was harder on Roy, because he was old enough to remember what it had been like in Alego, living in the village with our mum and our people. For me, things were okay. Ruth, our new mother, was nice enough to us then. She treated us almost like her own children. Her parents were rich, I think, and they would send us beautiful presents from the States. I’d get really excited whenever a package came from them. But I remember sometimes Roy would refuse to take their gifts, even when they sent us sweets. I remember once he refused some chocolates they had sent, but later in the night, when he thought I was asleep, I saw him taking some of the chocolates that I had left on our dresser. But I didn’t say anything, because I think I knew that he was unhappy.
 
-“You know what you were asking before. About why I do this. It had something to do with the meeting tonight. I mean...I don’t think our reasons are all that different.”
+“Then things began to change. When Ruth gave birth to Mark and David, her attention shifted to them. The Old Man, he left the American company to work in the government, for the Ministry of Tourism. He may have had political ambitions, and at first he was doing well in the government. But by 1966 or 1967, the divisions in Kenya had become
 
-She nodded, and walked up the path to her daughters.
+more serious. President Kenyatta was from the largest tribe, the Kikuyus. The Luos, the second largest tribe, began to complain that Kikuyus were getting all the best jobs. The government was full of intrigue. The vice-president, Odinga, was a Luo, and he said the government was becoming corrupt. That, instead of serving those who had fought for independence, Kenyan politicians had taken the place of the white colonials, buying up businesses and land that should be redistributed to the people. Odinga tried to start his own party, but was placed under house arrest as a Communist. Another popular Luo minister, Tom M’boya, was killed by a Kikuyu gunman. Luos began to protest in the streets, and the government police cracked down. People were killed. All this created more suspicion between the tribes.
 
-A week later, I was back out in Altgeld, trying to stuff Angela, Mona, and Shirley into my subcompact car. Mona, who was sitting in the back, complained about the lack of room.
+“Most of the Old Man’s friends just kept quiet and learned to live with the situation. But the Old Man began to speak up. He would tell people that tribalism was going to ruin the country and that unqualified men were taking the best jobs. His friends tried to warn him about saying such things in public, but he didn’t care. He always thought he knew what was best, you see. When he was passed up for a promotion, he complained loudly. ‘How can you be my senior,’ he would say to one of the ministers, ‘and yet I am teaching you how to do your job properly?’ Word got back to Kenyatta that the Old Man was a troublemaker, and he was called in to see the president. According to the stories, Kenyatta said to the Old Man that, because he could not keep his mouth shut, he would not work again until he had no shoes on his feet.
 
-“What kinda car is this anyway?” she asked.
+“I don’t know how much of these details are true. But I know that with the president as an enemy things became very bad for the Old Man. He was banished from the government-blacklisted. None of the ministries would give him work. When he went to foreign companies to look for a post, the companies were warned not to hire him. He began looking abroad and was hired to work for the African Development Bank in Addis Ababa, but before he could join them, the government revoked his passport, and he couldn’t even leave Kenya.
 
-Shirley moved her seat up. “It’s built for the skinny little girls Barack goes out with.”
+“Finally, he had to accept a small job with the Water Department. Even this was possible only because one of his friends pitied him. The job kept food on the table, but it was a big fall for him. The Old Man began to drink heavily, and many of the people he knew stopped coming to visit because now it was dangerous to be seen with him. They told him that maybe if he apologized, changed his attitude, he would be all right. But he refused and continued to say whatever was on his mind.
 
-“Who are we meeting with again?”
+“I understood most of this only when I was older. At the time, I just saw that life at home became very difficult. The Old Man never spoke to Roy or myself except to scold us. He would come home very late, drunk, and I could hear him shouting at Ruth, telling her to cook him food. Ruth became very bitter at how the Old Man had changed. Sometimes, when he wasn’t home, she would tell Roy and myself that our father was crazy and that she pitied us for having such a father. I didn’t blame her for this-I probably agreed. But I noticed that, even more than before, she treated us differently from her own two sons. She would say that we were not her children and there was only so much she could do to help us. Roy and I began to feel like we had no one. And when Ruth left the Old Man, that feeling was not so far from the truth.
 
-I had scheduled three meetings, hoping to find a job strategy that would meet the needs of people in Altgeld. For now
+“She left when I was twelve or thirteen, after the Old Man had had a serious car accident. He had been drinking, I think, and the driver of the other car, a white farmer, was killed. For a long time the Old Man was in the hospital, almost a year, and Roy and I lived basically on our own. When the Old Man finally got out of the hospital, that’s when he went to visit you and your mum in Hawaii. He told us that the two of you would be coming back with him and that
 
-at least a new manufacturing boom appeared out of our reach: The big manufacturers had opted for well-scrubbed suburban corridors, and not even Gandhi could have gotten them to relocate near Altgeld anytime soon. On the other hand, there did remain a part of the economy that could be called local, I thought, a second-level consumer economy-of shops, restaurants, theaters, and services-that in other areas of the city continued to function as an incubator of civic life. Places where families might invest their savings and make a go of a business, and where entry-level jobs might be had; places where the economy remained on a human scale, transparent enough for people to understand.
+then we would have a proper family. But you weren’t with him when he returned, and Roy and I were left to deal with him by ourselves.
 
-The closest thing to a shopping district in the area was in Roseland, and so we followed the bus route up Michigan Avenue, with its wig shops and liquor stores, discount clothing stores and pizzerias, until we arrived in front of a two- story former warehouse. We entered the building through a heavy metal door and took a narrow set of stairs down into a basement filled with old furniture. In a small office sat a slight, wiry man with a goatee and a skullcap that accentuated a pair of prominent ears.
+“Because of the accident, the Old Man had now lost his job at the Water Department, and we had no place to live. For a while, we bounced around from relative to relative, but eventually they would put us out because they had their own troubles. Then we found a run-down house in a rough section of town, and we stayed there for several years. That was a terrible time. The Old Man had so little money, he would have to borrow from relatives just for food. This made him more ashamed, I think, and his temper got worse. Despite all our troubles, he would never admit to Roy or myself that anything was wrong. I think that’s what hurt the most-the way he still put on airs about how we were the children of Dr. Obama. We would have empty cupboards, and he would make donations to charities just to keep up appearances! I would argue with him sometimes, but he would just say that I was a foolish young girl and didn’t understand.
 
-“Can I help you?”
-
-I explained who we were and that we had spoken on the phone.
-
-“That’s right, that’s right.” He gestured to two large men standing on either side of his desk and they walked past us
-
-with a nod. “Listen, we’re gonna have to make this quick ’cause something’s come up. Rafiq al Shabazz.”
-
-“I know you,” Shirley said as we shook hands with Rafiq. “You’re Mrs. Thompson’s boy, Wally. How’s your
-
-momma doing?”
-
-Rafiq forced a smile and offered us all a seat. He explained that he was the president of the Roseland Unity Coalition,
-
-an organization that engaged in a range of political activities to promote the black cause and claimed considerable credit for helping Mayor Washington get elected. When we asked him how our churches could encourage local economic development, he handed us a leaflet accusing Arab stores of selling bad meat.
-
-“That’s the real deal, right here,” Rafiq said. “People from outside our community making money off us and showing our brothers and sisters disrespect. Basically what you got here is Koreans and Arabs running the stores, the Jews still owning most of the buildings. Now, in the short term, we’re here to make sure that the interests of black people are looked after, you understand. When we hear one of them Koreans is mistreating a customer, we gonna be on the case. We gonna insist that they respect us and make a contribution back to the community-fund our programs, what have you.
-
-“That’s the short term. This”-Rafiq pointed to a map of Roseland that hung on the wall, with certain areas marked off in red ink-“is the long term. It’s all about ownership. A comprehensive plan for the area. Black businesses, community centers-the whole nine yards. Some of the properties, we’ve already started negotiating with the white owners to sell them to us at a fair price. So if y’all are interested in jobs, then you can help by spreading the message about this here plan. The problem we got right now is not enough support from the folks in Roseland. Instead of taking a stand, they’d rather follow white folks out into the suburbs. But see, white folks ain’t stupid. They just waiting for us to move out of the city so they can come back, ’cause they know that the value of the property we sitting on right now is worth a mint.”
-
-One of the burly men reentered Rafiq’s office, and Rafiq stood up. “I gotta get going,” he said abruptly. “But hey, we’ll talk again.” He shook all our hands before his assistant led us to the door.
-
-“Sounds like you knew him, Shirley,” I said once we were out of the building.
-
-“Yeah, before he got that fancy name of his, he was plain old Wally Thompson. He can change his name but he can’t hide them ears he’s got. He grew up in Altgeld-in fact, I think him and Will used to be in school together. Wally was a big-time gang-banger before he became a Muslim.”
-
-“Once a thug, always a thug,” Angela said.
-
-Our next stop was the local Chamber of Commerce, located on the second floor of what looked like a pawnshop. Inside, we found a plump black man who was busy packing boxes.
-
-“We’re looking for Mr. Foster,” I said to the man.
-
-“I’m Foster,” he said, not looking up.
-
-“We were told that you were the president of the Chamber-”
-
-“Well, you right about that. I was the president. Just resigned last week.”
-
-He offered us three chairs and talked as he worked. He explained that he had owned the stationery store down the
-
-street for fifteen years now, had been the president of the Chamber for the last five. He had done his best to organize the local merchants, but lack of support had finally left him discouraged.
-
-“You won’t hear me complaining about the Koreans,” he said, stacking a few boxes by the door. “They’re the only ones that pay their dues into the Chamber. They understand business, what it means to cooperate. They pool their money. Make each other loans. We don’t do that, see. The black merchants around here, we’re all like crabs in a bucket.” He straightened up and wiped his brow with a handkerchief. “I don’t know. Maybe you can’t blame us for being the way we are. All those years without opportunity, you have to figure it took something out of us. And it’s tougher now than it was for the Italian or the Jew thirty years ago. These days, a small store like mine has to compete against the big chains. It’s a losing battle unless you do like these Koreans-work your family sixteen hours a day, seven days a week. As a people, we’re not willing to do that anymore. I guess we worked so long for nothing, we feel like we shouldn’t have to break our backs just to survive. That’s what we tell our children anyway. I can’t say I’m any different. I tell my sons I don’t want them taking over the business. I want them to go work for some big company where they can be comfortable....”
-
-Before we left, Angela asked about the possibility of part-time work for the youth in Altgeld. Mr. Foster looked up at her like she was crazy.
-
-“Every merchant around here turns down thirty applications a day,” he said. “Adults. Senior citizens. Experienced workers willing to take whatever they can get. I’m sorry.”
-
-As we walked back to the car, we passed a small clothing store full of cheap dresses and brightly colored sweaters, two aging white mannequins now painted black in the window. The store was poorly lit, but toward the back I could make out the figure of a young Korean woman sewing by hand as a child slept beside her. The scene took me back to my childhood, back to the markets of Indonesia: the hawkers, the leather workers, the old women chewing betelnut and swatting flies off their fruit with whisk brooms.
+“It was worse between him and Roy. They would have terrific fights. Finally Roy just left. He just stopped coming home and started living with different people. So I was left alone with the Old Man. Sometimes I would stay up half the night, waiting to hear him come through the door, worrying that something terrible had happened. Then he would stagger in drunk and come into my room and wake me because he wanted company or something to eat. He would talk about how unhappy he was and how he had been betrayed. I would be so sleepy, I wouldn’t understand anything he was saying. Secretly, I began to wish that he would just stay out one night and never come back.
 

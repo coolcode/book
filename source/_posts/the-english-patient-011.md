@@ -1,119 +1,87 @@
 title: The English Patient 011
-date: 2015-01-24 15:44:23
+date: 2015-01-25 03:46:06
 tags: the-english-patient
 ---
 
-第39页共162页 http://www.en8848.com.cn/ 原版英语阅读网
+The two men take a trip by cart down into the valley to pick up a sack of flour. Also, the soldier has to deliver maps of the cleared areas to headquarters at San Domenico. Finding it difficult to ask questions about each other, they speak about Hana. There are many questions before the older man admits having known her before the war.
 
-￼￼￼that he thinks might be interesting to them. Oi\e afternoon he announces that the bandleader Glenn Miller has died, his plane having crashed somewhere between Eng¬land and France.
+“In Canada?”
 
-So he moves among them. She sees him in the distance of a defunct garden with the diviner or, if he has found something, unravelling that knot of wires and fuzes someone has left him like a terrible letter.
+“Yes, I knew her there.”
 
-He is always washing his hands. Caravaggio at first thinks he is too fussy. “How did you get through a war?” Caravaggio laughs.
+第46页共162页 http://www.en8848.com.cn/ 原版英语阅读网
 
-“I grew up in India, Uncle. You wash your hands all the time. Before all meals. A habit. I was born in the Punjab.”
+￼￼￼They pass numerous bonfires on the sides of the road and Caravaggio diverts the young soldier’s attention to them. The sapper’s nickname is Kip. “Get Kip.” “Here comes Kip.” The name had attached itself to him curiously. In his first bomb disposal report in England some butter had marked his paper, and the officer had exclaimed, “What’s this? Kipper grease?” and laughter surrounded him. He had no idea what a kipper was, but the young Sikh had been thereby translated into a salty English fish. Within a week his real name, Kirpal Singh, had been forgotten. He hadn’t minded this. Lord Suffolk and his demolition team took to calling him by his nickname, which he preferred to the English habit of calling people by their surname.
 
-“I’m from Upper America,” she says.
+That summer the English patient wore his hearing aid so he was alive to everything in the house. The amber shell hung within his ear with its translations of casual noises—the chair in the hall scraping against the floor, the click of the dog’s claws outside his room so he would turn up the volume and even hear its damn breathing, or the shout on the terrace from the sapper. The English patient within a few days of the young soldier’s arrival had thus become aware of his presence around the house, though Hana kept them separate, knowing they would probably not like each other.
 
-He sleeps half in and half out of the tent. She sees his hands remove the earphone and drop it onto his lap. Then Hana puts down the glasses and turns away.
+But she entered the Englishman’s room one day to find the sapper there. He was standing at the foot of the bed, his arms hung over the rifle that rested across his shoulders. She dis¬liked this casual handling of the gun, his lazy spin towards her entrance as if his body were the axle of a wheel, as if the weapon had been sewn along his shoulders and arms and into his small brown wrists.
 
-They were under the huge vault. The sergeant lit a flare, and the sapper lay on the floor and looked up through the rifle’s telescope, looked at the ochre faces as if he were search¬ing for a brother in the crowd. The cross hairs shook along the biblical figures, the light dousing the coloured vestments and flesh darkened by hundreds of years of oil and candle smoke. And now this yellow gas smoke, which they knew was outra¬geous in this sanctuary, so the soldiers would be thrown out, would be remembered for abusing the permission they re¬ceived to see the Great Hall, which they had come to, wading up beachheads and the one thousand skirmishes of small wars and the bombing of Monte Cassino and then walking in hushed politeness through the Raphael Stanze till they were here, finally, seventeen men who had landed in Sicily and fought their way up the ankle of the country to be here— where they were offered just a mostly dark hall. As if being in the presence of the place was enough.
+The Englishman turned to her and said, “We’re getting along famously!”
 
-And one of them had said, “Damn. Maybe more light, Sergeant Shand?” And the sergeant released the catch of the flare and held it up in his outstretched arm, the niagara of its light pouring off his fist, and stood there for the length of its burn like that. The rest of them stood looking up at the figures and faces crowded onto the ceiling that emerged in the light. But the young sapper was already on his back, the rifle aimed, his eye almost brushing the beards of Noah and Abraham and the variety of demons until he reached the great face and was stilled by it, the face like a spear, wise, unforgiving.
+She was put out that the sapper had strolled casually into this domain, seemed able to surround her, be everywhere. Kip, hearing from Caravaggio that the patient knew about guns, had begun to discuss the search for bombs with the Englishman. He had come up to the room and found him a reservoir of information about Allied and enemy weaponry. The Englishman not only knew about the absurd Italian fuzes but also knew the detailed topography of this region of Tuscany. Soon they were drawing outlines of bombs for each other and talking out the theory of each specific circuit.
 
-The guards were yelling at the entrance and he could hear the running steps, just another thirty seconds left on the flare. He rolled over and handed the rifle to the padre. “That one. Who is he? At three o’clock northwest, who is he? Quick, the flare is almost out.”
+“The Italian fuzes seem to be put in vertically. And not always at the tail.”
 
-The padre cradled the rifle and swept it over to the corner, and the flare died.
+“Well, that depends. The ones made in Naples are that way, but the factories in Rome follow the German system. Of course, Naples, going back to the fifteenth century ...”
 
-第40页共162页 http://www.en8848.com.cn/ 原版英语阅读网
+It meant having to listen to the patient talk in his circuitous way, and the young soldier was not used to remaining still and silent. He would get restless and kept interrupting the pauses and silences the Englishman always allowed himself, trying to energize the train of thought. The soldier rolled his head back and looked at the ceiling.
 
-￼￼￼He returned the rifle to the young Sikh.
+“What we should do is make a sling,” the sapper mused, turning to Hana as she entered, “and carry him around the house.” She looked at both of them, shrugged and walked out of the room.
 
-“You know we shall all be in serious trouble over this light¬ing of weapons in the Sistine Chapel. I should not have come here. But I also must thank Sergeant Shand, he was heroic to do it. No real damage has been done, I suppose.”
+第47页共162页 http://www.en8848.com.cn/ 原版英语阅读网
 
-“Did you see it? The face. Who was it?” “Ah yes, it is a great face.”
+￼￼￼When Caravaggio passed her in the hall she was smiling. They stood in the hall and listened to the conversation inside the room.
 
-“You saw it.”
+Did I tell you my concept ofVirgilian man, Kip? Let me... Is your hearing aid on?
 
-“Yes. Isaiah.”
+What?
 
-When the Eighth Army got to Gabicce on the east coast, the sapper was head of night patrol. On the second night he re¬ceived a signal over the shortwave that there was enemy move¬ment in the water. The patrol sent out a shell and the water erupted, a rough warning shot. They did not hit anything, but in the white spray of the explosion he picked up a darker outline of movement. He raised the rifle and held the drifting shadow in his sights for a full minute, deciding not to shoot in order to see if there would be other movement nearby. The enemy was still camped up north, in Rimini, on the edge of the city. He had the shadow in his sights when the halo was suddenly illuminated around the head of the Virgin Mary. She was coming out of the sea.
+Turn it—
 
-She was standing in a boat. Two men rowed. Two other men held her upright, and as they touched the beach the people of the town began to applaud from their dark and opened windows.
+“I think he’s found a friend,” she said to Caravaggio.
 
-The sapper could see the cream-coloured face and the halo of small battery lights. He was lying on the concrete pillbox, between the town and the sea, watching her as the four men climbed out of the boat and lifted the five- foot-tall plaster statue into their arms. They walked up the beach, without pausing, no hesitation for the mines. Perhaps they had watched them being buried and charted them when the Ger¬mans had been there. Their feet sank into the sand. This was Gabicce Mare on May 29, 1944. Marine Festival of the Virgin Mary.
+She walks out into the sunlight and the courtyard. At noon the taps deliver water into the villa’s fountain and for twenty minutes it bursts forth. She removes her shoes, climbs into the dry bowl of the fountain and waits.
 
-Adults and children were on the streets. Men in band uni¬forms had also emerged. The band would not play and break the rules of curfew, but the instruments were still part of the ceremony, immaculately polished.
+At this hour the smell of hay grass is everywhere. Bluebot¬tles stumble in the air and bang into humans as if slamming into a wall, then retreat unconcerned. She notices where water spiders have nested beneath the upper bowl of the foun¬tain, her face in the shade of its overhang. She likes to sit in this cradle of stone, the smell of cool and dark hidden air emerging from the still empty spout near her, like air from a basement opened for the first time in late spring so the heat outside hangs in contrast. She brushes her arms and toes free of dust, of the crimp of shoes, and stretches.
 
-He slid from the darkness, the mortar tube strapped to his back, carrying the rifle in his hands. In his turban and with the weapons he was a shock to them. They had not expected him to emerge too out of the no-man’s-land of the beach.
+Too many men in the house. Her mouth leans against the bare arm of her shoulder. She smells her skin, the familiarity of it. One’s own taste and flavour. She remembers when she had first grown aware of it, somewhere in her teens—it seemed a place rather than a time—kissing her forearm to practise kissing, smelling her wrist or bending down to her thigh. Breathing into her own cupped hands so breath would bounce back towards her nose. She rubs her bare white feet now against the brindle colour of the fountain. The sapper has told her about statues he came across during the fighting, how he had slept beside one who was a grieving angel, half male, half female, that he had found beautiful. He had lain back, looking at the body, and for the first time during the war felt at peace.
 
-He raised his rifle and picked up her face in the gun sight —ageless, without sexuality, the foreground of the men’s dark hands reaching into her light, the gracious nod of the twenty small light bulbs. The figure wore a pale
+She sniffs the stone, the cool moth smell of it.
 
-第41页共162页 http://www.en8848.com.cn/ 原版英语阅读网
+Did her father struggle into his death or die calm? Did he lie the way the English patient reposes grandly on his cot? Was he nursed by a stranger? A man not of your own blood can break upon your emotions more than someone of your own blood. As if falling into the arms of a stranger you discover the mirror of your choice. Unlike the sapper, her father was never fully comfortable in the world. His conversations lost some of their syllables out of shyness. In any of Patrick’s sentences, her mother had complained, you lost two or three crucial words. But Hana liked that about him, there seemed to be no feudal spirit around him. He had a vagueness, an
 
-￼￼￼blue cloak, her left knee raised slightly to suggest drapery.
+第48页共162页 http://www.en8848.com.cn/ 原版英语阅读网
 
-They were not romantic people. They had survived the Fas¬cists, the English, Gauls, Goths and Germans. They had been owned so often it meant nothing. But this blue and cream plaster figure had come out of the sea, was placed in a grape truck full of flowers, while the band marched ahead of her in silence. Whatever protection he was supposed to provide for this town was meaningless. He couldn’t walk among their children in white dresses with these guns.
+￼￼￼uncertainty that allowed him tentative charm. He was unlike most men. Even the wounded English patient had the familiar purpose of the feudal. But her father was a hungry ghost, liking those around him to be confident, even raucous.
 
-He moved one street south of them and walked at the speed of the statue’s movement, so they reached the joining streets at the same time. He raised his rifle to pick up her face once again in his sights. It all ended on a promontory overlooking the sea, where they left her and returned to their homes. None of them was aware of his continued presence on the periphery.
+Did he move towards his death with the same casual sense of being there at an accident? Or in fury? He was the least furious man she knew, hating argument, just walking out of a room if someone spoke badly of Roosevelt or Tim Buck or praised certain Toronto mayors. He had never attempted to convert anyone in his life, just bandaging or celebrating events that occurred near him. That was all. A novel is a mirror walking down a road. She had read that in one of the books the English patient recommended, and that was the way she remembered her father—whenever she collected the moments of him—stopping his car under one specific bridge in Toronto north of Pottery Road at midnight and telling her that this was where the starlings and pigeons uncomfortably and not too happily shared the rafters during the night. So they had paused there on a summer night and leaned their heads out into the racket of noise and sleepy chirpings.
 
-Her face was still lit. The four men who had brought her by boat sat in a square around her like sentries. The battery attached to her back began to fade; it died at about four-thirty in the morning. He glanced at his watch then. He picked up the men with the rifle telescope. Two were asleep. He swung the sights up to her face and studied her again. A different look in the fading light around her. A face which in the dark¬ness looked more like someone he knew. A sister. Someday a daughter. If he could have parted with it, the sapper would have left something there as his gesture. But he had his own faith after all.
+I was told Patrick died in a dove-cot, Caravaggio said.
 
-Caravaggio enters the library. He has been spending most afternoons there. As always, books are mystical creatures to him. He plucks one out and opens it to the title page. He is in the room about five minutes before he hears a slight groan.
+Her father loved a city of his own invention, whose streets and walls and borders he and his friends had painted. He never truly stepped out of that world. She realizes everything she knew about the real world she learned on her own or from Caravaggio or, during the time they lived together, from her stepmother, Clara. Clara, who had once been an actress, the articulate one, who had articulated fury when they all left for the war. All through the last year in Italy she has carried the letters from Clara. Letters she knows were written on a pink rock on an island in Georgian Bay, written with the wind coming over the water and curling the paper of her notebook before she finally tore the pages out and put them in an envelope for Hana. She carried them in her suitcase, each contain¬ing a flake of pink rock and that wind. But she has never answered them. She has missed Clara with a woe but is un¬able to write to her, now, after all that has happened to her. She cannot bear to talk of or even acknowledge the death of Patrick.
 
-He turns and sees Hana asleep on the sofa. He closes the book and leans back against the thigh-high ledge under the shelves. She is curled up, her left cheek on the dusty brocade and her right arm up towards her face, a fist against her jaw. Her eyebrows shift, the face concentrating within sleep.
+And now, on this continent, the war having travelled else¬where, the nunneries and churches that were turned briefly into hospitals are solitary, cut off in the hills of Tuscany and Umbria. They hold the remnants of war societies, small mo¬raines left by a vast glacier. All around them now is the holy forest.
 
-When he had first seen her after all this time she had looked taut, boiled down to just body enough to get her through this efficiently. Her body had been in a war and, as in love, it had used every part of itself.
+She tucks her feet under her thin frock and rests her arms along her thighs. Everything is still. She hears the familiar hollow churn, restless in the pipe that is buried in the central column of the fountain. Then silence. Then suddenly there is a crash as the water arrives bursting around her.
 
-He sneezed out loud, and when he looked up from the movement of his tossed-down head she was awake, the eyes open staring ahead at him. “Guess what time it is.”
+The tales Hana had read to the English patient, travelling with the old wanderer in Kim or with Fabrizio in The Char¬terhouse of Parma, had intoxicated them in a swirl of armies and horses and wagons—those running away from or running towards a war. Stacked in one corner of his bedroom were other books she had read to him whose landscapes they have already walked through.
 
-“About four-oh-five. No, four-oh-seven,” she said. It was an old game between a man and a child. He slipped out of the room to look for the clock, and by his movement and assuredness she could tell he had recently taken morphine, was refreshed and precise, with his familiar confidence. She sat up and smiled when he came back shaking his head with wonder at her accuracy.
+Many books open with an author’s assurance of order. One slipped into their waters with a silent paddle.
 
-“I was born with a sundial in my head, right?” “And at night?”
+第49页共162页 http://www.en8848.com.cn/ 原版英语阅读网
 
-第42页共162页 http://www.en8848.com.cn/ 原版英语阅读网
+￼￼￼I begin my work at the time when Servius Galba was Consul.... The histories of Tiberius, Caligula, Claudius and Nero, while they were a power, were falsified through terror and after their death were written under a fresh hatred.
 
-￼￼￼“Do they have moondials? Has anyone invented one? Per¬haps every architect preparing a villa hides a moondial for thieves, like a necessary tithe.”
+So Tacitus began his Annals.
 
-“A good worry for the rich.”
+But novels commenced with hesitation or chaos. Readers were never fully in balance. A door a lock a weir opened and they rushed through, one hand holding a gunnel, the other a hat.
 
-“Meet me at the moondial, David. A place where the weak can enter the strong.” “Like the English patient and you?”
+When she begins a book she enters through stilted doorways into large courtyards. Parma and Paris and India spread their carpets.
 
-“I was almost going to have a baby a year ago.”
+He sat, in defiance of municipal orders, astride the gun Zam-Zammah on her brick platform opposite the old Ajaib-Gher— the Wonder House, as the natives called the Lahore Museum. Who hold Zam-Zammah, that “fire- breathing dragon,” hold the Punjab; for the great green-bronze piece is always first of the conqueror’s loot.
 
-Now that his mind is light and exact with the drug, she can whip around and he will be with her, thinking alongside her. And she is being open, not quite realizing she is awake and conversing, as if still speaking in a dream, as if his sneeze had been the sneeze in a dream.
+“Read him slowly, dear girl, you must read Kipling slowly. Watch carefully where the commas fall so you can discover the natural pauses. He is a writer who used pen and ink. He looked up from the page a lot, I believe, stared through his window and listened to birds, as most writers who are alone do. Some do not know the names of birds, though he did. Your eye is too quick and North American. Think about the speed of his pen. What an appalling, barnacled old first paragraph it is otherwise.”
 
-Caravaggio is familiar with this state. He has often met people at the moondial. Disturbing them at two a.m. as a whole bedroom cupboard came crashing down by mistake. Such shocks, he discovered, kept them away from fear and violence. Disturbed by owners of houses he was robbing, he would clap his hands and converse frantically, flinging an ex¬pensive clock into the air and catching it in his hands, quickly asking them questions, about where things were.
-
-“I lost the child. I mean, I had to lose it. The father was already dead. There was a war.”
-
-“Were you in Italy?”
-
-“In Sicily, about the time this happened. All through the time we came up the Adriatic behind the troops I thought of it. I had continued conversations with the child. I worked very hard in the hospitals and retreated from everybody around me. Except the child, who I shared everything with. In my head. I was talking to him while I bathed and nursed patients. I was a little crazy.”
-
-“And then your father died.”
-
-“Yes. Then Patrick died. I was in Pisa when I heard.”
-
-She was awake. Sitting up.
-
-“You knew, huh?”
-
-“I got a letter from home.”
-
-“Is that why you came here, because you knew?”
-
-第43页共162页 http://www.en8848.com.cn/ 原版英语阅读网
-
-￼￼￼“No.”
-
-“Good. I don’t think that he believed in wakes and such things. Patrick used to say he wanted a duet by two women on musical instruments when he died. Squeeze-box and violin. That’s all. He was so damn sentimental.”
-
-“Yes. You could really make him do anything. Find him a woman in distress and he was lost.”
-
-The wind rose up out of the valley to their hill so the cypress trees that lined the thirty-six steps outside the chapel wrestled with it. Drops of earlier rain nudged off, falling with a ticking sound upon the two of them sitting on the balustrade by the steps. It was long after midnight. She was lying on the con¬crete ledge, and he paced or leaned out looking down into the valley. Only the sound of the dislodged rain.
-
-“When did you stop talking to the baby?”
-
-“It all got too busy, suddenly. Troops were going into battles at the Moro Bridge and then into Urbino. Maybe in Urbino I stopped. You felt you could be shot anytime there, not just if you were a soldier, but a priest or nurse. It was a rabbit warren, those narrow tilted streets. Soldiers were coming in with just bits of their bodies, falling in love with me for an hour and then dying. It was important to remember their names. But I kept seeing the child whenever they died. Being washed away. Some would sit up and rip all their dressings off trying to breathe better. Some would be worried about tiny scratches on their arms when they died. Then the bubble in the mouth. That little pop. I leaned forward to close a dead soldier’s eyes, and he opened them and sneered, “Can’t wait to have me dead? You bitchl” He sat up and swept everything on my tray to the floor. So furious. Who would want to die like that? To die with that kind of anger. You bitchl After that I always waited for the bubble in their mouths. I know death now, David. I know all the smells, I know how to divert them from agony. When to give the quick jolt of morphine in a major vein. The saline solution. To make them empty their bowels before they die. Every damn general should have had my job. Every damn general. It should have been a prerequisite for any river crossing. Who the hell were we to be given this responsibility, expected to be wise as old priests, to know how to lead people towards something no one wanted and somehow make them feel comfortable. I could never believe in all those services they gave for the dead. Their vulgar rhetoric. How dare they! How dare they talk like that about a human being dying.”
+That was the English patient’s first lesson about reading. He did not interrupt again. If he happened to fall asleep she would continue, never looking up until she herself was fa¬tigued. If he had missed the last half-hour of plot, just one room would be dark in a story he probably already knew. He was familiar with the map of the story. There was Benares to the east and Chilianwallah in the north of the Punjab. (All this occurred before the sapper entered their lives, as if out of this fiction. As if the pages of Kipling had been rubbed in the night like a magic lamp. A drug of wonders.)
 

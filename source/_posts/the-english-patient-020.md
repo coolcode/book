@@ -1,75 +1,141 @@
 title: The English Patient 020
-date: 2015-01-24 15:44:14
+date: 2015-01-25 03:45:57
 tags: the-english-patient
 ---
 
-Hours later we were in the sandstorm that hit us out of clear morning, coming from nowhere. The breeze that had been refreshing had gradually strengthened. Eventually we looked down, and the surface of the desert was changed. Pass me the book... here. This is Hassanein Bey’s wonderful account of such storms—
+“Of course he is, what about all those flower beds in Gloucestershire?”
 
-“It is as though the surface were underlaid with steam-pipes, with thousands of orifices through which tiny jets of steam are puffing out. The sand leaps in little spurts and whirls. Inch by inch the disturbance rises as the wind increases its force. It seems as though the whole surface of the desert were rising in obedience to some upthrusting force beneath. Larger pebbles strike against the shins, the knees, the thighs. The sand-grains climb the body till it strikes the face and goes over the head. The sky is shut out, all but the nearest objects fade from view, the universe is filled.”
+“Precisely. It’s all a perfect background. Two nights ago, when we were trying to name the dog. Remember?” “Yes.”
 
-We had to keep moving. If you pause sand builds up as it would around anything stationary, and locks you in. You are lost forever. A sandstorm can last five hours. Even when we were in trucks in later years we would have to keep driving with no vision. The worst terrors came at night. Once, north of Kufra, we were hit by a storm in the darkness. Three a.m. The gale swept the tents from their moorings and we rolled with them, taking in sand like a sinking boat takes in water, weighed down, suffocating, till we were cut free by a camel driver.
+“What were his suggestions?”
 
-We travelled through three storms during nine days. We missed small desert towns where we expected to locate more supplies. The horse vanished. Three of the camels died. For the last two days there was no food, only tea. The last link with any other world was the clink of the fire-black tea urn and the long spoon and the glass which came towards us in the darkness of the mornings. After the third night we gave up talking. All that mattered was the fire and the minimal brown liquid.
+第86页共162页 http://www.en8848.com.cn/ 原版英语阅读网
 
-第73页共162页 http://www.en8848.com.cn/ 原版英语阅读网
+￼￼￼“He was strange that night.”
 
-￼￼￼Only by luck did we stumble on the desert town of El Taj. I walked through the souk, the alley of clocks chiming, into the street of barometers, past the rifle-cartridge stalls, stands of Italian tomato sauce and other tinned food from Benghazi, calico from Egypt, ostrich-tail decorations, street dentists, book merchants. We were still mute, each of us dispersing along our own paths. We received this new world slowly, as if coming out of a drowning. In the central square of El Taj we sat and ate lamb, rice, badawi cakes, and drank milk with almond pulp beaten into it. All this after the long wait for three ceremonial glasses of tea flavoured with amber and mint.
+“He was very strange, because I gave him an extra dose of morphine. Do you remember the names? He put out about eight names. Five of them were obvious jokes. Then three names. Cicero. Zerzura. Delilah.”
 
-Sometime in 1931 I joined a Bedouin caravan and was told there was another one of us there. Fenelon-Barnes, it turned out. I went to his tent. He was out for the day on some small expedition, cataloguing fossil trees. I looked around his tent, the sheaf of maps, the photos he always carried of his family, et cetera. As I was leaving I saw a mirror tacked up high against the skin wall, and looking at it I saw the reflection of the bed. There seemed to be a small lump, a dog possibly, under the covers. I pulled back the djellaba and there was a small Arab girl tied up, sleeping there.
+“So?”
 
-By 1932, Bagnold was finished and Madox and the rest of us were everywhere. Looking for the lost army of Cambyses. Looking for Zerzura. 1932 and 1933 and 1934. Not seeing each other for months. Just the Bedouin and us, crisscrossing the Forty Days Road. There were rivers of desert tribes, the most beautiful humans I’ve met in my life. We were German, English, Hungarian, African—all of us insignificant to them. Gradually we became nationless. I came to hate nations. We are deformed by nation-states. Madox died because of nations.
+“ ‘Cicero’ was a code name for a spy. The British unearthed him. A double then triple agent. He got away. ‘Zerzura’ is more complicated.”
 
-The desert could not be claimed or owned—it was a piece of cloth carried by winds, never held down by stones, and given a hundred shifting names long before Canterbury existed, long before battles and treaties quilted Europe and the East. Its caravans, those strange rambling feasts and cultures, left nothing behind, not an ember. All of us, even those with European homes and children in the distance, wished to re¬move the clothing of our countries. It was a place of faith. We disappeared into landscape. Fire and sand. We left the har¬bours of oasis. The places water came to and touched... Ain, Bir, Wadi, Foggara, Khottara, Shaduf. I didn’t want my name against such beautiful names. Erase the family name! Erase nations! I was taught such things by the desert.
+“I know about Zerzura. He’s talked about it. He also talks about gardens.”
 
-Still, some wanted their mark there. On that dry water¬course, on this shingled knoll. Small vanities in this plot of land northwest of the Sudan, south of Cyrenaica. Fenelon-Barnes wanted the fossil trees he discovered to bear his name. He even wanted a tribe to take his name, and spent a year on the negotiations. Then Bauchan outdid him, having a type of sand dune named after him. But I wanted to erase my name and the place I had come from. By the time war arrived, after ten years in the desert, it was easy for me to slip across bor¬ders, not to belong to anyone, to any nation.
+“But it is mostly the desert now. The English garden is wearing thin. He’s dying. I think you have the spy-helper Almasy upstairs.”
 
-1933 or 1934. I forget the year. Madox, Casparius, Ber-mann, myself, two Sudanese drivers and a cook. By now we travel in A-type Ford cars with box bodies and are using for the first time large balloon tires known as air wheels. They ride better on sand, but the gamble is whether they will stand up to stone fields and splinter rocks.
+They sit on the old cane hampers of the linen room looking at each other. Caravaggio shrugs. “It’s possible.”
 
-We leave Kharga on March 22. Bermann and I have theo¬rized that three wadis written about by Williamson in
+“I think he is an Englishman,” she says, sucking in her cheeks as she always does when she is thinking or considering something about herself.
 
-第74页共162页 http://www.en8848.com.cn/ 原版英语阅读网
+“I know you love the man, but he’s not an Englishman. In the early part of the war I was working in Cairo—the Tripoli Axis. Rommel’s Rebecca spy—”
 
-￼￼￼1838 make up Zerzura.
+“What do you mean, ‘Rebecca spy’?”
 
-Southwest of the Gilf Kebir are three isolated granite mas¬sifs rising out of the plain—Gebel Arkanu, Gebel Uweinat, and Gebel Kissu. The three are fifteen miles apart from each other. Good water in several of the ravines, though the wells at Gebel Arkanu are bitter, not drinkable except in an emer¬gency. Williamson said three wadis formed Zerzura, but he never located them and this is considered fable. Yet even one rain oasis in these crater-shaped hills would solve the riddle of how Cambyses and his army could attempt to cross such a desert, of the Senussi raids during the Great War, when the black giant raiders crossed a desert which supposedly has no water or pasture. This was a world that had been civilised for centuries, had a thousand paths and roads.
+“In 1942 the Germans sent a spy called Eppler into Cairo before the battle of El Alamein. He used a copy of Daphne du Maurier’s novel Rebecca as a code book to send messages back to Rommel on troop movements. Listen, the book became bed¬side reading with British Intelligence. Even I read it.”
 
-We find jars at Abu Ballas with the classic Greek amphora shape. Herodotus speaks of such jars.
+“You read a book?”
 
-Bermann and I talk to a snakelike mysterious old man in the fortress of El Jof—in the stone hall that once had been the library of the great Senussi sheik. An old Tebu, a caravan guide by profession, speaking accented Arabic. Later Bermann says “like the screeching of bats,” quoting Herodotus. We talk to him all day, all night, and he gives nothing away. The Senussi creed, their foremost doctrine, is still not to reveal the secrets of the desert to strangers.
+“Thank you. The man who guided Eppler through the desert into Cairo on Rommel’s personal orders—from Tripoli all the way to Cairo—was Count Ladislaus de Almasy. This was a stretch of desert that, it was assumed, no one could cross.
 
-At Wadi el Melik we see birds of an unknown species.
+“Between the wars Almasy had English friends. Great ex¬plorers. But when war broke out he went with the Germans. Rommel asked him to take Eppler across the desert into Cairo because it would have been too obvious by plane or parachute. He crossed the desert with the guy and delivered him to the Nile delta.”
 
-On May 5, I climb a stone cliff and approach the Uweinat plateau from a new direction. I find myself in a broad wadi full of acacia trees.
+“You know a lot about this.”
 
-There was a time when mapmakers named the places they travelled through with the names of lovers rather than their own. Someone seen bathing in a desert caravan, holding up muslin with one arm in front of her. Some old Arab poet’s woman, whose white-dove shoulders made him describe an oasis with her name. The skin bucket spreads water over her, she wraps herself in the cloth, and the old scribe turns from her to describe Zerzura.
+第87页共162页 http://www.en8848.com.cn/ 原版英语阅读网
 
-So a man in the desert can slip into a name as if within a discovered well, and in its shadowed coolness be tempted never to leave such containment. My great desire was to remain there, among those acacias. I was walking not in a place where no one had walked before but in a place where there were sudden, brief populations over the centuries—a fourteenth-century army, a Tebu caravan, the Senussi raiders of 1915. And in between these times—nothing was there. When no rain fell the acacias withered, the wadis dried out... until water suddenly reappeared fifty or a hundred years later. Spo¬radic appearances and disappearances, like legends and ru¬mours through history.
+￼￼￼“I was based in Cairo. We were tracking them. From Gialo he led a company of eight men into the desert. They had to keep digging the trucks out of the sand hills. He aimed them towards Uweinat and its granite plateau so they could get water, take shelter in the caves. It was a halfway point. In the 19305 he had discovered caves with rock paintings there. But the plateau was crawling with Allies and he couldn’t use the wells there. He struck out into the sand desert again. They raided British petrol dumps to fill up their tanks. In the Kharga Oasis they switched into British uniforms and hung British army number plates on their vehicles. When they were spotted from the air they hid in the wadis for as long as three days, completely still. Baking to death in the sand.
 
-In the desert the most loved waters, like a lover’s name, are carried blue in your hands, enter your throat. One swallows absence. A woman in Cairo curves the white length of her body up from the bed and leans out of the window into a rainstorm to allow her nakedness to receive it.
+“It took them three weeks to reach Cairo. Almdsy shook hands with Eppler and left him. This is where we lost him. He turned and went back into the desert alone. We think he crossed it again, back towards Tripoli. But that was the last time he was ever seen. The British picked up Eppler even¬tually and used the Rebecca code to feed false information to Rommel about El Alamein.”
 
-Hana leans forward, sensing his drifting, watching him, not saying a word. Who is she, this woman?
+“I still don’t believe it, David.”
 
-第75页共162页 http://www.en8848.com.cn/ 原版英语阅读网
+“The man who helped catch Eppler in Cairo was named Sansom.” “Delilah.”
 
-￼￼￼The ends of the earth are never the points on a map that colonists push against, enlarging their sphere of influence. On one side servants and slaves and tides of power and correspon¬dence with the Geographical Society. On the other the first step by a white man across a great river, the first sight (by a white eye) of a mountain that has been there forever.
+“Exactly.”
 
-When we are young we do not look into mirrors. It is when we are old, concerned with our name, our legend, what our lives will mean to the future. We become vain with the names we own, our claims to have been the first eyes, the strongest army, the cleverest merchant. It is when he is old that Nar¬cissus wants a graven image of himself.
+“Maybe he’s Sansom.”
 
-But we were interested in how our lives could mean some¬thing to the past. We sailed into the past. We were young. We knew power and great finance were temporary things. We all slept with Herodotus. “For those cities that were great in earlier times must have now become small, and those that were great in my time were small in the time before.... Man’s good fortune never abides in the same place.”
+“I thought that at first. He was very like Almdsy. A desert lover as well. He had spent his childhood in the Levant and knew the Bedouin. But the thing about Almasy was, he could fly. We are talking about someone who crashed in a plane. Here is this man, burned beyond recognition, who somehow ends up in the arms of the English at Pisa. Also, he can get away with sounding English. Almdsy went to school in Eng¬land. In Cairo he was referred to as the English spy.”
 
-In 1936 a young man named Geoffrey Clifton had met a friend at Oxford who mentioned what we were doing. He contacted me, got married the next day, and two weeks later flew with his wife to Cairo.
+She sat on the hamper watching Caravaggio. She said, “I think we should leave him be. It doesn’t matter what side he was on, does it?”
 
-The couple entered our world—the four of us, Prince Kemal el Din, Bell, Almasy and Madox. The name that still filled our mouths was Gilf Kebir. Somewhere in the Gilf nes¬tled Zerzura, whose name occurs in Arab writings as far back as the thirteenth century. When you travel that far in time you need a plane, and young Clifton was rich and he could fly and he had a plane.
+Caravaggio said, “I’d like to talk with him some more. With more morphine in him. Talking it out. Both of us. Do you understand? To see where it will all go. Delilah. Zerzura. You will have to give him the altered shot.”
 
-Clifton met us in El Jof, north of Uweinat. He sat in his two-seater plane and we walked towards him from the base camp. He stood up in the cockpit and poured a drink out of his flask. His new wife sat beside him.
+“No, David. You’re too obsessed. It doesn’t matter who he is. The war’s over.”
 
-“I name this site the Bir Messaha Country Club,” he an¬nounced.
+“I will then. I’ll cook up a Brompton cocktail. Morphine and alcohol. They invented it at Brompton Hospital in London for their cancer patients. Don’t worry, it won’t kill him. It absorbs fast into the body. I can put it together with what we’ve got. Give him a drink of it. Then put him back on straight morphine.”
 
-I watched the friendly uncertainty scattered across his wife’s face, her lionlike hair when she pulled off the leather helmet.
+第88页共162页 http://www.en8848.com.cn/ 原版英语阅读网
 
-They were youth, felt like our children. They climbed out of the plane and shook hands with us.
+￼￼￼She watched him sitting on the hamper, clear-eyed, smil¬ing. During the last stages of the war Caravaggio had become one of the numerous morphia thieves. He had sniffed out her medical supplies within hours of his arrival. The small tubes of morphine were now a source for him. Like toothpaste tubes for dolls, she had thought when she first saw them, finding them utterly quaint. Caravaggio carried two or three in his pocket all day long, slipping the fluid into his flesh. She had stumbled on him once vomiting from its excess, crouched and shaking in one of the dark corners of the villa, looking up and hardly recognizing her. She had tried speaking with him and he had stared back. He had found the metal supply box, torn it open with God knows what strength. Once when the sapper cut open the palm of his hand on an iron gate, Caravag¬gio broke the glass tip off with his teeth, sucked and spat the morphine onto the brown hand before Kip even knew what it was. Kip pushing him away, glaring in anger.
 
-That was 1936, the beginning of our story....
+“Leave him alone. He’s my patient.”
 
-They jumped off the wing of the Moth. Clifton walked towards us holding out the flask, and we all sipped the warm alcohol. He was one for ceremonies. He had named his plane Rupert Bear. I don’t think he loved the desert, but he had an affection for it that grew out of awe at our stark order, into which he wanted to fit himself— like a joyous undergraduate who respects silent behaviour in a library. We had not ex¬pected him to bring his wife, but we were I suppose courteous about it. She stood there while the sand collected in her mane of hair.
+“I won’t damage him. The morphine and alcohol will take away the pain.”
+
+(3 CC’s BROMPTON COCKTAIL. 3:00 P.M.)
+
+Caravaggio slips the book out of the man’s hands.
+
+“When you crashed in the desert—where were you flying from?”
+
+“I was leaving the Gilf Kebir. I had gone there to collect someone. In late August. Nineteen forty-two.”
+
+“During the war? Everyone must have left by then.”
+
+“Yes. There were just armies.”
+
+“The Gilf Kebir.”
+
+“Yes.”
+
+“Where is it?”
+
+“Give me the Kipling book... here.”
+
+On the frontispiece of Kirn was a map with a dotted line for the path the boy and the Holy One took. It showed just a portion of India—a darkly cross-hatched Afghanistan, and Kashmir in the lap of the mountains.
+
+He traces his black hand along the Numi River till it enters the sea at 23°3o’ latitude. He continues sliding his finger seven inches west, off the page, onto his chest; he touches his rib.
+
+第89页共162页 http://www.en8848.com.cn/ 原版英语阅读网
+
+￼￼￼“Here. The Gilf Kebir, just north of the Tropic of Cancer. On the Egyptian-Libyan border.”
+
+What happened in 1942?
+
+I had made the journey to Cairo and was returning from there. I was slipping between the enemy, remembering old maps, hitting the pre-war caches of petrol and water, driving towards Uweinat. It was easier now that I was alone. Miles from the Gilf Kebir, the truck exploded and I capsized, rolling automatically into the sand, not wanting a spark to touch me. In the desert one is always frightened of fire.
+
+The truck exploded, probably sabotaged. There were spies among the Bedouin, whose caravans continued to drift like cities, carrying spice, rooms, government advisors wherever they went. At any given moment among the Bedouin in those days of the war, there were Englishmen as well as Germans.
+
+Leaving the truck, I started walking towards Uweinat, where I knew there was a buried plane.
+
+Wait. What do you mean, a buried plane?
+
+Madox had an old plane in the early days, which he had shaved down to the essentials—the only “extra” was the closed bubble of cockpit, crucial for desert flights. During our times in the desert he had taught me to fly, the two of us walking around the guy-roped creature theorizing on how it hung or veered in the wind.
+
+When Clifton’s plane—Rupert—flew into our midst, the aging plane of Madox’s was left where it was, covered with a tarpaulin, pegged down in one of the northeast alcoves of Uweinat. Sand collected over it gradually for the next few years. None of us thought we would see it again. It was another victim of the desert. Within a few months we would pass the northeast gully and see no contour of it. By now Clifton’s plane, ten years younger, had flown into our story.
+
+So you were walking towards it?
+
+Yes. Four nights of walking. I had left the man in Cairo and turned back into the desert. Everywhere there was war. Suddenly there were “teams.” The Bermanns, the Bagnolds, the Slatin Pashas—who had at various times saved each other’s lives—had now split up into camps.
+
+I walked towards Uweinat. I got there about noon and climbed up into the caves of the plateau. Above the well named Ain Dua.
+
+“Caravaggio thinks he knows who you are,” Hana said. The man in the bed said nothing.
+
+第90页共162页 http://www.en8848.com.cn/ 原版英语阅读网
+
+￼￼￼“He says you are not English. He worked with intelligence out of Cairo and Italy for a while. Till he was captured. My family knew Caravaggio before the war. He was a thief. He believed in ‘the movement of things.’ Some thieves are collec¬tors, like some of the explorers you scorn, like some men with women or some women with men. But Caravaggio was not like that. He was too curious and generous to be a successful thief. Half the things he stole never came home. He thinks you are not English.”
+
+She watched his stillness as she spoke; it appeared that he was not listening carefully to what she was saying. Just his distant thinking. The way Duke Ellington looked and thought when he played “Solitude.”
+
+She stopped talking.
+
+He reached the shallow well named Ain Dua. He removed all of his clothes and soaked them in the well, put his head and then his thin body into the blue water. His limbs ex¬hausted from the four nights of walking. He left his clothes spread on the rocks and climbed up higher into the boulders, climbed out of the desert, which was now, in 1942, a vast battlefield, and went naked into the darkness of the cave.
+
+He was among the familiar paintings he had found years earlier. Giraffes. Cattle. The man with his arms raised, in a plumed headdress. Several figures in the unmistakable posture of swimmers. Bermann had been right about the presence of an ancient lake. He walked farther into the coldness, into the Cave of Swimmers, where he had left her. She was still there.
+
+She had dragged herself into a corner, had wrapped herself tight in the parachute material. He had promised to return for her.
+
+He himself would have been happier to die in a cave, with its privacy, the swimmers caught in the rock around them. Hermann had told him that in Asian gardens you could look at rock and imagine water, you could gaze at a still pool and believe it had the hardness of rock. But she was a woman who had grown up within gardens, among moistness, with words like trellis and hedgehog. Her passion for the desert was tem¬porary. She’d come to love its sternness because of him, want¬ing to understand his comfort in its solitude. She was always happier in rain, in bathrooms steaming with liquid air, in sleepy wetness, climbing back in from his window that rainy night in Cairo and putting on her clothes while still wet, in order to hold it all. Just as she loved family traditions and courteous ceremony and old memorized poems. She would have hated to die without a name. For her there was a line back to her ancestors that was tactile, whereas he had erased the path he had emerged from. He was amazed she had loved him in spite of such qualities of anonymity in himself.
 

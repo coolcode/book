@@ -1,101 +1,99 @@
 title: The English Patient 035
-date: 2015-01-24 15:44:00
+date: 2015-01-25 03:45:42
 tags: the-english-patient
 ---
 
-Within two weeks even the idea of a city never entered his mind. It was as if he had walked under the millimetre of haze just above the inked fibres of a map, that pure zone between land and chart between distances and legend between nature and storyteller. Sandford called it geomorphology. The place they had chosen to come to, to be their best selves, to be unconscious of ancestry. Here, apart from the sun compass and the odometer mileage and the book, he was alone, his own invention. He knew during these times how the mirage worked, the fata morgana, for he was within it.
+He has not eaten food or drunk water, is unable to swallow anything. Before light failed he stripped the tent of all military objects, all bomb disposal equipment, stripped all insignia off his uniform. Before lying down he undid the turban and combed his hair out and then tied it up into a topknot and lay back, saw the light on the skin of the tent slowly disperse, his eyes holding onto the last blue of light, hearing the drop of wind into windlessness and then hearing the swerve of the hawks as their wings thudded. And all the delicate noises of the air.
 
-He awakens to discover Hana washing him. There is a bureau at waist level. She leans over, her hands bringing water from the porcelain basin to his chest. When she finishes she runs her wet fingers through her hair a few times, so it turns damp and dark. She looks up and sees his eyes are open, and smiles.
+第153页共162页 http://www.en8848.com.cn/ 原版英语阅读网
 
-When he opens his eyes again, Madox is there, looking ragged, weary, carrying the morphinic injection, having to use both hands because there are no thumbs. How does he give it to himself? he thinks. He recognizes the eye,
+￼￼￼He feels all the winds of the world have been sucked into Asia. He steps away from the many small bombs of his career towards a bomb the size, it seems, of a city, so vast it lets the living witness the death of the population around them. He knows nothing about the weapon. Whether it was a sudden assault of metal and explosion or if boiling air scoured itself towards and through anything human. All he knows is, he feels he can no longer let anything approach him, cannot eat the food or even drink from a puddle on a stone bench on the terrace. He does not feel he can draw a mateh out of his bag and fire the lamp, for he believes the lamp will ignite every¬thing. In the tent, before the light evaporated, he had brought out the photograph of his family and gazed at it. His name is Kirpal Singh and he does not know what he is doing here.
 
-第130页共162页 http://www.en8848.com.cn/ 原版英语阅读网
+He stands now under the trees in the August heat, untur-banned, wearing only a kurta. He carries nothing in his hands, just walks alongside the outline,of hedges, his bare feet on the grass or on terrace stone or in the ash of an old bonfire. His body alive in its sleeplessness, standing on the edge of a great valley of Europe.
 
-￼￼￼the habit of the tongue fluttering at the lip, the clearness of the man’s brain catching all he says. Two old coots.
+In the early morning she sees him standing beside the tent. During the evening she had watched for some light among the trees. Each of them in the villa had eaten alone that night, the Englishman eating nothing. Now she sees the sapper’s arm sweep out and the canvas walls collapse on themselves like a sail. He turns and comes towards the house, climbs the steps onto the terrace and disappears.
 
-Caravaggio watches the pink in the man’s mouth as he talks. The gums perhaps the light iodine colour of the rock paintings discovered in Uweinat. There is more to discover, to divine out of this body on the bed, nonexistent except for a mouth, a vein in the arm, wolf-grey eyes. He is still amazed at the clarity of discipline in the man, who speaks sometimes in the first person, sometimes in the third person, who still does not admit that he is Almasy.
+In the chapel he moves past the burned pews towards the apse, where under a tarpaulin weighted down with branches is the motorbike. He begins dragging the covering off the ma¬chine. He crouches down by the bike and begins nuzzling oil into the sprockets and cogs.
 
-“Who was talking, back then?”
+When Hana comes into the roofless chapel he is sitting there leaning his back and head against the wheel. Kip.
 
-“ ‘Death means you are in the third person.
+He says nothing, looking through her.
 
-All day they have shared the ampoules of morphine. To unthread the story out of him, Caravaggio travels within the code of signals. When the burned man slows down, or when Caravaggio feels he is not catching everything— the love af¬fair, the death of Madox—he picks up the syringe from the kidney-shaped enamel tin, breaks the glass tip off an ampoule with the pressure of a knuckle and loads it. He is blunt about all this now with Hana, having ripped the sleeve off his left arm completely. Almasy wears just a grey singlet, so his black arm lies bare under the sheet.
+Kip, it’s me. What did we have to do with it?
 
-Each swallow of morphine by the body opens a further door, or he leaps back to the cave paintings or to a buried plane or lingers once more with the woman beside him under a fan, her cheek against his stomach.
+He is a stone in front of her.
 
-Caravaggio picks up the Herodotus. He turns a page, comes over a dune to discover the Gilf Kebir, Uweinat, Gebel Kissu. When Almasy speaks he stays alongside him reordering the events. Only desire makes the story errant, flickering like a compass needle. And this is the world of nomads in any case, an apocryphal story. A mind travelling east and west in the disguise of sandstorm.
+She kneels down to his level and leans forward into him, the side of her head against his chest, holding herself like that.
 
-On the floor of the Cave of Swimmers, after her husband had crashed their plane, he had cut open and stretched out the parachute she had been carrying. She lowered herself onto it, grimacing with the pain of her injuries. He placed his fingers gently into her hair, searching for other wounds, then touched her shoulders and her feet.
+A beating heart.
 
-Now in the cave it was her beauty he did not want to lose, the grace of her, these limbs. He knew he already had her nature tight in his fist.
+When his stillness doesn’t alter she rolls back onto her knees.
 
-She was a woman who translated her face when she put on makeup. Entering a party, climbing into a bed, she had painted on blood lipstick, a smear of vermilion over each eye.
+The Englishman once read me something, from a book: “Love is so small it can tear itself through the eye of a
 
-He looked up to the one cave painting and stole the colours from it. The ochre went into her face, he daubed blue around her eyes. He walked across the cave, his hands thick with red, and combed his fingers through her hair. Then all of her skin, so her knee that had poked out of the plane that first day was saffron. The pubis. Hoops of colour around her legs so she would be immune to the human. There were traditions he had discovered in
+第154页共162页 http://www.en8848.com.cn/ 原版英语阅读网
 
-第131页共162页 http://www.en8848.com.cn/ 原版英语阅读网
+￼￼￼needle.”
 
-￼￼￼Herodotus in which old warriors celebrated their loved ones by locating and holding them in whatever world made them eternal—a colourful fluid, a song, a rock drawing.
+He leans to his side away from her, his face stopping a few inches from a rain puddle. A boy and a girl.
 
-It was already cold in the cave. He wrapped the parachute around her for warmth. He lit one small fire and burned the acacia twigs and waved smoke into all the corners of the cave. He found he could not speak directly to her, so he spoke formally, his voice against the bounce of the cave walls. I’m going for help now, Katharine. Do you understand? There is an¬other plane nearby, but there is no petrol. I might meet a caravan or a jeep, which means I will be back sooner. I don’t know. He pulled out the copy of Herodotus and placed it beside her. It was September 1939. He walked out of the cave, out of the flare of firelight, down through darkness and into the desert full of moon.
+While the sapper unearthed the motorcycle from under the tarpaulin, Caravaggio leaned forward on the parapet, his chin against his forearm. Then he felt he couldn’t bear the mood of the house and walked away. He wasn’t there when the sapper gunned the motorbike to life and sat on it while it half bucked, alive under him, and Hana stood nearby.
 
-He climbed down the boulders to the base of the plateau and stood there.
+Singh touched her arm and let the machine roll away, down the slope, and only then revved it to life.
 
-No truck. No plane. No compass. Only moon and his shadow. He found the old stone marker from the past that located the direction of El Taj, north-northwest. He memo¬rized the angle of his shadow and started walking. Seventy miles away was the souk with the street of clocks. Water in a skin bag he had filled from the ain hung from his shoulder and sloshed like a placenta.
+Halfway down the path to the gate, Caravaggio was waiting for him, carrying the gun. He didn’t even lift it formally towards the motorbike when the boy slowed down, as Caravag¬gio walked into his path. Caravaggio came up to him and put his arms around him. A great hug. The sapper felt the stubble against his skin for the first time. He felt drawn in, gathered into the muscles. “I shall have to learn how to miss you,” Caravaggio said. Then the boy pulled away and Caravaggio walked back to the house.
 
-There were two periods of time when he could not move. At noon, when the shadow was under him, and at twilight, between sunset and the appearance of the stars. Then every¬thing on the disc of the desert was the same. If he moved, he might err as much as ninety degrees off his course. He waited for the live chart of stars, then moved forward reading them every hour. In the past, when they had had desert guides, they would hang a lantern from a long pole and the rest of them would follow the bounce of light above the star reader.
+The machine broke into life around him. The smoke of the Triumph and dust and fine gravel fell away through the trees. The bike leapt the cattle grid at the gates, and then he was weaving down out of the village, passing the smell of gardens on either side of him that were tacked onto the slopes in their treacherous angle.
 
-A man walks as fast as a camel. Two and a half miles an hour. If lucky, he would come upon ostrich eggs. If unlucky, a sandstorm would erase everything. He walked for three days without any food. He refused to think about her. If he got to El Taj he would eat abra, which the Goran tribes made out of colocynth, boiling the pips to get rid of bitterness and then crushing it along with dates and locusts. He would walk through the street of clocks and alabaster. May God make safety your companion, Madox had said. Good-bye. A wave. There is God only in the desert, he wanted to acknowledge that now. Outside of this there was just trade and power, money and war. Financial and military despots shaped the world.
+His body slipped into a position of habit, his chest parallel with, almost touching, the petrol tank, his arms horizontal in the shape of least resistance. He went south, avoiding Flor¬ence completely. Through Greve, across to Montevarchi and Ambra, small towns ignored by war and invasion. Then, as the new hills appeared, he began to climb the spine of them towards Cortona.
 
-He was in broken country, had moved from sand to rock. He refused to think about her. Then hills emerged like me¬diaeval castles. He walked till he stepped with his shadow into the shadow of a mountain. Mimosa shrubs. Colocynths. He yelled out her name into the rocks. For echo is the soul of the voice exciting itself in hollow places.
+He was travelling against the direction of the invasion, as if rewinding the spool of war, the route no longer tense with military. He took only roads he knew, seeing the familiar cas¬tle towns from a distance. He lay static on the Triumph as it burned under him in its tear along the country roads. He carried little, all weapons left behind. The bike hurled through each village, not slowing for town or memory of war. “The earth shall reel to and fro like a drunkard, and shall be removed like a cottage.”
 
-Then there was El Taj. He had imagined the street of mirrors for most of his journey. When he got to the outskirts of the settlements, English military jeeps surrounded him and took him away, not listening to his story of the woman injured at Uweinat, just seventy miles away, listening in fact to noth¬ing he said.
+She opened up his knapsack. There was a pistol wrapped in oilskin, so that its smell was released when she uncovered it. Toothbrush and tooth powder, pencil sketches in a notebook, including a drawing of her—she was sitting on the terrace and he had been looking down from the Englishman’s room. Two turbans, a bottle of starch. One sapper lamp with its leather straps, to be worn in emergencies. She flicked it on and the knapsack filled with crimson light.
 
-第132页共162页 http://www.en8848.com.cn/ 原版英语阅读网
+In the side pockets she found pieces of equipment to do with bomb disposal, which she didn’t wish to touch.
 
-￼￼￼“Are you telling me the English did not believe you? No one listened to you?” “No one listened.”
+第155页共162页 http://www.en8848.com.cn/ 原版英语阅读网
 
-“Why?”
+￼￼￼Wrapped up in another small piece of cloth was the metal spile she had given him, which was used for tapping maple sugar out of a tree in her country.
 
-“I didn’t give them a right name.”
+From within the collapsed tent she unearthed a portrait that must have been of his family. She held the photograph in her palm. A Sikh and his family.
 
-“Yours?”
+An older brother who was only eleven in this picture. Kip beside him, eight years old. “When the war came my brother sided with whoever was against the English,”
 
-“I gave them mine.”
+There was also a small handbook that had a map of bombs. And a drawing of a saint accompanied by a musician.
 
-“Then what—”
+She packed everything back in except the photograph, which she held in her free hand. She carried the bag through the trees, walked across the loggia and brought it into the house.
 
-“Hers. Her name. The name of her husband.” “What did you say?”
+Each hour or so he slowed to a stop, spat into the goggles and wiped dust off with the sleeve of his shirt. He looked into the map again. He would go to the Adriatic, then south. Most of the troops were at the northern borders.
 
-He says nothing.
+He climbed into Cortona, the high-pitched gunning of the bike all around him. He rode the Triumph up the steps to the door of the church and then walked in. A statue was there, bandaged in scaffold. He wanted to get closer to the face, but he had no rifle telescope and his body felt too stiff to climb up the construction pipes. He wandered around un¬derneath like somebody unable to enter the intimacy of a home. He walked the bike down the church steps, and then coasted down through the shattered vineyards and went on to Arezzo.
 
-“Wake up! What did you say?”
+At Sansepolcro he took a winding road into the mountains, into their mist, so he had to slow to minimal speed. The Bocca Trabaria. He was cold but locked the weather out of his mind. Finally the road rose above the whiteness, the mist a bed behind him. He skirted Urbino where the Germans had burned all the field horses of the enemy. They had fought here in this region for a month; now he slid through in minutes, recognizing only the Black Madonna shrines. The war had made all the cities and towns similar.
 
-“I said she was my wife. I said Katharine. Her husband was dead. I said she was badly injured, in a cave in the Gilf Kebir, at Uweinat, north of the Ain Dua well. She needed water. She needed food. I would go back with them to guide them. I said all I wanted was a jeep. One of their damn jeeps... Perhaps I seemed like one of those mad desert prophets after the journey, but I don’t think so. The war was beginning already. They were just pulling spies in out of the desert. Everyone with a foreign name who drifted into these small oasis towns was suspect. She was just seventy miles away and they wouldn’t listen. Some stray English outfit in El Taj. I must have gone berserk then. They were using these wicker prisons, size of a shower. I was put into one and moved by truck. I was flailing around in there until I fell off onto the street, still in it. I was yelling Katharine’s name. Yelling the Gilf Kebir. Whereas the only name I should have yelled, dropped like a calling card into their hands, was Clifton’s.
+He came down towards the coast. Into Gabicce Mare, where he had seen the Virgin emerge from the sea. He slept on the hill, overlooking cliff and water, near where the statue had been taken. That was the end of his first day.
 
-“They hauled me up into the truck again. I was just another possible second-rate spy. Just another international bastard.”
+Dear Clara—Dear Maman,
 
-Caravaggio wants to rise and walk away from this villa, the country, the detritus of a war. He is just a thief. What Cara¬vaggio wants is his arms around the sapper and Hana or, better, people of his own age, in a bar where he knows every¬one, where he can dance and talk with a woman, rest his head on her shoulder, lean his head against her brow, whatever, but he knows first he must get out of this desert, its architec¬ture of morphine. He needs to pull away from the invisible road to El Taj. This man he believes to be Almasy has used him and the
+Maman is a French word, Clara, a circular word, suggest¬ing cuddles, a personal word that can be even shouted in public. Something as comforting and as eternal as a barge. Though you, in spirit, I know are still a canoe. Can swerve one around and enter a creek in seconds. Still independent. Still private. Not a barge responsible for all around you. This is my first letter in years, Clara, and I am not used to the formality of them. I have spent the last few months living with three others, and our talk has been slow, casual. I am not used to talking in any way but
 
-第133页共162页 http://www.en8848.com.cn/ 原版英语阅读网
+第156页共162页 http://www.en8848.com.cn/ 原版英语阅读网
 
-￼￼￼morphine to return to his own world, for his own sadness. It no longer matters which side he was on during the war.
+￼￼￼that now.
 
-But Caravaggio leans forward.
+The year is 194-. What? For a second I forget. But I know the month and the day. One day after we heard the bombs were dropped in japan, so it feels like the end of the world. From now on I believe the personal will forever be at war with the public. If we can rationalize this we can rationalize anything.
 
-“I need to know something.”
+Patrick died in a dove-cot in France. In France in the seventeenth and eighteenth centuries they built them huge, larger than most houses. Like this.
 
-“What?”
+The horizontal line one-third of the way down was called the rat ledge—to stop rats running up the brick, so the doves would be safe. Safe as a dove-cot. A sacred place. Like a church in many ways. A comforting place. Patrick died in a comforting place.
 
-“I need to know if you murdered Katharine Clifton. That is, if you murdered Clifton, and in so doing killed her.” “No. I never even imagined that.”
+At five a.m. he kicked the Triumph to life, and the rear wheel threw gravel in a skirt. He was still in darkness, still unable to distinguish sea in the vista beyond the cliff. For the journey from here to the south he had no maps, but he could recognize the war roads and follow the coast route. When sunlight came he was able to double his speed. The rivers were still ahead of him.
 
-“The reason I ask is that Geoffrey Clifton was with British Intelligence. He was not just an innocent Englishman, I’m afraid. Your friendly boy. As far as the English were con¬cerned, he was keeping an eye on your strange group in the Egyptian-Libyan desert. They knew the desert would some¬day be a theatre of war. He was an aerial photographer. His death perturbed them, still does. They still raise the question. And Intelligence knew about your affair with his wife, from the beginning. Even if Clifton didn’t. They thought his death may have been engineered as protection, hoisting up the draw¬bridge. They were waiting for you in Cairo, but of course you turned back into the desert. Later, when I was sent to Italy, I lost the last part of your story. I didn’t know what had hap¬pened to you.”
+Around two in the afternoon he reached Ortona, where the sappers had laid the Bailey bridges, nearly drowning in the storm in mid-river. It began to rain and he stopped to put on a rubber cape. He walked around the machine in the wetness. Now, as he travelled, the sound in his ears changed. The shush shush replacing the whine and howl, the water flung onto his boots from the front wheel. Everything he saw through the goggles was grey. He would not think of Hana. In all the silence within the bike’s noise he did not think of her.
 
-“So you have run me to earth.”
+When her face appeared he erased it, pulled the handlebars so he would swerve and have to concentrate. If there were to be words they would not be hers; they would be names on this map of Italy he was riding through.
 
-“I came because of the girl. I knew her father. The last person I expected to find here in this shelled nunnery was Count Ladislaus de Almasy. Quite honestly, I’ve become more fond of you than most of the people I worked with.”
+He feels he carries the body of the Englishman with him in this flight. It sits on the petrol tank facing him, the black body in an embrace with his, facing the past over his shoulder, facing the countryside they are flying from, that receding pal¬ace of strangers on the Italian hill which shall never be re¬built. “And my words which I have put in thy mouth shall not depart out of thy mouth. Nor out of the mouth of thy seed. Nor out of the mouth of thy seed’s seed.”
 
-The rectangle of light that had drifted up Caravaggio’s chair was framing his chest and head so that to the English patient the face seemed a portrait. In muted light his hair appeared dark, but now the wild hair lit up, bright, the bags under his eyes washed out in the pink late daylight.
-
-He had turned the chair around so he could lean forward on its back, facing Almasy. Words did not emerge easily from Caravaggio. He would rub his jaw, his face creasing up, the eyes closed, to think in darkness, and only then would he blurt out something, tearing himself away from his own thoughts. It was this darkness that showed in him as he sat in the rhomboid frame of light, hunched over a chair beside Almasy’s bed. One of the two older men in this story.
+The voice of the English patient sang Isaiah into his ear as he had that afternoon when the boy had spoken of the face on the chapel ceiling in Rome. “There are of course a hundred Isaiahs. Someday you will want to see him as an old man—in southern France the abbeys celebrate him as bearded and old, but the power is still there in his look.” The Englishman had sung out into the painted room. “Behold, the Lord will carry thee away with a mighty captivity, and He will surely cover thee. He will surely violently turn and toss thee like a ball into a large country.”
 

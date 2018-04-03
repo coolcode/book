@@ -1,137 +1,85 @@
 title: House of Cards 038
-date: 2015-01-24 15:43:57
+date: 2015-01-25 03:45:39
 tags: house-of-cards
 ---
 
-'Look, Mattie. Let's not be hasty. Let's be mature about this - friends! I want you to get wider experience on the
+'Don't worry, Pen. I'll deal with it.' He fell back on the swaggering confidence of years of salesmanship, of persuading people to buy ideas and arguments, not because they were all particularly good but because his audiences found themselves captivated by his energy and enthusiasm. In a world full of cynicism, they wanted to put their trust in a man who seemed to believe so passionately in what he was offering.
 
-paper, you've got talent, even if I think you haven't quite fitted in on the political side. We want to keep you here, so
+When Mattie arrived in his office after lunch, he was bright, alert, those strange eyes of his still amazingly animated but seeming very anxious to help.
 
-think over the weekend what other part of the paper you might like to work on.' He saw her steely, determined eyes
+‘Just a stomach upset’ he explained. 'Sorry I had to stand you up.'
 
-and knew it wasn't working. 'But if you really feel you must go, don't rush into anything. Sort out what you want
+Mattie acknowledged that his smile was full of charm; it was difficult not to want to believe him. ‘I understand you were asking about Mr Collingridge's accommodation address?'
 
-to do, let me know, we'll try to assist you and give you six months' salary to help you on your way. I don't want any hard feelings. Think about it.'
+￼'Sounds as if you are admitting that it was Charles Collingridge's address?' she enquired.
 
-I've thought about it. And if you are not printing my story, I'm resigning. Here and now.'
+'Well, if you want something on the record, you know I have to say that Mr Collingridge's personal affairs are his own, and no one here is going to comment one way or the other on any speculation.' He trotted out the Downing Street line with accomplished ease. 'But may I talk to you off the record, not for reporting?'
 
-She had never seen him so apoplectic. His words came spitting out. In which case I must remind you that your contract of employment stipulates that you must give me three months' notice of departure, and that until that time has elapsed we retain exclusive rights over all your journalistic work If you insist, we shall rigidly enforce that provision, in the courts if necessary which would ruin your career once and for all. Face it, your copy isn't going to get printed here or anywhere else. Wise up, Mattie, accept the offer. It's the best one you are going to get!'
+He made strong eye contact with her as if to establish his sincerity, rising from behind his desk to come and sit alongside Mattie in one of the informal chairs which littered his office.
 
-She knew now what her grandfather must have felt as he set out from his fishing village on the Norwegian fjord, knowing that once he had started he could never turn back even though ahead of him lay enemy patrol boats, mine fields, and nearly a thousand miles of hostile, stormy seas. She would need some of his courage, and his good fortune.
+'Even off the record, Mattie, there's a limit to how much I can say, but you know how unwell Charles has been. He's not been fully responsible for his actions, and it would be a terrible pity if we were to go out of our way to punish him still further. His life is in ruins. Whatever he has done wrong, hasn't he suffered enough already?'
 
-She gathered up the papers on Preston's desk and ripped them slowly in half before letting them flutter back into his lap.
+Mattie felt angry as she watched the loading of guilt onto the shoulders of the absent Charles. The whole world is to blame, Roger, except for you. 'Are you denying that Charles Collingridge himself asked you to open that address?'
 
-'You can keep the words. But you don't own the truth. I'm not sure you would even recognise it. I still quit.' This time she slammed the door.
+'So long as this is not for reporting but for your background information, I'm not going to deny it, but what good will it do anyone to re-open such old wounds? Give him a chance to rebuild his life’ he pleaded.
 
-SUNDAY 14th NOVEMBER -MONDAY 15th NOVEMBER
+'OK, Roger. I see no point in trying to subject him to farther harassment. So let me turn to a different point. There have been lots of accusations about how party headquarters has been very careless in allowing damaging ma-, terial to leak out in recent months. The Prime Minister issupposed to blame Smith Square very directly for much of his troubles’
 
-Some two weeks earlier, immediately after the Telegraph had published the Landless opinion poll, Urquhart in his
+‘I doubt whether that is fair, but it is no secret that relations between him and the Party Chairman have been very strained’
 
-capacity as Chief Whip had written to all of his parliamentary colleagues on the weekly Whips7 circular which is sent to party MPs.
+'Strained enough for that opinion poll we published during party conference week to have been leaked deliberately from party headquarters?' Mattie had to look very hard to detect the faint glimmer of surprise behind his flashing eyes before he sped into his explanation.
 
-During the course of the leadership election, newspapers and opinion pollsters will undoubtedly be
+‘I think that assumption is very difficult to justify. There are only - what, five people in this building who are circulated with copies of that material apart from the Party Chairman. I'm one of those five, and I can tell you how seriously we take the confidentiality of such material.' He lit a Gauloise. Time to think. 'But it also gets sent to every Cabinet Minister, all twenty-two of them, either at the House of Commons where it would be opened by one of those gossipy secretaries, or to their Departments where it would be opened by a civil servant, many of whom have no love for this Government. Any leak is much more likely to have come from there.'
 
-trying to obtain your view as to whom you are likely to support. I would encourage you not to cooperate,
+'But the papers were leaked at the headquarters hotel in Bournemouth. House of Commons secretaries or unfriendly civil servants don't go to the party conference or roam around the headquarters hotel’
 
-since at best the results of these surveys can only ‘ serve to disrupt the proper conduct of what is supposed to be a confidential ballot, and at worst will be used by the less responsible press to make mischief
+'Who knows, Mattie. It's still much more likely to have come from a source like that. Can you imagine Lord Williams scurrying around on his hands and knees outside hotel room doors?'
 
-and subject our affairs to lurid headlines and comment. The best interests of the Party can only be served by discouraging such activity.
+He laughed loudly to show how ridiculous it was, and Mattie joined in, realising that O'Neill had just admitted he knew the manner in which the opinion poll had been handed over, and he could only have known that for one reason. His overconfidence was tightening the noose around his neck even as he laughed.
 
-The majority of the Parliamentary Party was more than happy to cooperate, although it is a well established fact that at least a third of MPs are constitutionally incapable of keeping anything quiet, even state secrets.
+'Let me turn to another leak then, on the hospital expansion scheme. Now I am told that party headquarters was planning a major publicity drive during last summer, which had to be scrapped because of the change of plan’
 
-As a result, the two opinion polls which appeared in the Sunday press following Mattie's abrupt departure from Preston's office were profoundly incomplete, leaving the pollsters scratching their heads at the Telegraph's earlier persuasiveness. Less than 40 per cent of the 337 Government MPs who constituted the electorate for the ballot had responded to the polling companies' pestering telephone calls, which gave the impression that the Parliamentary
+'Really? Who on earth told you that?' asked O'Neill, knowing full well that it could only have been Kendrick, probably egged on by his weakness for a pretty woman. 'Never mind, I know you won't reveal your sources. But they sound exaggerated to me. The Publicity Department here is always ready to sell Government policy, and had the scheme gone ahead then certainly we would have wanted to help promote it, but we had no specific campaign in mind.'
 
-Party was still a long way from making up its mind. Moreover, the small sample of those who had agreed to
+‘I was told you had to scrap a campaign which had been carefully planned and which was ready to go.'
 
-respond gave no clear indication as to the likely result. Samuel was ahead, but only narrowly and to a degree which the pollsters emphasised was 'not statistically significant'. Woolton, McKenzie and Earle followed in close order, with the four other declared candidates a little further behind.
+The limp ash from his cigarette gave up its struggle to defy the laws of gravity and cascaded like an avalanche down his tie, but O'Neill ignored it. He was concentrating hard now.
 
-The conclusions to be drawn from such insubstantial evidence were flimsy, but made excellent headlines, just four days before the close of nominations.
+'You've been misinformed. Sounds to me like someone wanting to dig up the story again and trying to show the Party in much greater confusion than it actually was. Your source sounds a bit dubious to me. Are you sure he's in a position to know all the facts, or has he got his own angle to sell?'
 
-'Samuel slipping - early lead lost', roared the Mail on Sunday, while the Observer was scarcely less restrained in declaring 'Party in turmoil as poll reveals great uncertainty'.
+With a broad grin, O'Neill tried to smother Kendrick as a reliable source, and the smile which Mattie returned betrayed none of her own wonderment at his impromptu yet superbly crafted explanations. But she was asking far too many leading questions, and even a polished performer such as O'Neill was beginning to feel distinctly uncomfortable. He felt a gut-wrenching need for greater stimulation and support than his Gauloise could give him, no matter what Urquhart had said.
 
-Tlie inevitable result was a flurry of editorials hostile to the Party, criticising both the quality of the candidates and their campaigns. 'This country has a right to expect more of the governing Party than the undignified squabbling we have been subjected to in recent days and the lacklustre and uninspired manner in which it is deciding its fate,'
+'Mattie, I'm afraid I've got a busy day, and I have to make sure we are ready to handle the result of the ballot later this evening. Could we finish it here?'
 
-the Sunday Express intoned. 'We may be witnessing a governing Party which is finally running out of steam,
+￼Thanks for your time, Roger. I have found it immensely helpful in clearing up a few things.'
 
-ideas and leadership after too long in power.'
+￼'Any time I can help,' he said as he guided her towards the door. As they did so, they passed by the computer terminal stationed in the corner of his crowded office. She bent down to inspect it more closely.
 
-The following day's edition of the Daily Telegraph was intended to resolve all that. Just three days before the close
+I'm an absolute moron with these things,' she commented, turning to look straight into his flickering eyes. I'm impressed to see your Party is well ahead of the others in using new technology. Are all the terminals in this building linked through the central computer?'
 
-of nominations, it put aside convention and for the first time in its history ran its editorial on the front page. Its
+‘I... believe so,' he said, pressing her more firmly towards the door.
 
-print run was increased and a copy was hand delivered to the London addresses of all Government MPs. No punches were pulled in its determination to make its views heard throughout the corridors of Westminster.
+‘I never knew you had such high-tech skills, Roger,' she complimented.
 
-This paper has consistently supported the Government, not through blind prejudice but because we felt that they served the interests of the nation better than the alternatives. Throughout the Thatcher years our convictions were well supported by the progress which was made in restoring the economy to health and the inroads which began to be made in some of the more pressing social problems.
+'Oh, I don't,' he said in a surprisingly defensive mood. 'We all get put through a training course, but I'm not even sure how to switch the wretched things on, actually. Never use it myself.' His smile had tightened, and his eyes were flickering ever more violently. He propelled Mattie through the door with some force, and bade her a hasty farewell.
 
-In recent months we began to feel that Henry Collingridge was not the best leader to write the next
+At 5 p.m. the doors to the Commons Committee Room were ceremoniously shut to bar any further attempts to lodge votes in the leadership election. The gesture was an empty one, because the last of the 335 votes had been cast ten minutes earlier. Behind the doors gathered Sir Humphrey and his small team of scrutineers, happy that the day had gone smoothly in spite of the appalling start given to their preparations by Earle. A bottle of whisky did the rounds while they fortified themselves for the count. In different rooms around the Palace of Westminster, the candidates waited in various states of excitement for the summons which would tell them that the counting had finished and the result was ready to be announced.
 
-chapter, and we supported his decision to resign. However, there is now a grave danger that the lack of judgement being shown by all the present contenders for his job will threaten a return to the bad old ways of weakness and indecisiveness which we hoped had been left behind for good.
+Big Ben had struck the quarter after six before the eight candidates received the call, and at half past the hour more than 120 active supporters and interested MPs accompanied them as the Committee Room doors swung open to allow them back in. There was much good humour mixed with the tension as they filed in and stood around in loose groups, with substantial sums being wagered as Members made last-minute calculations as to the likely result and gambled their judgement against the inconclusive opinion polls which had been filling the press. Outside the room, excluded from what was technically a private party meeting, the men from the media did their own speculating and made their own odds.
 
-Instead of the steadying hand which we need oh the tiller in order to consolidate the economic and social
+Sir Humphrey was enjoying his little moment of history. He was in the twilight of his career, long since past his parliamentary heyday, and even the little misunderstanding over his holiday in the West Indies had helped bring him greater recognition and attention around the Westminster circuit than he had enjoyed for many years. Who knows, if he handled this correctly, his secret longing for a seat in the House of Lords might yet be fulfilled. He sat on the raised dais of the Committee Room, flanked by his lieutenants, and called the meeting to order.
 
-advances of recent years, we have so far been offered a
+'Since there has been such an unprecedentedly large number of names on the ballot paper, I propose to read the results out in alphabetical order’
 
-choice between youthful inexperience, environmental upheaval and injudicious outbursts bordering ‘ on racial intolerance.
+This was unwelcome news for David Adams, the former Leader of the House who had been banished to discontented exile on the backbenches by Coilingridge's first reshuffle. Having spent the last two years criticising all the major economic decisions which he had supported whilst in Government, he had hoped for a good showing in order to establish his claim for a return to Cabinet. He stood there stoically, hiding his grief as Newlands announced he had received only twelve votes. He was left to wonder what had happened to all those firm promises of support he had received while Sir Humphrey continued with his roll call. None of the next four names, including McKenzie's, could muster the support of more than twenty of their colleagues with Paul Goddard, the maverick Catholic who had stood on the single issue of banning all forms of legalised abortion, receiving only three. He shook his head defiantly; his rewards were not to be of the earthly kind.
 
-This choice is insufficient. The Government and the country need a leader who has maturity, who has
+Sir Humphrey had only three more names to announce - Samuel, Urquhart and Woolton - and a total of 281 votes to distribute. The level of tension soared as those present recalled that a minimum of 169 votes was required for success on the first ballot. A couple of huge side bets were instantly concluded in one comer as two Honourable Members wagered that there would, after all, be a result on the first round.
 
-a sense of discretion, who has a proven capacity for working with all his colleagues in the Parliamentary Party.
+The Right Honourable Michael Samuel’ intoned the chairman, '99 votes’
 
-There is at least one senior figure in the Party who not only enjoys all of these attributes, but who in recent weeks has been almost unique in remembering the need to uphold the dignity of Government and who, so rare in present day politics, has shown himself capable of putting aside his own personal ambition for what he perceives as being the wider interests of his Party.
+In the dead silence of the Committee Room, the sound of a tug blowing its klaxon three times as it passed on its way up the Thames could be clearly heard. A ripple of amusement covered the tension, and Samuel muttered that it was a pity tug masters didn't have a vote. He was clearly disappointed to be such a long way from the necessary winning total, particularly after Earle's withdrawal.
 
-He has announced that it is not his intention to seek election as Leader of the Party, but he still has time to reconsider before nominations close on Thursday. We believe it would be in the best interests of all concerned if the Chief Whip, Francis Urquhart, were to stand and to be elected.
+The Right Honourable Francis Urquhart - 91 votes.'
 
-There were forty press, television and radio men waiting outside Urquhart's home in Cambridge Street when he emerged at 8.10 that morning. He had been waiting rather nervously inside, wanting to ensure that the timing of his exit enabled BBC radio's Today programme and all breakfast television channels to take it live. Attracted by the scramble of newsmen, a host of passers-by and commuters from nearby Victoria Station had gathered to discover the cause for the commotion, and the live television pictures suggested a crowd showing considerable interest in the
-
-man who now emerged onto the doorstep, looking down on the throng.
-
-The shouted questions from the journalists were identical, and he waved a hand to quieten them so that his
-
-answer could be heard. The hand also contained a copy of that morning's Telegraph, and for a moment it looked as if he were giving a victory salute which only encouraged the scramble still further, but eventually he managed to bring a degree of calm to the proceedings.
-
-'Ladies and Gentlemen, as Chief Whip I would like to think you had gathered here because of your interest in
-
-the details of the Government's forthcoming legislative programme, but I suspect you have other things on your mind.'
-
-The gentle quip brought a chuckle from the journalists and put Urquhart firmly in control.
-
-'I have read with considerable surprise and obvious interest this morning's edition of the Telegraph.' He held it
-
-up again so that the cameras could get a clear shot. ‘I am
-
-honoured that such a significant and authoritative newspaper should hold a high opinion of my personal capabilities — one which goes far beyond my own judgement of the matter. As you know, I had made it clear that I had no
-
-intention of standing, that I thought it was in the Party's best interest that the Chief Whip should stand above this particular contest.' He cleared his throat. 'Generally that is still my view.
-
-However, the Telegraph raises some important points which should be considered carefully. You will forgive me
-
-if I don't come to an instant or snap judgement out here on the pavement. I want to spend a little time consulting with
-
-a few colleagues to obtain their opinions, and also to have a long and serious discussion with my wife, whose views
-
-will be most important of all. I shall then sleep upon it, and let you all know tomorrow what decision I have reached. In
-
-the meantime, I hope you will allow me and my family a few hours of peace to think about things. I shall have nothing more to say until tomorrow.'
-
-With one final wave of his hand, still clutching the newspaper and held for many seconds to satisfy the screaming photographers, Urquhart withdrew into his house and shut the door firmly.
-
-By Monday evening, Mattie was beginning to wonder
-
-whether she had been too hasty. After storming out of
-
-Preston's office she had persuaded herself that she had
-
-resolved all her personal and professional problems in one
-
-grand gesture - no more Krajewski, certainly no more
-
-Preston, just the story to concentrate on. Yet now she was
-
-not so sure. She had spent a lonely weekend identifying the
-
-newspapers for which she would like to work, but as she did so she quickly realised that none of them had any obvious gaps in their political reporting teams which she could hope to fill. The newspaper world is highly competitive, and although she could offer youthful energy and talent in abundance, she had just thrown away the track record of experience on which most editors hire their staff.
-
-She had made many telephone calls but they had led to few appointments; she began to discover that somebody was spreading a story that she had stormed out in tears when Preston had questioned her judgement, and sensitive feminine outbursts do not generally commend themselves to the heavily male-dominated club of newspaper editors.
-
-It did not help her mood that the Bank of England had pushed up interest rates sharply to protect sterling from speculators while a new Prime Minister was selected, leading the building societies that morning to threaten a rise in the mortgage rate. It made her realise that she would have no apparent means of paying for it. It was difficult enough with a salary. Without one, her affairs could very soon become impossible.
+Two of the gamblers in the comer looked crestfallen as they calculated the final figure.
 

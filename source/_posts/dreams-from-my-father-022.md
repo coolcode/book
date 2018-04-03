@@ -1,77 +1,81 @@
 title: Dreams from My Father 022
-date: 2015-01-24 15:44:12
+date: 2015-01-25 03:45:55
 tags: dreams-from-my-father
 ---
 
-So Regina was right; it had been just about me. My fear. My needs. And now? I imagined Regina’s grandmother somewhere, her back bent, the flesh of her arms shaking as she scrubbed an endless floor. Slowly, the old woman lifted her head to look straight at me, and in her sagging face I saw that what bound us together went beyond anger or despair or pity.
+“Twenty-two.”
 
-What was she asking of me, then? Determination, mostly. The determination to push against whatever power kept her stooped instead of standing straight. The determination to resist the easy or the expedient. You might be locked into a
+“See there. Don’t waste your youth, Mr. Barack. Wake up one morning, an old man like me, and all you gonna be is tired, with nothing to show for it.”
 
-world not of your own making, her eyes said, but you still have a claim on how it is shaped. You still have responsibilities.
+I didn’t pay Ike much attention at the time; I thought he sounded too much like my grandparents. Nevertheless, as the months passed, I felt the idea of becoming an organizer slipping away from me. The company promoted me to the position of financial writer. I had my own office, my own secretary, money in the bank. Sometimes, coming out of an interview with Japanese financiers or German bond traders, I would catch my reflection in the elevator doors-see myself in a suit and tie, a briefcase in my hand-and for a split second I would imagine myself as a captain of industry, barking out orders, closing the deal, before I remembered who it was that I had told myself I wanted to be and felt pangs of guilt for my lack of resolve.
 
-The old woman’s face dissolved from my mind, only to be replaced by a series of others. The copper-skinned face of the Mexican maid, straining as she carries out the garbage. The face of Lolo’s mother drawn with grief as she watches the Dutch burn down her house. The tight-lipped, chalk-colored face of Toot as she boards the six-thirty A.M. bus that will take her to work. Only a lack of imagination, a failure of nerve, had made me think that I had to choose between them. They all asked the same thing of me, these grandmothers of mine.
+Then one day, as I sat down at my computer to write an article on interest-rate swaps, something unexpected happened. Auma called.
 
-My identity might begin with the fact of my race, but it didn’t, couldn’t, end there.
+I had never met this half sister; we had written only intermittently. I knew that she had left Kenya to study in Germany, and in our letters we had mentioned the possibility of my going there for a visit, or perhaps her coming to the States. But the plans had always been left vague-neither of us had any money, we would say; maybe next year. Our correspondence maintained a cordial distance.
 
-At least that’s what I would choose to believe.
+Now, suddenly, I heard her voice for the first time. It was soft and dark, tinged with a colonial accent. For a few moments I couldn’t understand the words, only the sound, a sound that seemed to have always been there, misplaced but not forgotten. She was coming to the States, she said, on a trip with several friends. Could she come to see me in New York?
 
-For a few minutes more I sat still in my doorway, watching the sun glide into place, thinking about the call to Regina
+“Of course,” I said. “You can stay with me; I can’t wait.” And she laughed, and I laughed, and then the line grew quiet with static and the sound of our breath. “Well,” she said, “I can’t stay on the phone too long, it’s so expensive. Here’s the flight information”; and we hung up quickly after that, as if our contact was a treat to be doled out in small measures.
 
-I’d be making that day. Behind me, Billie was on her last song. I picked up the refrain, humming a few bars. Her voice sounded different to me now. Beneath the layers of hurt, beneath the ragged laughter, I heard a willingness to endure. Endure-and make music that wasn’t there before.
+I spent the next few weeks rushing around in preparation: new sheets for the sofa bed, extra plates and towels, a scrubbing for the tub. But two days before she was scheduled to arrive, Auma called again, the voice thicker now, barely a whisper.
 
-CHAPTER SIX
+“I can’t come after all,” she said. “One of our brothers, David...he’s been killed. In a motorcycle accident. I don’t know any more than that.” She began to cry. “Oh, Barack. Why do these things happen to us?”
 
-I SPENT MY FIRST NIGHT in Manhattan curled up in an alleyway. It wasn’t intentional; while still in L.A., I had heard that a friend of a friend would be vacating her apartment in Spanish Harlem, near Columbia, and that given New York’s real estate market I’d better grab it while I could. An agreement was reached; I wired ahead with the date of my August arrival; and after dragging my luggage through the airport, the subways, Times Square, and across 109th from Broadway to Amsterdam, I finally stood at the door, a few minutes past ten P.M.
+I tried to comfort her as best I could. I asked her if I could do anything for her. I told her there would be other times for us to see each other. Eventually her voice quieted; she had to go book a flight home, she said.
 
-I pressed the buzzer repeatedly, but no one answered. The street was empty, the buildings on either side boarded up, a bulk of rectangular shadows. Eventually, a young Puerto Rican woman emerged from the building, throwing a nervous look my way before heading down the street. I rushed to catch the door before it slammed shut, and, pulling my luggage behind me, proceeded upstairs to knock, and then bang, on the apartment door. Again, no answer, just a sound down the hall of a deadbolt thrown into place.
+“Okay, then, Barack. See you. ’Bye.”
 
-New York. Just like I pictured it. I checked my wallet-not enough money for a motel. I knew one person in New York, a guy named Sadik whom I’d met in L.A., but he’d told me that he worked all night at a bar somewhere. With nothing to do but wait, I carried my luggage back downstairs and sat on the stoop. After a while, I reached into my back pocket, pulling out the letter I’d been carrying since leaving L.A.
+After she hung up, I left my office, telling my secretary I’d be gone for the day. For hours I wandered the streets of Manhattan, the sound of Auma’s voice playing over and over in my mind. A continent away, a woman cries. On a dark and dusty road, a boy skids out of control, tumbling against hard earth, wheels spinning to silence. Who were these people, I asked myself, these strangers who carried my blood? What might save this woman from her sorrow? What wild, unspoken dreams had this boy possessed?
 
-Dear Son,
+Who was I, who shed no tears at the loss of his own?
 
-It was such a pleasant surprise to hear from you after so long. I am fine and doing all those things which you know are expected of me in this country. I just came back from London where I was attending to Government business, negotiating finances, etc. In fact it is because of too much travel that I rarely write to you. In any case, I think I shall do better from now on.
+I still wonder sometimes how that first contact with Auma altered my life. Not so much the contact itself (that meant everything, would mean everything) or the news that she gave me of David’s death (that, too, is an absolute; I would never know him, and that says enough), but rather the timing of her call, the particular sequence of events, the raised expectations and then the dashed hopes, coming at a time when the idea of becoming an organizer was still just that, an idea in my head, a vague tug at my heart.
 
-You will be pleased to know that all your brothers and sisters here are fine, and send their greetings. Like me, they approve of your decision to come home after graduation. When you come, we shall, together, decide on how long you may wish to stay. Barry, even if it is only for a few days, the important thing is that you know your people, and also that you know where you belong.
+Maybe it made no difference. Maybe by this time I was already committed to organizing and Auma’s voice simply served to remind me that I still had wounds to heal, and could not heal myself. Or maybe, if David hadn’t died when he did, and Auma had come to New York as originally planned, and I had learned from her then what I would only learn later, about Kenya, and about our father...well, maybe it would have relieved certain pressures that had built up inside me, showing me a different idea of community, allowing my ambitions to travel a narrower, more personal course, so that in the end I might have taken my friend Ike’s advice and given myself over to stocks and bonds and the pull of respectability.
 
-Please look after yourself, and say hallo to your mum, Tutu, and Stanley. I hope to hear from you soon. Love,
+I don’t know. What’s certain is that a few months after Auma’s call I turned in my resignation at the consulting firm and began looking in earnest for an organizing job. Once again, most of my letters went unanswered, but after a month or so I was called in for an interview by the director of a prominent civil rights organization in the city. He was a tall, handsome black man, dressed in a crisp white shirt, a paisley tie, and red suspenders. His office was furnished with Italian chairs and African sculpture, a bar service built into the exposed brick. Through a tall window, sunlight streamed down on a bust of Dr. King.
 
-Dad
+“I like it,” the director said after looking over my r&#233;sum&#233;. “Particularly the corporate experience. That’s the real business of a civil rights organization these days. Protest and pickets won’t cut it anymore. To get the job done, we’ve got to forge links between business, government, and the inner city.” He clasped his broad hands together, then showed me a glossy annual report opened to a page that listed the organization’s board of directors. There was one black minister and ten white corporate executives. “You see?” the director said. “Public-private partnerships. The key to the future. And that’s where young people like yourself come in. Educated. Self-assured. Comfortable in boardrooms. Why, just last week I was discussing the problem with the secretary of HUD at a White House dinner.
 
-I folded the letter along its seams and stuffed it back into my pocket. It hadn’t been easy to write him; our correspondence had all but died over the past four years. In fact, I had gone through several drafts, crossing out lines, struggling for the appropriate tone, resisting the impulse to explain too much. “Dear Father.” “Dear Dad.” “Dear Dr. Obama.” And now he had answered me, cheerful and calm. Know where you belong, he advised. He made it sound simple, like calling directory assistance.
+Terrific guy, Jack. He’d be interested in meeting a young man like you. Of course I’m a registered Democrat, but we have to learn to work with whoever’s in power....”
 
-“Information-what city, please?”
+On the spot he offered me the job, which involved organizing conferences on drugs, unemployment, housing. Facilitating dialogue, he called it. I declined his generous offer, deciding I needed a job closer to the streets. I spent three months working for a Ralph Nader offshoot up in Harlem, trying to convince the minority students at City College about the importance of recycling. Then a week passing out flyers for an assemblyman’s race in Brooklyn-the candidate lost and I never did get paid.
 
-“Uh...I’m not sure. I was hoping you could tell me. The name’s Obama. Where do I belong?”
+In six months I was broke, unemployed, eating soup from a can. In search of some inspiration, I went to hear Kwame Tour&#233;, formerly Stokely Carmichael of SNCC and Black Power fame, speak at Columbia. At the entrance to the auditorium, two women, one black, one Asian, were selling Marxist literature and arguing with each other about Trotsky’s place in history. Inside, Tour&#233; was proposing a program to establish economic ties between Africa and Harlem that would circumvent white capitalist imperialism. At the end of his remarks, a thin young woman with glasses asked if such a program was practical given the state of African economies and the immediate needs facing black Americans. Tour&#233; cut her off in midsentence. “It’s only the brainwashing that you’ve received that makes it impractical, sister,” he said. His eyes glowed inward as he spoke, the eyes of a madman or a saint. The woman remained standing for several minutes while she was upbraided for her bourgeois attitudes. People began to file out. Outside the auditorium, the two Marxists were now shouting at the top of their lungs.
 
-Maybe it really was that simple for him. I imagined my father sitting at his desk in Nairobi, a big man in government,
+“Stalinist pig!”
 
-with clerks and secretaries bringing him papers to sign, a minister calling him for advice, a loving wife and children waiting at home, his own father’s village only a day’s drive away. The image made me vaguely angry, and I tried to set it aside, concentrating instead on the sound of salsa coming from an open window somewhere down the block. The same thoughts kept returning to me, though, as persistent as the beat of my heart.
+“Reformist bitch!”
 
-Where did I belong? My conversation with Regina that night after the rally might have triggered a change in me, left me warm with good intentions. But I was like a drunk coming out of a long, painful binge, and I had soon felt my newfound resolve slipping away, without object or direction. Two years from graduation, I had no idea what I was going to do with my life, or even where I would live. Hawaii lay behind me like a childhood dream; I could no longer imagine settling there. Whatever my father might say, I knew it was too late to ever truly claim Africa as my home. And if I had come to understand myself as a black American, and was understood as such, that understanding remained unanchored to place. What I needed was a community, I realized, a community that cut deeper than the common despair that black friends and I shared when reading the latest crime statistics, or the high fives I might exchange on a basketball court. A place where I could put down stakes and test my commitments.
+It was like a bad dream. I wandered down Broadway, imagining myself standing at the edge of the Lincoln Memorial
 
-And so, when I heard about a transfer program that Occidental had arranged with Columbia University, I’d been quick to apply. I figured that if there weren’t any more black students at Columbia than there were at Oxy, I’d at least be in the heart of a true city, with black neighborhoods in close proximity. As it was, there wasn’t much in L.A. to hold me back. Most of my friends were graduating that year: Hasan off to work with his family in London, Regina on her way to Andalusia to study Spanish Gypsies.
+and looking out over an empty pavilion, debris scattering in the wind. The movement had died years ago, shattered into a thousand fragments. Every path to change was well trodden, every strategy exhausted. And with each defeat, even those with the best of intentions could end up further and further removed from the struggles of those they purported to serve.
 
-And Marcus? I wasn’t sure what had happened to Marcus. He should have had one more year left, but something had gotten to him midway through his junior year, something that I recognized, even if I couldn’t quite name it. I thought back to one evening, sitting with him in the library, before he’d decided to drop out of school. An Iranian student, an
+Or just plain crazy. I suddenly realized that I was talking to myself in the middle of the street. People on their way home from work were cutting a small arc around me, and I thought I recognized a couple of Columbia classmates in the crowd, their suit jackets thrown over their shoulders, carefully avoiding my glance.
 
-older balding man with a glass eye, was sitting across the table from us, and he had noticed Marcus reading a book on the economics of slavery. Although the drift of his eye gave the Iranian a menacing look, he was a friendly and curious man, and eventually he leaned over the table and asked Marcus a question about the book.
+I had all but given up on organizing when I received a call from Marty Kaufman. He explained that he’d started an organizing drive in Chicago and was looking to hire a trainee. He’d be in New York the following week and suggested that we meet at a coffee shop on Lexington.
 
-“Tell me, please,” the man said. “How do you think such a thing as slavery was permitted to last for so many years?” “White people don’t see us as human beings,” Marcus said. “Simple as that. Most of ’em still don’t.”
+His appearance didn’t inspire much confidence. He was a white man of medium height wearing a rumpled suit over a pudgy frame. His face was heavy with two-day-old whiskers; behind a pair of thick, wire-rimmed glasses, his eyes seemed set in a perpetual squint. As he rose from the booth to shake my hand, he spilled some tea on his shirt.
 
-“Yes, I see. But what I mean to ask is, why didn’t black people fight?”
+“So,” Marty said, dabbing the stain with a paper napkin. “Why does somebody from Hawaii want to be an organizer?” I sat down and told him a little bit about myself.
 
-“They did fight. Nat Turner, Denmark Vescey-”
+“Hmmph.” He nodded, taking notes on a dog-eared legal pad. “You must be angry about something.”
 
-“Slave rebellions,” the Iranian interrupted. “Yes, I have read something about them. These were very brave men. But they were so few, you see. Had I been a slave, watching these people do what they did to my wife, my children...well, I would have preferred death. This is what I don’t understand-why so many men did not fight at all. Until death, you see?”
+“What do you mean by that?”
 
-I looked at Marcus, waiting for him to answer. But he remained silent, his face not angry as much as withdrawn, eyes fastened to a spot on the table. His lack of response confused me, but after a pause I took up the attack, asking the Iranian if he knew the names of the untold thousands who had leaped into shark-infested waters before their prison ships had ever reached American ports; asking if, once the ships had landed, he would have still preferred death had he known that revolt might only visit more suffering on women and children. Was the collaboration of some slaves any different than the silence of some Iranians who stood by and did nothing as Savak thugs murdered and tortured opponents of the Shah? How could we judge other men until we had stood in their shoes?
+He shrugged. “I don’t know what exactly. But something. Don’t get me wrong-anger’s a requirement for the job. The only reason anybody decides to become an organizer. Well-adjusted people find more relaxing work.”
 
-This last remark seemed to catch the man off guard, and Marcus finally rejoined the conversation, repeating one of Malcolm X’s old saws about the difference between house Negroes and field Negroes. But he spoke as if he weren’t convinced of his own words, and after a few minutes he abruptly stood up and walked toward the door.
+He ordered more hot water and told me about himself. He was Jewish, in his late thirties, had been reared in New York. He had started organizing in the sixties with the student protests, and ended up staying with it for fifteen years. Farmers in Nebraska. Blacks in Philadelphia. Mexicans in Chicago. Now he was trying to pull urban blacks and suburban whites together around a plan to save manufacturing jobs in metropolitan Chicago. He needed somebody to work with him, he said. Somebody black.
 
-We never did talk about that conversation, Marcus and I. Maybe it didn’t explain anything; there were more than enough reasons for someone like Marcus to feel restless in a place like Occidental. I know that in the months that followed, I began to notice changes in him, as if he were haunted by specters that had seeped through the cracks of our safe, sunny world. Initially, he became more demonstrative in his racial pride: He took to wearing African prints to class and started lobbying the administration for an all-black dormitory. Later, he grew uncommunicative. He began to skip classes, hitting the reefer more heavily. He let his beard grow out, let his hair work its way into dreadlocks.
+“Most of our work is with churches,” he said. “If poor and working-class people want to build real power, they have to have some sort of institutional base. With the unions in the shape they’re in, the churches are the only game in town. That’s where the people are, and that’s where the values are, even if they’ve been buried under a lot of bullshit. Churches won’t work with you, though, just out of the goodness of their hearts. They’ll talk a good game-a sermon on Sunday, maybe, or a special offering for the homeless. But if push comes to shove, they won’t really move unless you can show them how it’ll help them pay their heating bill.”
 
-Finally he told me that he was going to take a leave from school for a while. “Need a break from this shit,” he said. We were walking through a park in Compton, hanging out at an all-day festival there. It was a beautiful afternoon, everybody in shorts, children screeching as they ran through the grass, but Marcus seemed distracted and barely spoke. Only when we passed a group of bongo players did he seem to come to life. We sat beside them under a tree, transfixed by the sound, watching the dark, barely cupped hands dance low off the hide. After a while I started to get bored and wandered off to talk to a pretty young woman selling meat pies. When I returned, Marcus was still there, except he was playing now, his long legs crossed, borrowed bongos nestling in his lap. Through the haze of smoke that surrounded him, his face was expressionless; his eyes were narrow, as if he were trying to shut out the sun. For almost an hour I watched him play without rhythm or nuance, just pounding the hell out of those drums, beating back untold memories.
+He poured himself more hot water. “What do you know about Chicago anyway?” I thought a moment. “Hog butcher to the world,” I said finally.
 
-And right then I realized that Marcus needed my help as much as I needed his, that I wasn’t the only one searching for answers.
+Marty shook his head. “The butcheries closed a while ago.”
 
-I looked down now at the abandoned New York street. Did Marcus know where he belonged? Did any of us? Where were the fathers, the uncles and grandfathers, who could help explain this gash in our hearts? Where were the healers who might help us rescue meaning from defeat? They were gone, vanished, swallowed up by time. Only their cloudy images remained, and their once-a-year letters full of dime store advice....
+“The Cubs never win.”
+
+“True.”
+
+“America’s most segregated city,” I said. “A black man, Harold Washington, was just elected mayor, and white people don’t like it.”
 

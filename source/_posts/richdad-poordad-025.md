@@ -31,7 +31,7 @@ During this time of great economic change, Robert's message is priceless.
 About the Authors-Sharon L. Lechter
 
 Wife and mother of three, CPA, consultant to the toy and publishing industries and business owner, Sharon Lechter has dedicated her professional efforts to the field of education.
-She graduated with honors from Florida State University with a degree in accounting. She joined the ranks of what was then one of the big eight accounting firms, and went on to become the CFO of a turnaround company in the computer industry, tax director for a national insurance company and founder and Associate Publisher of the first regional woman's magazine in Wisconsin, all while maintaining her professional credentials as a CPA.
+She graduated with honors from Florida State Universi/Users/brucelee/Movies/Birdman.2014.DVDSCR.x264-GoPanda/Birdman.2014.DVDSCR.x264-GoPanda.srtty with a degree in accounting. She joined the ranks of what was then one of the big eight accounting firms, and went on to become the CFO of a turnaround company in the computer industry, tax director for a national insurance company and founder and Associate Publisher of the first regional woman's magazine in Wisconsin, all while maintaining her professional credentials as a CPA.
 Her focus quickly changed to education as she watched her own three children grow. It was a struggle to get them to read. They would rather watch TV.
 So she was delighted to join forces with the inventor of the first electronic "talking book" and help expand the electronic book industry to a multi-million dollar international market. Today, she remains a pioneer in developing new technologies to bring the book back into
 children's lives.

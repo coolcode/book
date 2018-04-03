@@ -1,121 +1,137 @@
 title: Dreams from My Father 032
-date: 2015-01-24 15:44:03
+date: 2015-01-25 03:45:45
 tags: dreams-from-my-father
 ---
 
-“We’re quitting,” Angela said.
+The continuing struggle to align word and action, our heartfelt desires with a workable plan-didn’t self-esteem finally depend on just this? It was that belief which had led me into organizing, and it was that belief which would lead me to conclude, perhaps for the final time, that notions of purity-of race or of culture-could no more serve as the basis for the typical black American’s self-esteem than it could for mine. Our sense of wholeness would have to arise from something more fine than the bloodlines we’d inherited. It would have to find root in Mrs. Crenshaw’s story and Mr. Marshall’s story, in Ruby’s story and Rafiq’s; in all the messy, contradictory details of our experience.
 
-“Who’s quitting?”
+I went away for two weeks to visit my family. When I returned, I called Ruby and told her I needed her to come to a meeting that Saturday night.
 
-Angela shrugged. “Well...I am, I guess. I can’t speak for everybody else.”
+A long pause. “What about?”
 
-I looked around the room. The other leaders averted their eyes, like a jury that’s delivered an unfavorable verdict. “I’m sorry, Barack,” Angela continued. “It has nothing to do with you. The truth is, we’re just tired. We’ve all been at
+“You’ll see. Be ready by six...we’ll grab a bite to eat first.”
 
-this for two years, and we’ve got nothing to show for it.”
+Our destination was a full hour away from Ruby’s apartment, in one of the north-side neighborhoods where jazz and
 
-“I understand you’re frustrated, Angela. We’re all a little frustrated. But you need to give it more time. We-” “We don’t have more time,” Shirley broke in. “We can’t keep on making promises to our people, and then have
+blues had migrated in search of a paying audience. We found a Vietnamese restaurant, and over a plate of noodles and shrimp we talked about her boss at work, the problems she was having with her back. The conversation seemed forced, though, without pause or reflection; as we spoke, we kept skirting each other’s gaze.
 
-nothing happen. We need something now.”
+By the time we’d paid the restaurant bill and walked next door, the theater was already full. An usher showed us to our seats, which turned out to be in front of a group of black teenage girls out on a field trip. Some of the girls diligently thumbed through their programs, taking their cue from the older woman-a teacher, I assumed-who sat beside them. Most of the girls, though, were too excited to sit still; they whispered and giggled about the play’s lengthy title and asked questions of their chaperone, who showed an admirable patience throughout.
 
-I fidgeted with my coffee cup, trying to think of something else to say. Words jumbled up in my head, and for a
+The room was suddenly blanketed in darkness, and the girls fell quiet. Then the lights rose, a dim blue now, and seven black women appeared on the stage dressed in flowing skirts and scarves, their bodies frozen in awkward contortions. One of them, a big woman dressed in brown, began to cry out:
 
-moment I was gripped with panic. Then the panic gave way to anger. Anger at Marty for talking me into coming to Chicago. Anger at the leaders for being short-sighted. Anger at myself for believing I could have ever bridged the gap between them. I suddenly remembered what Frank had told me that night back in Hawaii, after I had heard that Toot was scared of a black man.
+...half-notes scattered
 
-That’s the way it is, he had said. You might as well get used to it.
+without rhythm / no tune distraught laughter fallin’
 
-In this peevish mood, I looked out the window and saw a group of young boys gathered across the street. They were tossing stones at the boarded-up window of a vacant apartment, their hoods pulled over their heads like miniature monks. One of the boys reached up and started yanking at a loose piece of plywood nailed across the apartment door, then stumbled and fell, causing the others to laugh. A part of me suddenly felt like joining them, tearing apart the whole dying landscape, piece by piece. Instead, I turned back toward Angela.
+over a black girl’s shoulder
 
-“Let me ask you something,” I said, pointing out the window. “What do you suppose is going to happen to those boys out there?”
+it’s funny / it’s hysterical
 
-“Barack...”
+the melody-less-ness of her dance
 
-“No, I’m just asking you a question. You say you’re tired, the same way most folks out here are tired. So I’m just trying to figure out what’s going to happen to those boys. Who’s going to make sure they get a fair shot? The alderman? The social workers? The gangs?”
+don’t tell a soul
 
-I could hear my voice rising, but I didn’t let up. “You know, I didn’t come here ’cause I needed a job. I came here ’cause Marty said there were some people who were serious about doing something to change their neighborhoods. I don’t care what’s happened in the past. I know that I’m here, and committed to working with you. If there’s a problem, then we’ll fix it. If you don’t think anything’s happened after working with me, then I’ll be the first one to tell you to quit. But if you all are planning to quit now, then I want you to answer my question.”
+she’s dancing on beer cans and shingles...
 
-I stopped there, trying to read each of their faces. They seemed surprised at my outburst, though none of them was as surprised as me. I knew I was on precarious ground; I wasn’t close enough to any of them to be sure my play wouldn’t backfire. At that particular moment, though, I had no other hand to play. The boys outside moved on down the street. Shirley went to get herself more coffee. After what seemed like ten minutes, Will finally spoke up.
+As she spoke, the other women slowly came to life, a chorus of many shades and shapes, mahogany and cream, round and slender, young and not so young, stretching their limbs across the stage.
 
-“I don’t know about the rest of you, but I think we’ve talked about this same old mess long enough. Marty knows we got problems. That’s why he hired Barack. Ain’t that right, Barack?”
+somebody / anybody sing a black girl’s song bring her out
 
-I nodded cautiously.
+to know herself
 
-“Things still bad out here. Ain’t nothing gone away. So what I wanna know,” he said, turning to me, “is what we gonna do from here on out.”
+to know you
 
-I told him the truth. “I don’t know, Will. You tell me.”
+but sing her rhythms
 
-Will smiled, and I sensed that the immediate crisis had passed. Angela agreed to give it another few months. I agreed to concentrate more time on Altgeld. We spent the next half hour talking strategy and handing out assignments. On our way out, Mona came up and took me by the arm.
+carin’ / struggle / hard times sing her song of life...
 
-“You handled that meeting pretty good, Barack. Seems like you know what you’re doing.” “I don’t, Mona. I don’t have a clue.”
+For the next hour, the women took turns telling their stories, singing their songs. They sang about lost time and discarded fantasies and what might have been. They sang of the men who loved them, betrayed them, raped them, embraced them; they sang of the hurt inside these men, hurt that was understood and sometimes forgiven. They showed each other their stretch marks and the calluses on their feet; they revealed their beauty in the lilt of their voice, the flutter of a hand, beauty waning, ascendant, elusive. They wept over the aborted children, the murdered children, the children they once were. And through all of their songs, violent, angry, sweet, unflinching, the women danced, each of them, double-dutch and rhumba and bump and solitary waltz; sweat-breaking, heart-breaking dances. They danced until they all seemed one spirit. At the end of the play, that spirit began to sing a single, simple verse:
 
-She laughed. “Well, I promise I won’t tell nobody.”
+I found god in myself
 
-“I appreciate that, Mona. I sure do appreciate that.”
+and I loved her / I loved her fiercely
 
-That evening, I called Marty and told him some of what had happened. He wasn’t surprised: several of the suburban churches were already starting to drop out. He gave me a few suggestions for approaching the job issue in Altgeld, then advised me to pick up the pace of my interviews.
+Lights came up; bows were taken; the girls behind us cheered wildly. I helped Ruby with her coat and we walked out to the parking lot. The temperature had dropped; the stars glinted like ice against the black sky. As we waited for the car to warm up, Ruby leaned over and kissed me on the cheek.
 
-“You’re going to need to find some new leaders, Barack. I mean, Will’s a terrific guy and all that, but do you really want to depend on him to keep the organization afloat?”
+“Thanks.”
 
-I understood Marty’s point. As much as I liked Will, as much as I appreciated his support, I had to admit that some of his ideas were...well, eccentric. He liked to smoke reefer at the end of a day’s work (“If God didn’t want us to smoke the stuff, he wouldn’t have put it on this here earth”). He would walk out of any meeting that he decided was boring. Whenever I took him along to interview members of his church, he’d start arguing with them about their incorrect
+Her eyes, deep brown, were shimmering. I grabbed her gloved hand and gave it a quick squeeze before starting to drive. Nothing more was said; for the entire ride back to the South Side, until I left her at her door and wished her good-night, we never broke that precious silence.
 
-reading of Scripture, their choice of lawn fertilizer, or the constitutionality of the income tax (he felt that tax violated the Bill of Rights, and conscientiously refused to pay).
+CHAPTER ELEVEN
 
-“Maybe if you listened to other people a little more,” I had told him once, “they’d be more responsive.”
+I PULLED INTO THE AIRPORT parking lot at a quarter past three and ran to the terminal as fast as I could. Panting for breath, I spun around several times, my eyes scanning the crowds of Indians, Germans, Poles, Thais, and Czechs gathering their luggage.
 
-Will had shaken his head. “I do listen. That’s the problem. Everything they say is wrong.”
+Damn! I knew I should have left earlier. Maybe she had gotten worried and tried to call. Had I given her my office number? What if she’d missed her flight? What if she had walked right past me and I hadn’t even known it?
 
-Now, after the meeting in Altgeld, Will had a new idea. “These mixed-up Negroes inside St. Catherine’s ain’t never
+I looked down at the photograph in my hand, the one she had sent me two months earlier, smudged now from too much handling. Then I looked up, and the picture came to life: an African woman emerging from behind the customs gate, moving with easy, graceful steps, her bright, searching eyes now fixed on my own, her dark, round, sculpted face blossoming like a wood rose as she smiled.
 
-gonna do nothing,” he said. “If we wanna get something done, we gonna have to take it to the streets!” He pointed out that many of the people who lived in the immediate vicinity of St. Catherine’s were jobless and struggling; those were the people we should be targeting, he said. And because they might not feel comfortable attending a meeting hosted by a foreign church, we should conduct a series of street corner meetings around West Pullman, allowing them to gather on neutral turf.
+“Barack?”
 
-I was skeptical at first, but unwilling as I was to discourage any initiative, I helped Will and Mary prepare a flyer, for distribution along the block closest to the church. A week later, the three of us stood out on the corner in the late autumn wind. The street remained empty at first, the shades drawn down the rows of brick bungalows. Then, slowly, people began to emerge, one or two at a time, women in hair nets, men in flannel shirts or windbreakers, shuffling through the brittle gold leaves, edging toward the growing circle. When the gathering numbered twenty or so, Will explained that St. Catherine’s was part of a larger organizing effort and that “we want you to talk to your neighbors about all the things y’all complain about when you’re sitting at the kitchen table.”
+“Auma?”
 
-“Well, all I can say is, it’s about time,” one woman said.
+“Oh my...”
 
-For almost an hour, people talked about potholes and sewers, stop signs and abandoned lots. As the afternoon fell to dusk, Will announced that we’d be moving the meetings to St. Catherine’s basement starting the following month. Walking back to the church, I heard the crowd still behind us, a murmur in the fading light. Will turned to me and smiled.
+I lifted my sister off the ground as we embraced, and we laughed and laughed as we looked at each other. I picked up
 
-“Told you.”
+her bag and we began to walk to the parking garage, and she slipped her arm through mine. And I knew at that moment, somehow, that I loved her, so naturally, so easily and fiercely, that later, after she was gone, I would find myself mistrusting that love, trying to explain it to myself. Even now I can’t explain it; I only know that the love was true, and still is, and I’m grateful for it.
 
-We repeated these street corner meetings on three, four, five blocks-Will at the center with his priest’s collar and Chicago Cubs jacket, Mary with her sign-in sheets circling the edges of the crowd. By the time we moved the meetings indoors, we had a group of close to thirty people, prepared to work for little more than a cup of coffee.
+“So, brother,” Auma said as we drove into the city, “you have to tell me everything.” “About what?”
 
-It was before such a meeting that I found Mary alone in the church hall, making a pot of coffee. The evening’s agenda was neatly printed on a sheet of butcher’s paper taped to the wall; the chairs were all set up. Mary waved at me while searching a cupboard for sugar and creamer, and told me Will was running a little late.
+“Your life, of course.”
 
-“Need any help?” I asked her.
+“From the beginning?”
 
-“Can you reach this?”
+“Start anywhere.”
 
-I pulled down the sugar from the top shelf. “Anything else?”
+I told her about Chicago and New York, my work as an organizer, my mother and grandparents and Maya-she had heard so much about them from our father, she said, she felt as if she already knew them. She described Heidelberg, where she was trying to finish a master’s degree in linguistics, and the trials and tribulations of living in Germany.
 
-“No. I think we’re all set.”
+“I have no right to complain, I suppose,” she said. “I have a scholarship, a flat. I don’t know what I would be doing if I was still in Kenya. Still, I don’t care for Germany so much. You know, the Germans like to think of themselves as very liberal when it comes to Africans, but if you scratch the surface you see they still have the attitudes of their childhood. In German fairy tales, black people are always the goblins. Such things one doesn’t forget so easily. Sometimes I try to imagine what it must have been like for the Old Man, leaving home for the first time. Whether he felt that same loneliness...”
 
-I took a seat and watched Mary finish arranging the cups. She was a hard person to know, Mary was; she didn’t like to
+The Old Man. That’s what Auma called our father. It sounded right to me, somehow, at once familiar and distant, an elemental force that isn’t fully understood. In my apartment, Auma held up the picture of him that sat on my bookshelf, a studio portrait that my mother had saved.
 
-talk much, about herself or her past. I knew that she was the only white person from the city who worked with us, one of maybe five white people left in West Pullman. I knew that she had two daughters, one ten and one twelve; the younger one had a disability that made walking difficult and required regular therapy.
+“He looks so innocent, doesn’t he? So young.” She held the picture next to my face. “You have the same mouth.” I told her she should lie down and get some rest while I went to my office for a few hours of work.
 
-And I knew that the father was absent, although Mary never mentioned him. Only in bits and pieces, over the course of many months, would I learn that she had grown up in a small Indiana town, part of a big, working-class Irish family. Somehow she had met a black man there; they had dated secretly, were married; her family refused to speak to her again, and the newlyweds moved to West Pullman, where they bought a small house. Then the man left, and Mary found herself beached in a world she knew little of, without anything but the house and two manila-hued daughters, unable to return to the world she had known.
+She shook her head. “I’m not tired. Let me go with you.”
 
-Sometimes I would stop by Mary’s house just to say hello, drawn perhaps by the loneliness I sensed there, and the easy parallels between my own mother and Mary; and between myself and Mary’s daughters, such sweet and pretty girls whose lives were so much more difficult than mine had ever been, with grandparents who shunned them, black classmates who teased them, all the poison in the air. Not that the family had no support; after Mary’s husband left, the neighbors had shown her and her children solicitude, helping them fix a leaky roof, inviting them to barbecues and birthday parties, commending Mary on all her good works. Still, there were limits to how far the neighbors could accept the family, unspoken boundaries to the friendships that Mary could make with the women-specially the married ones-that she met. Her only real friends were her daughters-and now Will, whose own fall, and idiosyncratic faith, gave them something private to share.
+“You’ll feel better if you take a nap.”
 
-With nothing left to do for the meeting, Mary sat down and watched me scribble some last-minute notes to myself. “Do you mind if I ask you something, Barack?”
+She said, “Agh, Barack! I see you’re bossy like the Old Man as well. And you only met him once? It must be in the
 
-“No, go ahead.”
+blood.”
 
-“Why are you here? Doing this work, I mean.”
+I laughed, but she didn’t; instead, her eyes wandered over my face as if it were a puzzle to solve, another piece to a
 
-“For the glamour.”
+problem that, beneath the exuberant chatter, nagged at her heart.
 
-“No, I’m serious. You said yourself you don’t need this job. And you’re not very religious, are you?”
+I gave her a tour of the South Side that afternoon, the same drive I had taken in my first days in Chicago, only with
 
-“Well...”
+some of my own memories now. When we stopped by my office, Angela, Mona, and Shirley happened to be there. They asked Auma all about Kenya and how she braided her hair and how come she talked so pretty, like the queen of England, and the four of them enjoyed themselves thoroughly talking about me and all my strange habits.
 
-“So why do you do it? That’s why Will and I do this, you know. Because it’s part of our faith. But with you, I don’t-” At that moment, the door opened and Mr. Green walked in. He was an older man in a hunting jacket and a cap whose
+“They seem very fond of you,” Auma said afterward. “They remind me of our aunties back home.” She rolled down the window and stuck her face into the wind, watching Michigan Avenue pass by: the gutted remains of the old Roseland Theatre, a garage full of rusted cars. “Are you doing this for them, Barack?” she asked, turning back to me. “This organizing business, I mean?”
 
-earflaps hung stiffly against his chin.
+I shrugged. “For them. For me.”
 
-“How you doing, Mr. Green.”
+That same expression of puzzlement, and fear, returned to Auma’s face. “I don’t like politics much,” she said. “Why’s that?”
 
-“Fine, just fine. Getting chilly, though....”
+“I don’t know. People always end up disappointed.”
 
-Mrs. Turner and Mr. Albert quickly followed, then the rest of the group, all bundled up against the hint of an early
+There was a letter waiting for her in my mailbox when we got home; it was from a German law student she said she’d
 
-winter. They unbuttoned their coats, prepared coffee for themselves, and engaged in the small, unhurried talk that helped warm up the room. Finally Will walked in wearing cut-off jeans and a red T-shirt with “Deacon Will” across the front, and after asking Mrs. Jeffrey to lead us in prayer, he started the meeting. While everyone talked, I took notes to myself, speaking up only when things started to wander. In fact, I thought the meeting had already dragged on too long- a few people had slipped out after an hour-when Will added a new item to the agenda.
+been seeing. The letter was voluminous, at least seven pages long, and as I prepared dinner, she sat at the kitchen table and laughed and sighed and clicked her tongue, her face suddenly soft and wistful.
+
+“I thought you didn’t like Germans,” I said.
+
+She rubbed her eyes and laughed. “Yah-Otto is different. He’s so sweet! And sometimes I treat him so badly! I don’t know, Barack. Sometimes I think it’s just impossible for me to trust anybody completely. I think of what the Old Man made of his life, and the idea of marriage gives me, how do you say...the shivers. Also, with Otto and his career, we would have to live in Germany, you see. I start imagining what it would be like for me, living my entire life as a foreigner, and I don’t think I could take it.”
+
+She folded her letter and put it back in the envelope. “What about you, Barack?” she asked. “Do you have these problems, or is it just your sister who’s so confused?”
+
+“I think I know what you’re feeling.”
+
+“Tell me.”
+
+I went to the refrigerator and pulled out two green peppers, setting them on the cutting board. “Well...there was a
+
+woman in New York that I loved. She was white. She had dark hair, and specks of green in her eyes. Her voice sounded like a wind chime. We saw each other for almost a year. On the weekends, mostly. Sometimes in her apartment, sometimes in mine. You know how you can fall into your own private world? Just two people, hidden and warm. Your own language. Your own customs. That’s how it was.
+
+“Anyway, one weekend she invited me to her family’s country house. The parents were there, and they were very nice, very gracious. It was autumn, beautiful, with woods all around us, and we paddled a canoe across this round, icy lake full of small gold leaves that collected along the shore. The family knew every inch of the land. They knew how the hills had formed, how the glacial drifts had created the lake, the names of the earliest white settlers-their ancestors- and before that, the names of the Indians who’d once hunted the land. The house was very old, her grandfather’s house. He had inherited it from his grandfather. The library was filled with old books and pictures of the grandfather with famous people he had known-presidents, diplomats, industrialists. There was this tremendous gravity to the room. Standing in that room, I realized that our two worlds, my friend’s and mine, were as distant from each other as Kenya is from Germany. And I knew that if we stayed together I’d eventually live in hers. After all, I’d been doing it most of my life. Between the two of us, I was the one who knew how to live as an outsider.”
 

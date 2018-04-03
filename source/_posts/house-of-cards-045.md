@@ -1,85 +1,103 @@
 title: House of Cards 045
-date: 2015-01-24 15:43:50
+date: 2015-01-25 03:45:32
 tags: house-of-cards
 ---
 
-'Don't worry, Pen. I'll deal with it.' He fell back on the swaggering confidence of years of salesmanship, of persuading people to buy ideas and arguments, not because they were all particularly good but because his audiences found themselves captivated by his energy and enthusiasm. In a world full of cynicism, they wanted to put their trust in a man who seemed to believe so passionately in what he was offering.
+The police arrived shortly after 5 a.m. and, with rather more experience in such matters than the janitor and supervisor, had the cubicle door lifted off its hinges in seconds.
 
-When Mattie arrived in his office after lunch, he was bright, alert, those strange eyes of his still amazingly animated but seeming very anxious to help.
+O'Neill's body was sitting there, fully clothed and slumped against the wall. His face, drained of all colour, was stretched into a leering death mask exposing his teeth and with his eyes staring wide open, hi his lap they found two halves of an empty tin of talc, and on the floor beside him they discovered a small polythene bag containing a few grains of white powder and a briefcase stuffed with political pamphlets. They found other small white granules of powder still clinging to the leather cover of the briefcase, which had clearly been placed on O'Neill's lap to provide a flat surface. From one clenched fist they managed to prise a twisted £20 note which had been fashioned into a tube before being crumpled by O'Neill's death fit. His other arm was stretched aloft over his head, as if the grinning corpse was giving one final, hideous salute of farewell.
 
-‘Just a stomach upset’ he explained. 'Sorry I had to stand you up.'
+'Another junkie taking his last fix,' muttered the police sergeant, who had seen more than a few such sights in his time. ‘It's more usual to find them with a needle up their arm,' he explained to his young colleague who lacked the relevant experience. 'But this one looks as if he was doing cocaine, and either it was too much for his heart or he's got hold of some adulterated stuff. There's quite a lot of drug pushing goes on around these motorway service stations, and the junkies never know what they're buying from whom. You often get impure drugs being peddled, either diluted with anything from castor sugar to baking powder, or mixed with something rather more lethal. The pushers will sell anything for money and the junkies will pay anything for a fix, whatever it is. This is just one of the unlucky ones.'
 
-Mattie acknowledged that his smile was full of charm; it was difficult not to want to believe him. ‘I understand you were asking about Mr Collingridge's accommodation address?'
+He started rummaging through O'Neill's pockets for clues to his identity. Funny way the body and face have contorted, though. Well, we can let the police surgeon and the coroner's office sort that one out. Let's get on with it, laddie, and call the ruddy photographers to record this sordid little scene. No use us standing here guessing about... Mr Roger O'Neill,' he announced as he found a wallet bearing a few credit cards. 'Wonder who he is?'
 
-￼'Sounds as if you are admitting that it was Charles Collingridge's address?' she enquired.
+There's a car outside in the car park, been here all night by the looks of it’ volunteered the janitor 'Probably his.' 'Well, let's take the details and check it out then’ instructed the sergeant.
 
-'Well, if you want something on the record, you know I have to say that Mr Collingridge's personal affairs are his own, and no one here is going to comment one way or the other on any speculation.' He trotted out the Downing Street line with accomplished ease. 'But may I talk to you off the record, not for reporting?'
+It was 7.20 by the time the coroner's representative had authorised the removal of the body. The sergeant was making sure the junior officer had finished with the required procedures and the ambulancemen were manhandling the rigid, contorted body out from its seat and onto their stretcher when the call came over the radio.
 
-He made strong eye contact with her as if to establish his sincerity, rising from behind his desk to come and sit alongside Mattie in one of the informal chairs which littered his office.
+'Sod it’ the sergeant told the radio controller. That'll set the cat amongst the pigeons. I'd better make double sure we've done everything this end before we have CID inspectors, superintendents and chief constables floating in for a look.'
 
-'Even off the record, Mattie, there's a limit to how much I can say, but you know how unwell Charles has been. He's not been fully responsible for his actions, and it would be a terrible pity if we were to go out of our way to punish him still further. His life is in ruins. Whatever he has done wrong, hasn't he suffered enough already?'
+He turned to the fresh-faced constable. 'Got yourself a prize one there, you have. Seems the car is registered to the Government's party headquarters, and our Mr Roger O'Neill is - rather was - a senior party official with his fingers in Downing Street and everywhere else, no doubt. Better make sure you write a full report, lad, or well both be for the high jump.'
 
-Mattie felt angry as she watched the loading of guilt onto the shoulders of the absent Charles. The whole world is to blame, Roger, except for you. 'Are you denying that Charles Collingridge himself asked you to open that address?'
+It had been another sleepless night. Her physical reserves of stamina had just about run out and she was on the point of surrendering to her growing mood of depression when the phone call threw her the lifeline she needed. It was Johnnie, calling from the Telegraph news room.
 
-'So long as this is not for reporting but for your background information, I'm not going to deny it, but what good will it do anyone to re-open such old wounds? Give him a chance to rebuild his life’ he pleaded.
+'How's this for another one of your coincidences?' he enquired. 'Just come over on the tape. It seems the Southampton police found your Roger O'Neill dead in a public lavatory just a few hours ago.'
 
-'OK, Roger. I see no point in trying to subject him to farther harassment. So let me turn to a different point. There have been lots of accusations about how party headquarters has been very careless in allowing damaging ma-, terial to leak out in recent months. The Prime Minister issupposed to blame Smith Square very directly for much of his troubles’
+Tell me this is simply your tasteless way of saying good morning,' she said without humour.
 
-‘I doubt whether that is fair, but it is no secret that relations between him and the Party Chairman have been very strained’
+'Sorry. It's for real. I've already sent a reporter down to the scene, but it appears the local police have called in the Drug Squad. Seems he may have overdosed.'
 
-'Strained enough for that opinion poll we published during party conference week to have been leaked deliberately from party headquarters?' Mattie had to look very hard to detect the faint glimmer of surprise behind his flashing eyes before he sped into his explanation.
+Mattie gasped as one of the pieces fell into place with a noise like a coffin lid slamming closed.
 
-‘I think that assumption is very difficult to justify. There are only - what, five people in this building who are circulated with copies of that material apart from the Party Chairman. I'm one of those five, and I can tell you how seriously we take the confidentiality of such material.' He lit a Gauloise. Time to think. 'But it also gets sent to every Cabinet Minister, all twenty-two of them, either at the House of Commons where it would be opened by one of those gossipy secretaries, or to their Departments where it would be opened by a civil servant, many of whom have no love for this Government. Any leak is much more likely to have come from there.'
+'So that was it. An addict. No wonder he was all over the place...' As she spoke she nudged in her excitement the large stack of dirty crockery which had built up beside the kitchen telephone, sending them crashing to the floor.
 
-'But the papers were leaked at the headquarters hotel in Bournemouth. House of Commons secretaries or unfriendly civil servants don't go to the party conference or roam around the headquarters hotel’
+'Mattie, what on earth...'
 
-'Who knows, Mattie. It's still much more likely to have come from a source like that. Can you imagine Lord Williams scurrying around on his hands and knees outside hotel room doors?'
+￼'Don't you see, Johnnie. He was the key man, the only man we knew for certain was involved in all the dirty tricks. Our Number One lead has just very conveniently disappeared from the scene, the day before they elect a new Prime Minister, leaving us with a big fat zero. Don't you see, Johnnie.'
 
-He laughed loudly to show how ridiculous it was, and Mattie joined in, realising that O'Neill had just admitted he knew the manner in which the opinion poll had been handed over, and he could only have known that for one reason. His overconfidence was tightening the noose around his neck even as he laughed.
+'What?'
 
-'Let me turn to another leak then, on the hospital expansion scheme. Now I am told that party headquarters was planning a major publicity drive during last summer, which had to be scrapped because of the change of plan’
+There's not a moment to waste!' she gasped, as he heard the phone go dead.
 
-'Really? Who on earth told you that?' asked O'Neill, knowing full well that it could only have been Kendrick, probably egged on by his weakness for a pretty woman. 'Never mind, I know you won't reveal your sources. But they sound exaggerated to me. The Publicity Department here is always ready to sell Government policy, and had the scheme gone ahead then certainly we would have wanted to help promote it, but we had no specific campaign in mind.'
+Mattie almost didn't find Penny Guy. She had rung the bell of the mansion block continuously for several minutes, and was just about to give up when the latch was released by the electronic buzzer and the door swung open. The door to Penny's flat on the first floor was also ajar, and Mattie walked in. She found Penny sitting quietly on the sofa, curtains drawn, staring at nothing.
 
-‘I was told you had to scrap a campaign which had been carefully planned and which was ready to go.'
+Mattie did not speak, but sat down beside her and held her. Slowly Penny's fingers tightened around Mattie's hand, acknowledging her presence, begging her to stay.
 
-The limp ash from his cigarette gave up its struggle to defy the laws of gravity and cascaded like an avalanche down his tie, but O'Neill ignored it. He was concentrating hard now.
+‘He didn't deserve to die,' Penny said in a hushed, faltering voice. ‘He was a weak man, but not an evil one. He was very kind.' 'What was he doing in Southampton?'
 
-'You've been misinformed. Sounds to me like someone wanting to dig up the story again and trying to show the Party in much greater confusion than it actually was. Your source sounds a bit dubious to me. Are you sure he's in a position to know all the facts, or has he got his own angle to sell?'
+‘He was spending the weekend with someone. Wouldn't say who. It was one of his silly secrets.'
 
-With a broad grin, O'Neill tried to smother Kendrick as a reliable source, and the smile which Mattie returned betrayed none of her own wonderment at his impromptu yet superbly crafted explanations. But she was asking far too many leading questions, and even a polished performer such as O'Neill was beginning to feel distinctly uncomfortable. He felt a gut-wrenching need for greater stimulation and support than his Gauloise could give him, no matter what Urquhart had said.
+'Any idea who?'
 
-'Mattie, I'm afraid I've got a busy day, and I have to make sure we are ready to handle the result of the ballot later this evening. Could we finish it here?'
+Penny shook her head with painful slowness.
 
-￼Thanks for your time, Roger. I have found it immensely helpful in clearing up a few things.'
+‘Do you know why he died?' Mattie asked.
 
-￼'Any time I can help,' he said as he guided her towards the door. As they did so, they passed by the computer terminal stationed in the corner of his crowded office. She bent down to inspect it more closely.
+Penny turned to face her with round, dark eyes which had a faraway look and from which the shock had squeezed any trace of emotion.
 
-I'm an absolute moron with these things,' she commented, turning to look straight into his flickering eyes. I'm impressed to see your Party is well ahead of the others in using new technology. Are all the terminals in this building linked through the central computer?'
+You're not interested in him, are you? Only in his death.' It was not an accusation, simply a statement of fact.
 
-‘I... believe so,' he said, pressing her more firmly towards the door.
+‘I'm sorry he died, Penny. I'm also sorry because I think Roger will be blamed for a lot of bad things that have happened recently. And I don't think he's the one who should be blamed.'
 
-‘I never knew you had such high-tech skills, Roger,' she complimented.
+Penny blinked for the first time, as if the question had at last disturbed the emptiness which had taken hold of her.
 
-'Oh, I don't,' he said in a surprisingly defensive mood. 'We all get put through a training course, but I'm not even sure how to switch the wretched things on, actually. Never use it myself.' His smile had tightened, and his eyes were flickering ever more violently. He propelled Mattie through the door with some force, and bade her a hasty farewell.
+'Why would they ... blame Roger?' The words were formed slowly, as if half of her were elsewhere, in a world where O'Neill was still alive and where Penny could still save him.
 
-At 5 p.m. the doors to the Commons Committee Room were ceremoniously shut to bar any further attempts to lodge votes in the leadership election. The gesture was an empty one, because the last of the 335 votes had been cast ten minutes earlier. Behind the doors gathered Sir Humphrey and his small team of scrutineers, happy that the day had gone smoothly in spite of the appalling start given to their preparations by Earle. A bottle of whisky did the rounds while they fortified themselves for the count. In different rooms around the Palace of Westminster, the candidates waited in various states of excitement for the summons which would tell them that the counting had finished and the result was ready to be announced.
+'Because he's a victim who has been set up to take the blame. Someone has been using Roger, has been twisting him and bending him in a dirty little political game - until Roger snapped.'
 
-Big Ben had struck the quarter after six before the eight candidates received the call, and at half past the hour more than 120 active supporters and interested MPs accompanied them as the Committee Room doors swung open to allow them back in. There was much good humour mixed with the tension as they filed in and stood around in loose groups, with substantial sums being wagered as Members made last-minute calculations as to the likely result and gambled their judgement against the inconclusive opinion polls which had been filling the press. Outside the room, excluded from what was technically a private party meeting, the men from the media did their own speculating and made their own odds.
+Penny considered this for several long moments. ‘He's not the only one,'she said.
 
-Sir Humphrey was enjoying his little moment of history. He was in the twilight of his career, long since past his parliamentary heyday, and even the little misunderstanding over his holiday in the West Indies had helped bring him greater recognition and attention around the Westminster circuit than he had enjoyed for many years. Who knows, if he handled this correctly, his secret longing for a seat in the House of Lords might yet be fulfilled. He sat on the raised dais of the Committee Room, flanked by his lieutenants, and called the meeting to order.
+'What do you mean?'
 
-'Since there has been such an unprecedentedly large number of names on the ballot paper, I propose to read the results out in alphabetical order’
+'Patrick. Patrick was sent a tape, of him with me. He thought I'd done it.' 'Patrick who. Penny?'
 
-This was unwelcome news for David Adams, the former Leader of the House who had been banished to discontented exile on the backbenches by Coilingridge's first reshuffle. Having spent the last two years criticising all the major economic decisions which he had supported whilst in Government, he had hoped for a good showing in order to establish his claim for a return to Cabinet. He stood there stoically, hiding his grief as Newlands announced he had received only twelve votes. He was left to wonder what had happened to all those firm promises of support he had received while Sir Humphrey continued with his roll call. None of the next four names, including McKenzie's, could muster the support of more than twenty of their colleagues with Paul Goddard, the maverick Catholic who had stood on the single issue of banning all forms of legalised abortion, receiving only three. He shook his head defiantly; his rewards were not to be of the earthly kind.
+'Woolton. He thought I had made the tape of us in bed together to blackmail him. But it was someone else. It wasn't me.'
 
-Sir Humphrey had only three more names to announce - Samuel, Urquhart and Woolton - and a total of 281 votes to distribute. The level of tension soared as those present recalled that a minimum of 169 votes was required for success on the first ballot. A couple of huge side bets were instantly concluded in one comer as two Honourable Members wagered that there would, after all, be a result on the first round.
+'So that's why he quit,' exclaimed Mattie. 'Who could have made the tape, Penny?'
 
-The Right Honourable Michael Samuel’ intoned the chairman, '99 votes’
+Don't know. Almost anybody at the party conference I suppose. Anyone in Bournemouth, anyone at the hotel.'
 
-In the dead silence of the Committee Room, the sound of a tug blowing its klaxon three times as it passed on its way up the Thames could be clearly heard. A ripple of amusement covered the tension, and Samuel muttered that it was a pity tug masters didn't have a vote. He was clearly disappointed to be such a long way from the necessary winning total, particularly after Earle's withdrawal.
+'But Penny, I don't understand! Who could have blackmailed Patrick Woolton? Who could have known you were sleeping with him?'
 
-The Right Honourable Francis Urquhart - 91 votes.'
+'Roger knew. But Roger would never...'
 
-Two of the gamblers in the comer looked crestfallen as they calculated the final figure.
+‘Don't you see, Penny. Someone was blackmailing Roger, too. Someone who must have known he was on drags. Someone who forced him to leak opinion polls and alter computer files. Someone who...'
+
+'Killed him!' The words unlocked the misery which Penny had been trying to hide since they had telephoned her earlier that morning. But now the barriers burst and tears were flooding from her eyes, forced out by the cries of anguish which racked her body. Further discussion with her was clearly impossible, and Mattie helped the sobbing girl into bed, makingher as comfortable as she could. She stayed with her until the tears had emptied her soul and she was fast asleep.
+
+Mattie walked down the street in confusion. The first snow of winter was beginning to fall gently around her, but she did not notice it. She was lost in her own misery of doubt. All the firm evidence she had led back to O'Neill. Now he was dead and the door at which she had been pushing, behind which she knew she would find the answer, had suddenly slammed shut on her. It was not the first time that the frustrated ambition of men had led to blackmail and violence - the appeal of political power had fascinated, seduced and corrupted men and women throughout the ages - but none had daubed blood on the door of 10 Downing Street. Until now. It had to be washed clean. She had a day to do it - and no idea where to go next.
+
+￼'Come on, come on, come on, come on!' she shouted, beating her hands on the desk in frustration. As the day had turned to evening and she had tossed the facts around fruitlessly in her mind she had become more tense, unable to find any new direction. The clock had ticked remorselessly on, and she found her mind crossing the same old ground, travelling up the same blind alleys and discovering the same dead ends. The harder she tried, the more elusive any new insight became. Perhaps a change of scene might fire her imagination. So she had gone for a walk, driven around, taken a bath and was now sitting at home, crying for enlightenment. But it was to no avail. Her inspiration and intuition had failed her as the sleepless nights took their toll, and the one man who could answer all her burning questions was dead, taking his secrets with him. She buried her head in her hands, reduced to praying for a miracle in a world which God seemed to have deserted.
+
+Something sparked. Later she could never recall what aroused it, but among the dying embers of her confidence a small flame began to glow and lick itself back to life. -Perhaps it was not all over yet.
+
+Two hours later Krajewski arrived clutching a large box of hot pizza. He had telephoned but got no answer. He was concerned, and was attempting to hide his concern beneath the pepperoni and extra cheese. He found Mattie sitting on the floor in the dark, huddled in the comer with her knees drawn up under her chin, clenching her arms around her tightly. She had been crying.
+
+He said nothing but knelt beside her, and this time she allowed him to hug the tears away. It was some time before she could say anything.
+
+'Johnnie, you told me that if I couldn't offer commitment I could never make it as a journalist, that I would be no better than a butterfly. I realise now that you were right. Until today I was simply chasing a story - oh, a big one, for sure, but what really mattered was ending up with my name at the top of the page one lead. Like a film - rooting out the wrongdoers from their hiding places, never giving a damn about the cost. I've been acting a role, the intrepid journalist struggling to unravel the lies in the face of overwhelming odds. But it's no longer a game, Johnnie...'
+
+She looked into his eyes, and he saw that her tears were not tears of fear or pain, but tears of release, as if she had at last struggled from the clutches of the bog onto solid ground.
+
+'All I wanted was a story, a great one. I threw away my job and I even trampled over your feelings just in case you got in the way. Now I would give anything for the whole story to disappear, but it's too late.'
 

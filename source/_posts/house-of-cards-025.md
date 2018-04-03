@@ -1,79 +1,109 @@
 title: House of Cards 025
-date: 2015-01-24 15:44:10
+date: 2015-01-25 03:45:52
 tags: house-of-cards
 ---
 
-Urquhart went over to his wardrobe and from the back pulled out another Ministerial red box. Like all such boxes, this one was secured with a precision-made, high-security tungsten lock for which he alone had the keys. Inside, nestling in another protective wrapping of polystyrene, sat a modified FM portable radio with inbuilt cassette recorder which was tuned to the wavelength of the transmitter. Urquhart noticed with satisfaction that the long-playing tape he had installed was all but exhausted. He had left the radio transmitter in Woolton's room pointing towards the bed.
+'But look, it's there. The red envelope. I can see it from here.'
 
-‘I hope it's not simply because he snores,' Urquhart joked with himself. As he did so, the equipment clicked once more into action, ran for ten seconds, and stopped.
+A little uncertain as to what he should do, the assistant turned and extracted the envelopes from a numbered pigeon hole behind him. There were three of them. He placed the red envelope on the counter in front of the reporter, with the other two envelopes to one side. He was trying to confirm that the name on the envelope, c/o Charles Collingridge, matched that of the reporter's identitycards while the camera zoomed in closely on the other two envelopes. It took a few seconds for the operator to focus the concealed equipment properly, but as he did so, the markings on the envelopes came clearly into view. Both were addressed to Charles Collingridge. One bore the imprint of the Union Bank of Turkey. The other had been sent from the Party's Sales and Literature Office at Smith Square.
 
-He pressed the rewind button and was watching the twin reels spin round when the telephone rang, summoning him to the Prime Minister for yet another 'plumbing lesson', as he called it.
+The presenter turned once more to confront Collingridge - and there was no doubt left in Collingridge's mind that the triumphant interview had now turned into open confrontation.
 
-'Never mind, you'll wait,' he whispered, and relocked both boxes before concealing them in the back of his wardrobe. He was reliving the explosion of excitement he had felt when he had set his first rabbit trap on his father's estate with the help of the gillie. They had gone out into the warm evening air to lay the trap together, but Urquhart could not contain his impatience and had returned alone before dawn the following morning, to find the creature swinging helplessly from the snare.
+'The first envelope would seem to confirm that the address was indeed used to buy and sell shares in the Renox Chemical Company through the Union Bank of Turkey. But we were puzzled about the letter from your own party headquarters. So we called your Sales and Literature Office, pretending to be a supplier with an order from Charles Collingridge but with an indecipherable address.'
 
-'Got you!' he exclaimed in triumph.
+Collingridge was just about to shout an angry denunciation of the immoral and underhand methods adopted by the programme when the studio was filled with the recorded sound of the telephone call.
 
-￼SATURDAY 16th OCTOBER
+'... so could you just confirm what address we should have for Mr Collingridge and then we can get the goods off to him straight away.' ‘Just one minute, please’ said an eager young man's voice. I’ll call it up on the screen.'
 
-It was not just the Telegraph which, the day after the Prime Minister's speech, declared it to be a disaster. It was joined in varying degrees by all the other newspapers, several Government backbenchers, and the Leader of the Opposition. Particularly the Leader of the Opposition, whose animated braying appeared for all the world like a hound which had just scented the first sign of real vulnerability in its prey.
+There was the sound of a keyboard being tapped. 'Ah, here it is. Charles Collingridge, 216 Praed Street, Paddington, London W2.' Thank you very much indeed. You have been most helpful.'
 
-The loss of the Dorset East by-election, when the news had burst on the conference in the early hours of Friday morning, had at first numbed the party faithful. It had taken them until breakfast time before they began to vent their frustration and disillusionment, and there had been only one target - Henry Collingridge.
+The presenter turned once again to Collingridge. 'Do you wish to comment, Prime Minister?'
 
-Correspondents in Bournemouth seemed to have been inundated with nameless senior Party officials, each of whom claimed personally to have warned the Prime Minister not to hold the by-election in conference week and who were now absolving themselves of responsibility for the disastrous defeat. In turn, the Prime Minister's office retaliated - unattributably, of course - that the blame was really in the organisational deficiencies of the party headquarters for which, of course. Lord Williams was responsible. The explanation, however, fell on deaf ears. The pack instinct had taken hold of the press as well as the Leader of the Opposition, as the scarcely restrained phrases of one normally pro-Government newspaper indicated.
+He shook his head, uncertain of what to say, or whether he should walk off the set. He was astonished that Charles was registered with the Sales
 
-The Prime Minister yesterday failed to quell growing doubts being expressed within his Party about his leadership with a closing speech to his party conference in Bournemouth which one Cabinet colleague described as 'inept and inappropriate'. Following this week's leaking of disastrous internal opinion polls and the humiliating by-election defeat in one of the Party's safest seats, conference representatives were looking for a realistic acknowledgement of the problems which have caused the collapse of voter support for the Government.
+￼and Literature Office, because he had only ever shown interest in the social side of politics. But he suspected that this was likely to be the least of his surprises.
 
-Instead, in the words of one representative, 'we got a stale rehash of an old election speech'.
+'Of course, we took seriously your explanation that it might be a case of mistaken identity, of confusion with another Charles Collingridge.'
 
-The open disenchantment with the Prime Minister is no longer being voiced with traditional caution within Government circles, particularly amongst anxious backbenchers with marginal seats. Peter Bearstead, MP for Leicester North, said last night: The electorate gave us a warning slap across the knuckles at the election, and we should be responding with fresh initiatives and a much clearer statement of our policies. But all we got was more of the same, cliches and suffocating complacency. It may be time for the Prime Minister to think about handing over.'
+Collingridge wanted to shout in protest that it was not 'his' explanation, that it was simply an off-hand and speculative remark made without prejudice by his press secretary. But he knew it would be a waste of time, so he remained silent.
 
-In an office tower on the South Bank of the Thames, near the spot where Wat Tyler 600 years before had gathered disenchanted rebels to launch his attempt at overthrowing the Establishment, the editor of Weekend Watch, the leading current affairs programme, studied the newspapers and called a hurried conference of all his staff. Twenty minutes later, the programme planned for the following day on racketeering landlords had been shelved and the entire sixty-minute slot had been recast. Bearstead was going to be invited to participate, as were several opinion pollsters and pundits, in a new programme entitled 'Collingridge - Time To Go?' From his home in the leafy suburbs near Epsom, the senior manager of market makers Barclays de Zoete Wedd telephoned two colleagues. They agreed to be in the office very early on Monday. 'All this political nonsense is going to upset the markets, and we mustn't be caught holding on to stock when every other bastard is selling.'
+‘Do you know how many other Charles Collingridges there are listed in the London telephone directory, Prime Minister?' Collingridge offered no response, but sat there looking grim and ashen faced.
 
-The Chief Whip, at his magnificent Palladian country home in the New Forest of Hampshire, received several calls from worried Cabinet colleagues and senior backbenchers, none wishing to make a break from cover but all of them expressing concern. The chairman of the Party's grass-roots executive committee also called him from Yorkshire reporting similar worries. ‘I would normally pass these on to the Party Chairman,' the bluff Yorkshire-man explained, 'but with relations between Downing Street and party headquarters so poor, I just don't want to get caught in the middle of that particular battle.'
+The presenter came to the assistance of his silent guest. There are no other Charles Collingridges listed in the London telephone directory. Indeed, sources at British Telecom tell us that there is only one Charles Collingridge listed throughout the United Kingdom Your brother, Prime Minister.'
 
-The defeated candidate in Thursday's by-election was contacted by the Mail on Sunday just after a lunch spent drowning his sorrows, and showed no reticence in his broadside against Collingridge. He cost me my seat. Can he feel safe in his?'
+Again a pause, inviting a response, but none was offered.
 
-At Chequers, the Prime Minister's official country residence set amidst rolling lawns and massive security in rural Buckinghamshire, Collingridge just sat, ignoring his official papers and devoid of inspiration. The rock had begun to roll down hill, and he had no idea how to stop it.
+'Since a Mr Charles Collingridge seems to have acted on inside information concerning the Renox Chemical Company and decisions of the Department of Health relating to it, we asked both organisations if they had any knowledge of a Charles Collingridge. Renox tells us that neither they, nor their subsidiaries, have any Collingridge amongst then-employees. The Department of Health's press office was rather more cagey, promising to get back to us but never did. However, their trade union office was much more cooperative. They, too, corifirmed that there is no Collingridge listed as working at any of the Department's 508 offices throughout the country.'
 
-When it hit later that afternoon, the news caught almost everyone by surprise. Even Urquhart. He had expected the Observer to take at least a couple more weeks checking the bundle of papers and photostats he had sent them and obtaining their lawyers' clearance. Clearly, however, they had felt pressured by the growing political clamour and feared that a competitor might also be on the trail. 'Damned if we don't publish, damned if we do. So let's go!' the editor had shouted at his investigative reporters.
+The presenter shuffled his notes. 'Apparently they did have a Minnie Collingridge who worked at their Coventry office until two years ago, but she went back to Jamaica.'
 
-Urquhart was adjusting the triple carburettors on his 1933 Rover Speed Pilot, which he kept for touring around the lanes of the New Forest, when Miranda called from inside the house.
+"They're laughing at me’ screamed Collingridge to himself. 'They have convicted, sentenced and now are executing me!' In the background he could see Sarah, and the tears which were running like rivers of blood down her cheeks.
 
-'Francis! Chequers on the phone!' He picked up the extension on the garage wall, wiping his hands carefully on a greasy rag. 'Urquhart here.'
+'Prime Minister. We have almost come to the end of our programme. Is there anything you wish to say?'
 
-'Chief Whip, please hold on. I have the Prime Minister for you,' a female voice instructed.
+Collingridge sat there, staring ahead at Sarah, wanting to run to her and embrace her and lie to her that there was no need for tears, everything would be all right. He was still sitting motionless in his chair a full minute later, as the eerie studio silence was broken by the programme's theme
 
-The voice which now came on the end of the phone was almost unrecognisable. It had no more vitality than a voice from the grave.
+music. While the lights dimmed and the credits rolled, the viewers saw him rise from his seat, walk slowly over to v embrace his sobbing wife, and start whispering all those lies.
 
-'Francis, I am afraid I have some bad news. The Observer have just called up the Downing Street press office to let us know of a story they will be running tomorrow. I can't explain it all, but apparently my brother Charles has been buying shares in companies just before they benefit from Government decisions, and making a killing on them. They say they've got documentary evidence - bank statements, brokers' receipts, the lot. He bought nearly £50,000 worth of Renox, they say, a couple of days before we are supposed to have approved a new drug of theirs for general use,
+When they arrived back at Downing Street, Collingridge went straight to the Cabinet Room. He entered almost like a visitor, looking slowly and with a new eye around the room, at its elegant furnishings, fine classical architecture and historic paintings. Yet his gaze kept corning back to the Cabinet table itself, symbol of the uniquely British form of collective Government. He walked slowly around it, trailing his hand on the green baize cloth, stopping at the far end at the seat he had first occupied ten years ago as the Cabinet's most junior member. He raised his eyes to meet those of Robert Walpole, who seemed to be looking directly at him.
 
-￼and sold them a day later for a substantial profit They say he used a false address in Paddington. It's going to be the lead story.'
+'What would you have done, old fellow?' he whispered. ‘Fight, I suppose. And if you didn't win that one then fight and fight again. Well, well see.'
 
-There was an exhausted pause, as if he no longer had the energy to continue. 'Francis, everyone's going to assume I'm involved with this. What on earth do I do?'
+He reached his own chair and settled slowly into it, feeling physically lost as he sat alone at the middle of the great table. He reached for the single telephone which stood beside his blotter. There was a duty telephonist on call every hour of the day and night.
 
-Urquhart settled himself comfortably in the front seat of the car before replying. It was a seat from which he was used to taking risks and making split-second decisions.
+'Get me the Chancellor of the Exchequer, please.'
 
-Have you said anything to the Observer’'
+It took less than a minute before the receiver buzzed, with the Chancellor on the line. 'Colin, did you see it? How badly will the markets react tomorrow?'
 
-'No. I don't think they were expecting a comment from me. They were really trying to find Charlie.'
+The Chancellor gave an embarrassed but honest opinion.
 
-'Where is he?'
+'Bloody, eh? We shall have to see what can be done about it. We shall be in touch.' He then spoke to the Foreign Secretary. 'What damage, Patrick?'
 
-'Gone to ground, I hope. I managed to get hold of him. He... was drunk. I just told him to take the phone off the hook and not to answer the door.'
+Woolton told him bluntly that with the Government's reputation so weak it would now be impossible to achieve the reforms of the Common Market's budgetary system which the United Kingdom Government had long been demanding and which had been made a clear priority during the election. 'A month ago it was there, within our grasp, after all these years. Now we carry about as much political clout around the negotiating table as O'Reilly's donkey. Sorry, Henry, you asked me to be brutally frank.'
 
-Urquhart gripped the steering wheel, staring ahead. He felt strangely detached. He realised for the first time that he had set in motion a machine which was far more powerful than his ability to control it. He had manipulated, analysed and considered, but in spite of weeks of planning he knew that events were no longer under his command. He imagined that he was speeding down a country lane, the Rover ready to respond to his every command as he slammed it through its four gears and accelerated around the curve of the road, knowing now that he was lost in the exhilaration of its speed. He thrilled to its performance and the scent of danger in his nostrils, pressing ever more firmly down on the accelerator, oblivious of what lay around the next blind corner. It was already too late for second thoughts. It was instinct, not intellect, which would take over now.
+Then it was the turn of the Party Chairman. Williams could hear the formal tone being used by Collingridge on the end of the phone, and responded inkind.
 
-'Where is he?'
+'Prime Minister, within the last hour I have had calls from seven of our eleven Regional Party Chairmen. Without exception, I am sorry to say, they think the situation is quite disastrous for the Party. They feel that we are beyond the point of no return.'
 
-'At home in London.'
+'No, Teddy,' contradicted Collingridge. 'They feel that I am beyond the point of no return. There's a difference.'
 
-Yes, I know it. You must get someone down there to take care of him. Look, I know it must be painful as he's your brother, but there's a drying-out clime outside Dover which the Whips Office has used for the occasional backbencher. Very confidential, very kind. Dr Christian, the head of the clinic, is excellent. I'll give him a call and get him to Charles immediately. You must arrange for someone else from the family to be there, too, in case your brother proves to be difficult. Your wife, Sarah, perhaps? I will find someone from the Whips Office to get there and keep a careful eye on it all. But we must move fast, because in four hours' time when the Observer hits the streets your brother's home is going to be besieged by journalists. We have to beat them to the punch. With Charles in his present state there is no knowing what he might say or do.'
+He made one more phone call, to his private secretary asking him to seek an appointment at the Palace around lunchtime the following day. The
 
-'But what do we do then? I can't hide Charlie for ever. He's got to face up to it sooner or later, hasn't he?'
+￼secretary rang back four minutes later to say Her Majesty looked forward to seeing him at ‘I o'clock.
 
-'Is he guilty?'
+He felt suddenly relieved, as if the tremendous weight had already shifted from his shoulders. He looked up one last time to face Walpole.
 
-‘I simply don't know,' the words said, but the tone conceded doubt and probable defeat 'The office checked after they got the phone call. Apparently we did license a new Renox drug a couple of months ago, and their shares jumped sharply. Anyone holding any of their shares would have made a handsome profit. But Charlie hasn't got any money to splash around on shares. And how would he know about Renox?'
+'Oh, yes. You would have fought. You would probably have won. But this office has already ruined my brother and now it is ruining me. I will not let it ruin Sarah's happiness, too. If you will excuse me, I had better let her know.'
 
-Urquhart came back in a tone which did not imply any argument. 'Let's worry about that when we have taken care of him. He must be put away somewhere quiet, somewhere the press can't get to him. He needs help, whether he wants it or not, and you must get some breathing space. You must be very careful how you decide to respond.'
+Walpole's forty-ninth successor as Prime-.Minister strode towards the Cabinet Room door for almost the last time and, with his hand on the brass handle, turned once more.
+
+'By the way, it already feels better.'
+
+￼Part Three THE DEAL
+
+MONDAY 25th OCTOBER
+
+Shortly before 10 o'clock the following morning, the members of the Cabinet assembled around the Cabinet table. They had been called individually to Downing Street rather than as a formal Cabinet, and most had been surprised to discover their colleagues also gathered. There was an air of expectation and great curiosity, and the conversation around the table while they waited for their Prime Minister was unusually muffled.
+
+As the tones of Big Ben striking the hour reached into the room, the door opened and Collingridge walked in.
+
+'Good morning, gentlemen.' His voice was unusually soft. ‘I am grateful to see you all here. I shall not detain you long.'
+
+He took his seat, and extracted a single sheet of paper from the leather bound file he was carrying. He laid it carefully on the table in front of him, and then looked slowly around at his colleagues. There was not a sound to be heard in the room.
+
+‘I am sorry I was unable to inform you that this morning's meeting was to be one of the full Cabinet. As you will shortly see, it was necessary to ensure that you could all be assembled without creating undue attention and speculation amongst the press.'
+
+He let out a long sigh, a mixture of pain and relief.
+
+‘I am going to read to you a short statement that I shall be issuing later today. At ‘I o'clock I shall be going to the Palace to convey the contents to Her Majesty. I must ask all of you, on your oaths of office, not to divulge the contents of this message to anyone before it is officially released. I must ensure Her Majesty hears it from me and not through the press. I would also ask it of each one of you as a personal favour to me’
+
+He looked slowly around the table to catch the eye of those present, all of whom nodded their assent as he did so. He picked up the sheet of paper and began to read in a slow, matter-of-fact voice. He squeezed out any trace of regret he might have felt.
+
+'Recently there has been a spate of allegations in the media about the business affairs of both me and my family, which shows no sign of abating.
+
+‘I have consistently stated, and repeat today, that I have done nothing of which I should be ashamed. I have adhered strictly to the rules and conventions relating to the conduct of the Prime Minister.
+
+The implied allegation made against me is one of the most serious kind for any holder of public office, that I have used that office and the confidential information available to me from it to enrich my family. I cannot explain the extraordinary circumstances referred to by the media which have given rise to these allegations, and I have asked the Cabinet Secretary to undertake a formal independent investigation into them.
+
+'The nature of these allegations makes it impossible for me to prove my innocence of the charge of misconduct, but I am confident that the official investigation by the Cabinet Secretary will eventually establish the full facts of the matter and my complete exoneration’
 

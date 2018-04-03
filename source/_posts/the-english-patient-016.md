@@ -1,85 +1,77 @@
 title: The English Patient 016
-date: 2015-01-24 15:44:18
+date: 2015-01-25 03:46:01
 tags: the-english-patient
 ---
 
-“We’ll bathe at Brighton; The fish we’ll frighten When we’re in.
+She loves most the wet colours of his neck when he bathes. And his chest with its sweat which her fingers grip when he is over her, and the dark, tough arms in the darkness of his tent, or one time in her room when light from the valley’s city, finally free of curfew, rose among them like twilight and lit the colour of his body.
 
-Your bathing suit so thin Will make the shellfish grin Fin to fin.
+Later she will realize he never allowed himself to be beholden to her, or her to him. She will stare at the word in
 
-“Splendid lines, and erotic, but Richard Rodgers, one sus¬pects, wanted more dignity.” “You must guess my moves, you see.”
+第69页共162页 http://www.en8848.com.cn/ 原版英语阅读网
 
-“Why don’t you guess mine?”
+￼￼￼a novel, lift it off the book and carry it to a dictionary. Beholden. To be under obligation. And he, she knows, never allowed that. If she crosses the two hundred yards of dark garden to him it is her choice, and she might find him asleep, not from a lack of love but from necessity, to be clear-minded towards the next day’s treacherous objects.
 
-“I will when you know what to do. At present I’m the only one who does.”
+He thinks her remarkable. He wakes and sees her in the spray of the lamp. He loves most her face’s smart look. Or in the evenings he loves her voice as she argues Caravaggio out of a foolishness. And the way she crawls in against his body like a saint.
 
-“I bet Kip knows.”
+They talk, the slight singsong of his voice within the canvas smell of their tent, which has been his all through the Italian campaign, which he reaches up to touch with his slight fingers as if it too belonged to his body, a khaki wing he folds over himself during the night. It is his world. She feels displaced out of Canada during these nights. He asks her why she can¬not sleep. She lies there irritated at his self-sufficiency, his ability to turn so easily away from the world. She wants a tin roof for the rain, two poplar trees to shiver outside her win¬dow, a noise she can sleep against, sleeping trees and sleeping roofs that she grew up with in the east end of Toronto and then for a couple of years with Patrick and Clara along the Skootamatta River and later Georgian Bay. She has not found a sleeping tree, even in the density of this garden.
 
-“He may know but he won’t do it.”
+“Kiss me. It’s your mouth I’m most purely in love with. Your teeth.” And later, when his head has fallen to one side, towards the air by the tent’s opening, she has whispered aloud, heard only by herself, “Perhaps we should ask Caravaggio. My father told me once that Caravaggio was a man always in love. Not just in love but always sinking within it. Always confused. Always happy. Kip? Do you hear me? I’m so happy with you. To be with you like this.”
 
-“I shall have some wine,” the English patient said, and the sapper picked up a glass of water, flung the contents through the window and poured wine for the Englishman. “This is my first drink in a year.”
+Most of all she wished for a river they could swim in. There was a formality in swimming which she assumed was like being in a ballroom. But he had a different sense of rivers, had entered the Moro in silence and pulled the harness of cables attached to the folding Bailey bridge, the bolted steel panels of it slipping into the water behind him like a creature, and the sky then had lit up with shell fire and someone was sinking beside him in mid-river. Again and again the sappers dove for the lost pulleys, grappling hooks in the water among them, mud and surface and faces lit up by phosphorus flares in the sky around them.
 
-There was a muffled noise, and the sapper turned quickly and looked out of the window, into the darkness. The others froze. It could have been a mine. He turned back to the party and said, “It’s all right, it wasn’t a mine. That seemed to come from a cleared area.”
+All through the night, weeping and shouting, they had to stop each other going crazy. Their clothes full of winter river, the bridge slowly eased into a road above their heads. And two days later another river. Every river they came to was bridge-less, as if its name had been erased, as if the sky were starless, homes doorless. The sapper units slid in with ropes, carried cables over their shoulders and spannered the bolts, oil-covered to silence the metals, and then the army marched over. Drove over the prefabricated bridge with the sappers still in the water below.
 
-第59页共162页 http://www.en8848.com.cn/ 原版英语阅读网
+So often they were caught in midstream when the shells came, flaring into mudbanks breaking apart the steel and iron into stones. Nothing would protect them then, the brown river thin as silk against metals that ripped through it.
 
-￼￼￼“Turn the record over, Kip. Now I will introduce you to ‘How Long Has This Been Going On,’ written by—” He left an opening for the English patient, who was stymied, shaking his head, grinning with the wine in his mouth. “This alcohol will probably kill me.” “Nothing will kill you, my friend. You are pure carbon.” “Caravaggio!”
+第70页共162页 http://www.en8848.com.cn/ 原版英语阅读网
 
-“George and Ira Gershwin. Listen.”
+￼￼￼He turned from that. He knew the trick of quick sleep against this one who had her own rivers and was lost from them.
 
-He and Hana were gliding to that sadness of the saxophone. He was right. The phrasing so slow, so drawn out, she could sense the musician did not wish to leave the small parlour of the introduction and enter the song, kept wanting to remain there, where the story had not yet begun, as if enamoured by a maid in the prologue. The Englishman murmured that the introductions to such songs were called “burdens.”
+Yes, Caravaggio would explain to her how she could sink into love. Even how to sink into cautious love. “I want to take you to the Skootamatta River, Kip,” she said. “I want to show you Smoke Lake. The woman my father loved lives out on the lakes, slips into canoes more easily than into a car. I miss thunder that blinks out electricity. I want you to meet Clara of the canoes, the last one in my family. There are no others now. My father forsook her for a war.”
 
-Her cheek rested against the muscles of Caravaggio’s shoul¬der. She could feel those terrible paws on her back against the clean frock, and they moved in the limited space between the bed and the wall, between bed and door, between the bed and the window alcove that Kip sat within. Every now and then as they turned she would see his face. His knees up and his arms resting on them. Or he would be looking out of the window into darkness.
+She walks towards his night tent without a false step or any hesitation. The trees make a sieve of moonlight, as if she is caught within the light of a dance hall’s globe. She enters his tent and puts an ear to his sleeping chest and listens to his beating heart, the way he will listen to a clock on a mine. Two a.m. Everyone is asleep but her.
 
-“Do any of you know a dance called the Bosphorus hug?” the Englishman asked.
+IV South Cairo 1930-1938
 
-“No such thing.”
+THERE is, after Herodotus, little interest by the Western world towards the desert for hundreds of years. From 425 B.C. to the beginning of the twentieth century there is an averting of eyes. Silence. The nineteenth century was an age of river seekers. And then in the 19205 there is a sweet postscript history on this pocket of earth, made mostly by privately funded expeditions and followed by modest lectures given at the Geographical Society in London at Kensington Gore. These lectures are given by sunburned, exhausted men who, like Conrad’s sailors, are not too comfortable with the eti¬quette of taxis, the quick, flat wit of bus conductors.
 
-Kip watched the large shadows slide over the ceiling, over the painted wall. He struggled up and walked to the English patient to fill his empty glass, and touched the rim of his glass with the bottle in a toast. West wind coming into the room. And he turned suddenly, angry. A frail scent of cordite reach¬ing him, a percentage of it in the air, and then he slipped out of the room, gesturing weariness, leaving Hana in the arms of Caravaggio.
+When they travel by local trains from the suburbs towards Knightsbridge on their way to Society meetings, they are often lost, tickets misplaced, clinging only to their old maps and carrying their lecture notes—which were slowly and painfully written—in their ever present knapsacks which will always be a part of their bodies. These men of all nations travel at that early evening hour, six o’clock, when there is the light of the solitary. It is an anonymous time, most of the city is going home. The explorers arrive too early at Kensington Gore, eat at the Lyons Corner House and then enter the Geographical Society, where they sit in the upstairs hall next to the large Maori canoe, going over their notes. At eight o’clock the talks begin.
 
-There was no light with him as he ran along the dark hall. He scooped up the satchel, was out of the house and racing down the thirty-six chapel steps to the road, just running, cancelling the thought of exhaustion from his body.
+Every other week there is a lecture. Someone will introduce the talk and someone will give thanks. The concluding speaker usually argues or tests the lecture for hard currency, is perti¬nently critical but never impertinent. The main speakers, everyone assumes, stay close to the facts, and even obsessive assumptions are presented modestly.
 
-Was it a sapper or was it a civilian? The smell of flower and herb along the road wall, the beginning stitch at his side. An accident or wrong choice. The sappers kept to themselves for the most part. They were an odd group as far as character went, somewhat like people who worked with jewels or stone, they had a hardness and clarity within them, their decisions frightening even to others in the same trade. Kip had recog¬nized that quality among gem-cutters but never in himself, though he knew others saw it there. The sappers never be¬came familiar with each other. When they talked they passed only information along, new devices, habits of the enemy. He would step into the town hall, where they were billeted, and his eyes would take in the three faces and be aware of the absence of the fourth. Or there would be four of them and in a field somewhere would be the body of an old man or a girl.
+My journey through the Libyan Desert from Sokum on the Mediterranean to El Obeid in the Sudan was made over one of the few tracks of the earth’s surface which present a number and variety of interesting geographical problems....
 
-He had learned diagrams of order when he joined the army, blueprints that became more and more complicated, like great knots or musical scores. He found out he had the skill of the three-dimensional gaze, the rogue gaze
+The years of preparation and research and fund-raising are never mentioned in these oak rooms. The previous
 
-第60页共162页 http://www.en8848.com.cn/ 原版英语阅读网
+第71页共162页 http://www.en8848.com.cn/ 原版英语阅读网
 
-￼￼￼that could look at an object or page of information and realign it, see all the false descants. He was by nature conservative but able also to imag¬ine the worst devices, the capacity for accident in a room—a plum on a table, a child approaching and eating the pit of poison, a man walking into a dark room and before joining his wife in bed brushing loose a paraffin lamp from its bracket. Any room was full of such choreography. The rogue gaze could see the buried line under the surface, how a knot might weave when out of sight. He turned away from mystery books with irritation, able to pinpoint villains with too much ease. He was most comfortable with men who had the abstract madness of autodidacts, like his mentor, Lord Suffolk, like the English patient.
+￼￼￼week’s lecturer recorded the loss of thirty people in ice in Antarctica. Similar losses in extreme heat or windstorm are announced with minimal eulogy. All human and financial behaviour lies on the far side of the issue being discussed—which is the earth’s surface and its “interesting geographical problems.”
 
-He did not yet have a faith in books. In recent days, Hana had watched him sitting beside the English patient, and it seemed to her a reversal of Kim. The young student was now Indian, the wise old teacher was English. But it was Hana in the night who stayed with the old man, who guided him over the mountains to the sacred river. They had even read that book together, Hana’s voice slow when wind flattened the candle flame beside her, the page dark for a moment.
+Can other depressions in this region, besides the much-discussed Wadi Rayan, be considered possible of utilization in connection with irrigation or drainage of the Nile Delta? Are the artesian water supplies of the oases gradually diminishing? Where shall we look for the mysterious “Zerzura”? Are there any other “lost” oases remaining to be discovered? Where are the tortoise marshes of Ptolemy?
 
-He squatted in a corner of the clanging -waiting-room, rapt from all other thoughts; hands folded in lap, and pupils con¬tracted to pin-points. In a minute—in another half second— he felt he would arrive at the solution of the tremendous puzzle...
+John Bell, director of Desert Surveys in Egypt, asked these questions in 1927. By the 19305 the papers grew even more modest. “/ should like to add a few remarks on some of the points raised in the interesting discussion on the ‘Prehistoric Geography of Kharga Oasis.’ “ By the mid-19305 the lost oasis of Zerzura was found by Ladislaus de Almasy and his companions.
 
-And in some way on those long nights of reading and listen¬ing, she supposed, they had prepared themselves for the young soldier, the boy grown up, who would join them. But it was Hana who was the young boy in the story. And if Kip was anyone, he was the officer Creighton.
+In 1939 the great decade of Libyan Desert expeditions came to an end, and this vast and silent pocket of the earth became one of the theatres of war.
 
-A book, a map of knots, a fuze board, a room of four people in an abandoned villa lit only by candlelight and now and then light from a storm, now and then the possible light from an explosion. The mountains and hills and Florence blinded without electricity. Candlelight travels less than fifty yards. From a greater distance there was nothing here that belonged to the outside world. They had celebrated in this evening’s brief dance in the English patient’s room their own simple adventures—Hana her sleep, Caravaggio his “finding” of the gramophone, and Kip a difficult defusing, though he had al¬most forgotten such a moment already. He was someone who felt uncomfortable in celebrations, in victories.
+In the arboured bedroom the burned patient views great dis¬tances. The way that dead knight in Ravenna, whose marble body seems alive, almost liquid, has his head raised upon a stone pillow, so it can gaze beyond his feet into vista. Farther than the desired rain of Africa. Towards all their lives in Cairo. Their works and days.
 
-Just fifty yards away, there had been no representation of them in the world, no sound or sight of them from the valley’s eye as Hana’s and Caravaggio’s shadows glided across the walls and Kip sat comfortably encased in the alcove and the English patient sipped his wine and felt its spirit percolate through his unused body so it was quickly drunk, his voice bringing forth the whistle of a desert fox bringing forth a flutter of the En¬glish wood thrush he said was found only in Essex, for it thrived in the vicinity of lavender and wormwood. All of the burned man’s desire was in the brain, the sapper had been thinking to himself, sitting in the stone alcove. Then he turned his head suddenly, knowing everything as he heard the sound, certain of it. He had looked back at them and for the first time in his life lied—”It’s all right, it wasn’t a mine. That seemed to come from a cleared area”—prepared to wait till the smell of the cordite reached him.
+Hana sits by his bed, and she travels like a squire beside him during these journeys.
 
-Now, hours later, Kip sits once again in the window alcove. If he could walk the seven yards across the
+In 1930 we had begun mapping the greater part of the Gilf Kebir Plateau, looking for the lost oasis that was called Zer¬zura. The City of Acacias.
 
-第61页共162页 http://www.en8848.com.cn/ 原版英语阅读网
+We were desert Europeans. John Bell had sighted the Gilf in 1917. Then Kemal el Din. Then Bagnold, who found his way south into the Sand Sea. Madox, Walpole of Desert Sur¬veys, His Excellency Wasfi Bey, Casparius the photographer, Dr. Kadar the geologist and Bermann. And the Gilf Kebir— that large plateau resting in the Libyan Desert, the size of Switzerland, as Madox liked to say—was our heart, its escarp¬ments precipitous to the east and west, the plateau sloping gradually to the north. It rose out of the desert four hundred miles west of the Nile.
 
-￼￼￼Englishman’s room and touch her he would be sane. There was so little light in the room, just the candle at the table where she sat, not reading tonight; he thought perhaps she was slightly drunk.
+For the early Egyptians there was supposedly no water west of the oasis towns. The world ended out there. The interior was waterless. But in the emptiness of deserts you are always surrounded by lost history. Tebu and Senussi tribes had roamed there possessing wells that they guarded with great secrecy. There were rumours of fertile lands that nestled within the desert’s interior. Arab writers in the thirteenth century spoke of Zerzura. “The Oasis of Little Birds.” “The City of Acacias.” In The Book of Hidden Treasures, the Kitab al Kanuz, Zerzura is depicted as a white city, “white as a dove.”
 
-He had returned from the source of the mine explosion to find Caravaggio asleep on the library sofa with the dog in his arms. The hound watched him as he paused at the open door, moving as little of its body as it had to, to acknowledge it was awake and guarding the place. Its quiet growl rising above Caravaggio’s snore.
+Look at a map of the Libyan Desert and you will see names. Kemal el Din in 1925, who, almost solitary, carried
 
-He took off his boots, tied the laces together and slung them over his shoulder as he went upstairs. It had started to rain and he needed a tarpaulin for his tent. From the hall he saw the light still on in the English patient’s room.
+第72页共162页 http://www.en8848.com.cn/ 原版英语阅读网
 
-She sat in the chair, one elbow on the table where the low candle sprayed its light, her head leaning back. He lowered his boots to the floor and came silently into the room, where the party had been going on three hours earlier. He could smell alcohol in the air. She put her fingers to her lips as he entered and then pointed to the patient. He wouldn’t hear Kip’s silent walk. The sapper sat in the well of the window again. If he could walk across the room and touch her he would be sane. But between them lay a treacherous and com¬plex journey. It was a very wide world. And the Englishman woke at any sound, the hearing aid turned to full level when he slept, so he could be secure in his own awareness. The girl’s eyes darted around and then were still when she faced Kip in the rectangle of window.
+￼￼￼out the first great modern expedition. Bagnold 1930-1932. Almasy-Madox 1931-1937. Just north of the Tropic of Cancer.
 
-He had found the location of the death and what was left there and they had buried his second-in-command, Hardy. And afterwards he kept thinking of the girl that afternoon, suddenly terrified for her, angry at her for involving herself. She had tried to damage her life so casually. She stared. Her last communication had been the finger to her lips. He leaned over and wiped the side of his cheek against the lanyard on his shoulder.
+We were a small clutch of a nation between the wars, map¬ping and re-exploring. We gathered at Dakhla and Kufra as if they were bars or cafes. An oasis society, Bagnold called it. We knew each other’s intimacies, each other’s skills and weaknesses. We forgave Bagnold everything for the way he wrote about dunes. “The grooves and the corrugated sand resem¬ble the hollow of the roof of a dog’s mouth.” That was the real Bagnold, a man who would put his inquiring hand into the jaws of a dog.
 
-He had walked back through the village, rain falling into pollarded trees of the town square untrimmed since the start of the war, past the strange statue of two men shaking hands on horseback. And now he was here, the candlelight swaying, altering her look so he could not tell what she thought. Wis¬dom or sadness or curiosity.
+1930. Our first journey, moving south from Jaghbub into the desert among the preserve of Zwaya and Majabra’s tribes. A seven-day journey to El Taj. Madox and Bermann, four others. Some camels a horse and a dog. As we left they told us the old joke. “To start a journey in a sandstorm is good luck.”
 
-If she had been reading or if she had been bending over the Englishman, he would have nodded to her and probably left, but he is now watching Hana as someone young and alone. Tonight, gazing at the scene of the mine blast, he had begun to fear her presence during the afternoon dismantling. He had to remove it, or she would be with him each time he ap¬proached a fuze. He would be pregnant with her. When he worked, clarity and music filled him, the human world extin¬guished. Now she was within him or on his shoulder, the way he had once seen a live goat being carried by an officer out of a tunnel they were attempting to flood.
-
-No.
-
-That wasn’t true. He wanted Hana’s shoulder, wanted to place his palm over it as he had done in the sunlight when she slept and he had lain there as if in someone’s rifle sights, awkward with her. Within the imaginary painter’s landscape. He did not want comfort but he wanted to surround the girl with it, to guide her from this room. He refused to believe in his own weaknesses, and with her he had not found a weak¬ness to fit himself
-
-第62页共162页 http://www.en8848.com.cn/ 原版英语阅读网
-
-￼￼￼against. Neither of them was willing to reveal such a possibility to the other. Hana sat so still. She looked at him, and the candle wavered and altered her look. He was unaware that for her he was just a silhouette, his slight body and his skin part of the darkness.
+We camped the first night twenty miles south. The next morning we woke and came out of our tents at five. Too cold to sleep. We stepped towards the fires and sat in their light in the larger darkness. Above us were the last stars. There would be no sunrise for another two hours. We passed around hot glasses of tea. The camels were being fed, half asleep, chewing the dates along with the date stones. We ate breakfast and then drank three more glasses of tea.
 

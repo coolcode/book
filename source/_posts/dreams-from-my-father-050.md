@@ -1,63 +1,101 @@
 title: Dreams from My Father 050
-date: 2015-01-24 15:43:45
+date: 2015-01-25 03:45:27
 tags: dreams-from-my-father
 ---
 
-black men; that mystery was part of what had brought me to Chicago. And now, now that I was leaving Chicago, I wondered if I understood them any better than before.
+But of course I wasn’t either of those things. Even in the States, wealth involved trade-offs for those who weren’t born to it, the same sorts of trade-offs that I could see Auma now making as she tried, in her own way, to fulfill the family’s expectations. She was working two jobs that summer, teaching German classes to Kenyan businessmen along with her job at the university. With the money she saved, she wanted not only to fix up Granny’s house in Alego but also to buy a bit of land around Nairobi, something that would appreciate in value, a base from which to build. She had plans, schedules, budgets, and deadlines-all the things she’d learned were required to negotiate a modern world. The problem was that her schedules also meant begging off from family affairs; her budgets meant saying no to the constant requests for money that came her way. And when this happened-when she insisted on going home before Jane served dinner because things had started two hours late, or when she refused to let eight people pile into her VW because it was designed for four and they would tear up the seats-the looks of unspoken hurt, barely distinguishable from resentment, would flash across the room. Her restlessness, her independence, her constant willingness to project into the future-all of this struck the family as unnatural somehow. Unnatural...and un-African.
 
-I hadn’t told anyone except Johnnie about my decision. I figured there would be time for an announcement later; I wouldn’t even hear back from the law schools until January. Our new youth program would be up and running by then; I would have raised next year’s budget, hopefully brought in a few more churches. I had told Johnnie only because I needed to know whether he’d be willing to stay on and take my place as lead organizer-and maybe, too, because he was my friend and I needed to explain myself. Except Johnnie hadn’t seen the need for explanations. The minute I told him the schools to which I’d applied-Harvard, Yale, Stanford-he had grinned and slapped me on the back.
+It was the same dilemma that old Frank had posed to me the year I left Hawaii, the same tensions that certain children in Altgeld might suffer if they took too much pleasure in doing their schoolwork, the same perverse survivor’s guilt that I could expect to experience if I ever did try to make money and had to pass the throngs of young black men on the corner as I made my way to a downtown office. Without power for the group, a group larger, even, than an extended family, our success always threatened to leave others behind. And perhaps it was that fact that left me so unsettled-the fact that even here, in Africa, the same maddening patterns still held sway; that no one here could tell me what my blood ties demanded or how those demands could be reconciled with some larger idea of human association. It was as
 
-“I knew it!” he shouted.
+if we-Auma, Roy, Bernard, and I-were all making it up as we went along. As if the map that might have once measured the direction and force of our love, the code that would unlock our blessings, had been lost long ago, buried with the ancestors beneath a silent earth.
 
-“Knew what?”
+Toward the end of my first week in Nairobi, Zeituni took me to visit our other aunt, Sarah. Auma had remained unwilling to go, but because it turned out that her mechanic lived near Sarah, she offered to give us a ride to her garage; from there, she said, we could travel by foot. On Saturday morning, Auma and I picked up Zeituni and headed east, past cinder-block apartments and dry, garbage-strewn lots, until we finally came to the rim of a wide valley known as Mathare. Auma pulled off to the shoulder and I looked out the window to see the shantytown below, miles and miles of corrugated rooftops shimmering under the sun like wet lily pads, buckling and dipping in an unbroken sequence across the valley floor.
 
-“That it was just a matter of time, Barack. Before you were outta here.”
+“How many people live there?” I asked.
 
-“Why’d you think that?”
+Auma shrugged and turned to our aunt. “What would you say, Auntie? Half a million, maybe?”
 
-Johnnie shook his head and laughed. “Damn, Barack...’cause you got options, that’s why. ’Cause you can leave. I
+Zeituni shook her head. “That was last week. This week, it must be one million.”
 
-mean, I know you’re a conscientious brother and all that, but when somebody’s got a choice between Harvard and Roseland, it’s only so long somebody’s gonna keep choosing Roseland.” Again he shook his head. “Harvard! Goddamn. I just hope you remember your friends when you up in that fancy office downtown.”
+Auma started the car back up. “Nobody knows for sure, Barack. The place is growing all the time. People come in
 
-For some reason, Johnnie’s laughter had made me defensive. I insisted that I would be coming back to the neighborhood. I told him that I didn’t plan on being dazzled by the wealth and power that Harvard represented, and that he shouldn’t be either. Johnnie put his hands up in mock surrender.
+from the countryside looking for work and end up staying permanently. For a while, the city council tried to tear the settlement down. They said it was a health hazard-an affront to Kenya’s image, you see. Bulldozers came, and people lost what little they had. But of course, they had nowhere else to go. As soon as the bulldozers left, people rebuilt just like before.”
 
-“Hey, you don’t need to be telling me all this. I ain’t the one going nowhere.”
+We came to a stop in front of a slanting tin shed where a mechanic and several apprentices emerged to look Auma’s car over. Promising to be back in an hour, Zeituni and I left Auma at the garage and began our walk down a wide, unpaved road. It was already hot, the road bereft of shade; on either side were rows of small hovels, their walls a patchwork of wattle, mud, pieces of cardboard, and scavenged plywood. They were neat, though, the packed earth in front of each home cleanly swept, and everywhere we could see tailors and shoe repairers and furniture makers plying their trades out of roadside stalls, and women and children selling vegetables from wobbly wood tables.
 
-I grew quiet, embarrassed by my outburst. “Yeah, well...I’m just saying that I’ll be back, that’s all. I don’t want you or the leaders to get the wrong idea.”
+Eventually we came to one edge of Mathare, where a series of concrete buildings stood along a paved road. The buildings were eight, maybe twelve stories tall, and yet curiously unfinished, the wood beams and rough cement exposed to the elements, like they’d suffered an aerial bombardment. We entered one of them, climbed a narrow flight of stairs, and emerged at the end of a long unlit hallway, at the other end of which we saw a teenage girl hanging out clothes to dry on a small cement patio. Zeituni went to talk to the girl, who led us wordlessly to a low, scuffed door. We knocked, and a dark, middle-aged woman appeared, short but sturdily built, with hard, glassy eyes set in a wide, rawboned face. She took my hand and said something in Luo.
 
-Johnnie smiled gently. “Ain’t nobody gonna get the wrong idea, Barack. Man, we’re just proud to see you succeed.”
+“She says she is ashamed to have her brother’s son see her in such a miserable place,” Zeituni translated.
 
-The sun was now slipping behind a cloud; a couple of the old cardplayers pulled on the windbreakers they had hung on the backs of their chairs. I lit a cigarette and tried to decipher that conversation with Johnnie. Had he doubted my intentions? Or was it just me that mistrusted myself? It seemed like I had gone over my decision at least a hundred times. I needed a break, that was for sure. I wanted to go to Kenya: Auma was already back in Nairobi, teaching at the university for a year; it would be an ideal time for an extended visit.
+We were shown into a small room, ten feet by twelve, large enough to fit a bed, a dresser, two chairs, and a sewing machine. Zeituni and I each took one of the chairs, and the young woman who had shown us Sarah’s room returned with two warm sodas. Sarah sat on the bed and leaned forward to study my face. Auma had said that Sarah knew some
 
-And I had things to learn in law school, things that would help me bring about real change. I would learn about interest rates, corporate mergers, the legislative process; about the way businesses and banks were put together; how real estate ventures succeeded or failed. I would learn power’s currency in all its intricacy and detail, knowledge that would have compromised me before coming to Chicago but that I could now bring back to where it was needed, back to Roseland, back to Altgeld; bring it back like Promethean fire.
+English, but she spoke mostly in Luo now. Even without the benefit of Zeituni’s translation, I guessed that she wasn’t happy.
 
-That’s the story I had been telling myself, the same story I imagined my father telling himself twenty-eight years before, as he had boarded the plane to America, the land of dreams. He, too, had probably believed he was acting out some grand design, that he wasn’t simply fleeing from possible inconsequence. And, in fact, he had returned to Kenya, hadn’t he? But only as a divided man, his plans, his dreams, soon turned to dust....
+“She wants to know why you have taken so long to visit her,” Zeituni explained. “She says that she is the eldest child of your grandfather, Hussein Onyango, and that you should have come to see her first.”
 
-Would the same thing happen to me? Maybe Johnnie was right; maybe once you stripped away the rationalizations, it always came down to a simple matter of escape. An escape from poverty or boredom or crime or the shackles of your skin. Maybe, by going to law school, I’d be repeating a pattern that had been set in motion centuries before, the moment white men, themselves spurred on by their own fears of inconsequence, had landed on Africa’s shores, bringing with them their guns and blind hunger, to drag away the conquered in chains. That first encounter had redrawn the map of black life, recentered its universe, created the very idea of escape-an idea that lived on in Frank and those other old black men who had found refuge in Hawaii; in green-eyed Joyce back at Occidental, just wanting to be an individual; in Auma, torn between Germany and Kenya; in Roy, finding out that he couldn’t start over. And here, in the South Side, among members of Reverend Philips’s church, some of whom had probably marched alongside Dr. King, believing then that they marched for a higher purpose, for rights and for principles and for all God’s children, but who at some point had realized that power was unyielding and principles unstable, and that even after laws were passed and lynchings ceased, the closest thing to freedom would still involve escape, emotional if not physical, away from ourselves, away from what we knew, flight into the outer reaches of the white man’s empire-or closer into its bosom.
+“Tell her I meant no disrespect,” I said, looking at Sarah but not sure what she understood. “Everything’s been so busy since my arrival-it was hard to come sooner.”
 
-The analogies weren’t exactly right. The relationship between black and white, the meaning of escape, would never be quite the same for me as it had been for Frank, or for the Old Man, or even for Roy. And as segregated as Chicago was, as strained as race relations were, the success of the civil rights movement had at least created some overlap between communities, more room to maneuver for people like me. I could work in the black community as an organizer or a lawyer and still live in a high rise downtown. Or the other way around: I could work in a blue-chip law firm but live in the South Side and buy a big house, drive a nice car, make my donations to the NAACP and Harold’s campaign, speak at local high schools. A role model, they’d call me, an example of black male success.
+Sarah’s tone became sharp. “She says that the people you stay with must be telling you lies.”
 
-Was there anything wrong with that? Johnnie obviously didn’t think so. He had smiled, I realized now, not because he judged me but precisely because he didn’t; because he, like my leaders, didn’t see anything wrong with such success. That was one of the lessons I’d learned these past two and a half years, wasn’t it?-that most black folks weren’t like the father of my dreams, the man in my mother’s stories, full of high-blown ideals and quick to pass judgment. They were more like my stepfather, Lolo, practical people who knew life was too hard to judge each other’s choices, too messy to live according to abstract ideals. No one expected self-sacrifice from me-not Rafiq, who of late had been pestering me about helping him raise money from white foundations for his latest scheme; not Reverend Smalls, who had decided to run for the state senator’s seat and was anxious for our support. As far as they were concerned, my color had always been a sufficient criterion for community membership, enough of a cross to bear.
+“Tell her that I’ve heard nothing said against her. Tell her that the dispute about the Old Man’s estate has just made Auma uncomfortable about coming here.”
 
-Was that all that had brought me to Chicago, I wondered-the desire for such simple acceptance? That had been part of it, certainly, one meaning to community. But there had been another meaning, too, a more demanding impulse. Sure, you could be black and still not give a damn about what happened in Altgeld or Roseland. You didn’t have to care about boys like Kyle, young mothers like Bernadette or Sadie. But to be right with yourself, to do right by others, to lend meaning to a community’s suffering and take part in its healing-that required something more. It required the kind of commitment that Dr. Collier made every day out in Altgeld. It required the kind of sacrifices a man like Asante had been willing to make with his students.
+Sarah snorted after the translation and started up again, her voice rumbling against the close walls. When she finally stopped, Zeituni remained quiet.
 
-It required faith. I glanced up now at the small, second-story window of the church, imagining the old pastor inside, drafting his sermon for the week. Where did your faith come from? he had asked. It suddenly occurred to me that I didn’t have an answer. Perhaps, still, I had faith in myself. But faith in one’s self was never enough.
+“What’d she say, Zeituni?”
 
-I stamped out my cigarette and started the car. I looked into my rearview mirror and, driving off, watched the old, silent cardplayers recede from my sight.
+Zeituni’s eyes stayed on Sarah as she answered my question. “She says the trial is not her fault. She says that it’s Kezia’s doing-Auma’s mum. She says that the children who claim to be Obama’s are not Obama’s. She says they have taken everything of his and left his true people living like beggars.”
 
-With Johnnie handling the organization’s day-to-day activities, I met with more black ministers in the area, hoping to convince them to join the organization. It was a slow process, for unlike their Catholic counterparts, most black pastors were fiercely independent, secure in their congregations and with little obvious need for outside assistance. Whenever I first reached them on the phone, they would often be suspicious or evasive, uncertain as to why this Muslim-or worse yet, this Irishman, O’Bama-wanted a few minutes of their time. And a handful I met with conformed to the prototypes found in Richard Wright novels or Malcolm X speeches: sanctimonious graybeards preaching pie-in-the-sky, or slick Holy Rollers with flashy cars and a constant eye on the collection plate.
+Sarah nodded, and her eyes began to smolder. “Yes, Barry,” she said suddenly in English. “It is me who looks after your father when he is a small boy. My mother, Akumu, is also your father’s mother. Akumu is your true grandmother, not this one you call Granny. Akumu, the woman who gives your father life-you should be helping her. And me, your brother’s sister. Look how I live. Why don’t you help us, instead of these others?”
 
-For the most part, though, once I’d had a chance to meet these men face-to-face, I would come away impressed. As a group, they turned out to be thoughtful, hardworking men, with a confidence, a certainty of purpose, that made them by far the best organizers in the neighborhood. They were generous with their time, interested in the issues, surprisingly willing to open themselves to my scrutiny. One minister talked about a former gambling addiction. Another told me about his years as a successful executive and a secret drunk. They all mentioned periods of religious doubt; the corruption of the world and their own hearts; the striking bottom and shattering of pride; and then finally the resurrection of self, a self alloyed to something larger. That was the source of their confidence, they insisted: their personal fall, their subsequent redemption. It was what gave them the authority to preach the Good News.
+Before I could answer, Zeituni and Sarah began to argue with each other in Luo. Eventually, Zeituni stood up and straightened her skirt. “We should go now, Barry.”
 
-Had I heard the Good News? some of them would ask me.
+I began to rise out of my chair, but Sarah took my hand in both of hers, her voice softening.
 
-Do you know where it is that your faith is coming from?
+“Will you give me something? For your grandmother?”
 
-When I asked for other pastors to talk to, several gave me the name of Reverend Wright, the same minister Reverend
+I reached for my wallet and felt the eyes of both aunts as I counted out the money I had on me-perhaps thirty dollars’
 
-Philips had mentioned that day at his church. Younger ministers seemed to regard Reverend Wright as a mentor of sorts, his church a model for what they themselves hoped to accomplish. Older pastors were more cautious with their praise, impressed with the rapid growth of Trinity’s congregation but somewhat scornful of its popularity among young black professionals. (“A buppie church,” one pastor would tell me.)
+worth of shillings. I pressed them into Sarah’s dry, chapped hands, and she quickly slipped the money down the front of her blouse before clutching my hand again.
 
-Toward the end of October I finally got a chance to pay Reverend Wright a visit and see the church for myself. It sat flush on Ninety-fifth Street in a mostly residential neighborhood a few blocks down from the Louden Home projects. I had expected something imposing, but it turned out to be a low, modest structure of red brick and angular windows, landscaped with evergreens and sculpted shrubs and a small sign spiked into the grass-FREE SOUTH AFRICA in simple block letters. Inside, the church was cool and murmured with activity. A group of small children waited to be picked up from day care. A crew of teenage girls passed by, dressed for what looked like an African dance class. Four elderly women emerged from the sanctuary, and one of them shouted “God is good!” causing the others to respond giddily “All the time!”
+“Stay here, Barry,” Sarah said. “You must meet-”
 
-Eventually a pretty woman with a brisk, cheerful manner came up and introduced herself as Tracy, one of Reverend Wright’s assistants. She said that the reverend was running a few minutes late and asked if I wanted some coffee. As I followed her back into a kitchen toward the rear of the church, we began to chat, about the church mostly, but also a little about her. It had been a difficult year, she said: Her husband had recently died, and in just a few weeks she’d be moving out to the suburbs. She had wrestled long and hard with the decision, for she had lived most of her life in the city. But she had decided the move would be best for her teenage son. She began to explain how there were a lot more black families in the suburbs these days; how her son would be free to walk down the street without getting harassed; how the school he’d be attending had music courses, a full band, free instruments and uniforms.
+“You can come back later, Barry,” Zeituni said. “Let’s go.”
+
+Outside, a hazy yellow light bathed the road; my clothes hung limp against my body in the windless heat. Zeituni was
+
+quiet now, visibly upset. She was a proud woman, this aunt; the scene with Sarah must have embarrassed her. And then, that thirty dollars-Lord knows, she could have used it herself....
+
+We had walked for ten minutes before I asked Zeituni what she and Sarah had been arguing about.
+
+“Ah, it’s nothing, Barry. This is what happens to old women who have no husbands.” Zeituni tried to smile, but the tension creased the corners of her mouth.
+
+“Come on, Auntie. Tell me the truth.”
+
+Zeituni shook her head. “I don’t know the truth. At least not all of it. I know that even growing up, Sarah was always closer to her real mum, Akumu. Barack, he cared only for my mum, Granny, the one who raised them after Akumu left.”
+
+“Why did Akumu leave?”
+
+“I’m not sure. You will have to ask Granny about that.”
+
+Zeituni signaled for us to cross the street, then resumed talking. “You know, your father and Sarah were actually very
+
+similar, even though they did not always get along. She was smart like him. And independent. She used to tell me, when we were children, that she wanted to get an education so that she would not have to depend on any man. That’s why she ended up married to four different husbands. None of them lasted. The first one died, but the others she left, because they were lazy, or tried to abuse her. I admire her for this. Most women in Kenya put up with anything. I did, for a long time. But Sarah also paid a price for her independence.”
+
+Zeituni wiped the sweat on her forehead with the back of her hand. “Anyway, after Sarah’s first husband died, she decided that your father should support her and her child, since he had received all the education. That’s why she disliked Kezia and her children. She thought Kezia was just a pretty girl who wanted to take everything. You must understand, Barry-in Luo custom, the male child inherits everything. Sarah feared that once your grandfather died, everything would belong to Barack and his wives, and she would be left with nothing.”
+
+I shook my head. “That’s no excuse for lying about who the Old Man’s children are.”
+
+“You’re right. But...”
+
+“But what?”
+
+Zeituni stopped walking and turned to me. She said, “After your father went off to live with his American wife,
+
+Ruth...well, he would go to Kezia sometimes. You must understand that traditionally she was still his wife. It was during such a visit that Kezia became pregnant with Abo, the brother you haven’t met. The thing was, Kezia also lived with another man briefly during this time. So when she became pregnant again, with Bernard, no one was sure who-” Zeituni stopped, letting the thought finish itself.
+
+“Does Bernard know about this?”
+
+“Yes, he knows by now. You understand, such things made no difference to your father. He would say that they were all his children. He drove this other man away, and would give Kezia money for the children whenever he could. But once he died, there was nothing to prove that he’d accepted them in this way.”
+
+We turned a corner onto a busier road. In front of us, a pregnant goat bleated as it scuttered out of the path of an oncoming matatu. Across the way, two little girls in dusty red school uniforms, their round heads shaven almost clean, held hands and sang as they skipped across a gutter. An old woman with her head under a faded shawl motioned to us to look at her wares: two margarine tins of dried beans, a neat stack of tomatoes, dried fish hanging from a wire like a chain of silver coins. I looked into the old woman’s face, drawn beneath the shadows. Who was this woman? I wondered. My grandmother? A stranger? And what about Bernard-should my feelings for him somehow be different now? I looked over at a bus stop, where a crowd of young men were streaming out into the road, all of them tall and black and slender, their bones pressing against their shirts. I suddenly imagined Bernard’s face on all of them, multiplied across the landscape, across continents. Hungry, striving, desperate men, all of them my brothers....
 

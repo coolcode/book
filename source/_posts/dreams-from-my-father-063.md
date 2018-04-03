@@ -1,89 +1,69 @@
 title: Dreams from My Father 063
-date: 2015-01-24 15:43:32
+date: 2015-01-25 03:45:14
 tags: dreams-from-my-father
 ---
 
-I tossed a stick into the fire. “Attitudes aren’t so different in America,” I told Francis.
+Later, when Barack fell from power, he would try to hide his problems from the old man. He continued to bring gifts that he could no longer afford, although we noticed that he arrived in a taxi instead of in his own car. Only to me would he confide his unhappiness and disappointments. I would tell him he was too stubborn in his dealings with the government. He would talk to me about principles, and I would tell him that his principles weighed heavily on his children. He would say I didn’t understand, just as his father had said to me. So I stopped giving advice and just listened.
 
-“You are probably right,” he said. “But you see, a rich country like America can perhaps afford to be stupid.”
+That is what Barack needed most, I think-someone to listen to him. Even after things had improved again for him, and he had built this house for us, he remained heavy-hearted. With his children, he behaved just as Onyango had behaved towards him. He saw that he was pushing them away, but there was nothing he could do. He still liked to boast and laugh and drink with the men. But his laughter was empty. I remember the last time he visited Onyango before the old man died. The two of them sat in their chairs, facing each other and eating their food, but no words passed between them. A few months later, when Onyango finally went to join his ancestors, Barack came home to make all the
 
-At that moment, two Masai approached the fire. Francis welcomed them, and as they sat down on one of the benches,
+arrangements. He said very little, and it is only when he sorted through a few of the old man’s belongings that I saw him begin to weep.
 
-he explained that they would provide security during the night. They were quiet, handsome men, their high cheekbones accentuated by the fire, their lean limbs jutting out of their blood-red shukas, their spears stuck into the ground before them, casting long shadows toward the trees. One of them, who said his name was Wilson, spoke Swahili, and he told us that he lived in a boma a few miles to the east. His silent companion began to pan the darkness with the beam of his flashlight, and Auma asked if the camp had ever been attacked by animals. Wilson grinned.
+Granny stood up and brushed the grass off her skirt. The yard was hushed, the silence broken only by a bird’s anxious trill. “It’s going to rain,” she said, and we all gathered up the mats and cups and carried them into the house.
 
-“Nothing serious,” he said. “But if you have to go to the bathroom at night, you should call one of us to go with you.”
+Once inside, I asked Granny if she had anything left of the Old Man’s or our grandfather’s. She went into her bedroom, sorting through the contents of an old leather trunk. A few minutes later, she emerged with a rust-colored book the size of a passport, along with a few papers of different colors, stapled together and chewed at an angle along one side.
 
-Francis began to question the men about the movement of various animals, and I drifted away from the fire to glance up at the stars. It had been years since I’d seen them like this; away from the lights of the city, they were thick and
+“I’m afraid this is all I could find,” she said to Auma. “The rats got to the papers before I had a chance to put them away.”
 
-round and bright as jewels. I noticed a patch of haze in the otherwise clear sky and stepped farther away from the fire, thinking perhaps it was the smoke, then deciding that it must be a cloud. I was wondering why the cloud hadn’t moved when I heard the sound of footsteps behind me.
+Auma and I sat down and set the book and papers on the low table in front of us. The binding on the red book had crumbled away, but the cover was still legible: Domestic Servant’s Pocket Register, it read, and in smaller letters, Issued under the Authority of the Registration of Domestic Servant’s Ordinance, 1928 , Colony and Protectorate of Kenya. On the book’s inside cover, we found a two-shilling stamp above Onyango’s left and right thumbprints. The swirls were still clear, like an imprint of coral. The box was empty where the photograph once had been.
 
-“I believe that’s the Milky Way,” Mr. Wilkerson said, looking up at the sky.
+The preamble explained: The object of this Ordinance is to provide every person employed in a domestic capacity with a record of such employment, and to safeguard his or her interests as well as to protect employers against the employment of persons who have rendered themselves unsuitable for such work.
 
-“No kidding.”
+The term servant was defined: cook, house servant, waiter, butler, nurse, valet, bar boy, footmen, or chauffeur, or washermen. The rules governing the carrying of such passbooks: servants found to be working without such books, or in any way injuring such books, are liable to a fine not exceeding one hundred shillings or to imprisonment not exceeding six months or to both. And then, the particulars of said Registered Servant, filled out in the elegant, unhurried script of a nameless clerk:
 
-He held up his hand and traced out the constellations for me, the points of the Southern Cross. He was a slight, soft-
+Name: Hussein II Onyango.
 
-spoken man with round glasses and pasty blond hair. Initially I had guessed he spent his life indoors, an accountant or professor. I noticed, though, as the day had passed, that he possessed all sorts of practical knowledge, the kinds of things I had never got around to knowing but wished that I had. He could talk at length with Francis about Land Rover engines, had his tent up before I drove in my first stake, and seemed to know the name of every bird and every tree that we saw.
+Native Registration Ordinance No.: Rwl A NBI 0976717. Race or Tribe: Ja’Luo.
 
-I wasn’t surprised, then, when he told me that he had spent his childhood in Kenya, on a tea plantation in the White Highlands. He seemed reluctant to talk about the past; he said only that his family had sold the land after independence and had moved back to England, to settle in a quiet suburb of London. He had gone to medical school, then practiced with the National Health Service in Liverpool, where he had met his wife, a psychiatrist. After a few years, he had convinced her to return with him to Africa. They had decided against living in Kenya, where there was a surplus of doctors relative to the rest of the continent, and instead settled on Malawi, where they both had worked under government contract for the past five years.
+Usual Place of Residence When Not Employed: Kisumu. Sex: M.
 
-“I oversee eight doctors for a region with a population of half a million,” he told me now. “We never have enough supplies-at least half of what the government purchases ends up on the black market. So we can only focus on the basic, which in Africa is really what’s needed anyway. People die from all sorts of preventable disease. Dysentery. Chicken pox. And now AIDS-the infection rate in some villages has reached fifty percent. It can be quite maddening.”
+Age: 35.
 
-The stories were grim, but as he continued to tell me the tasks of his life-digging wells, training outreach workers to inoculate children, distributing condoms-he seemed neither cynical nor sentimental. I asked him why he thought he had come back to Africa and he answered without a pause, as if he’d heard the question many times.
+Height and Build: 6'0" Medium.
 
-“It’s my home, I suppose. The people, the land...” He took off his glasses and wiped them with a handkerchief. “It’s funny, you know. Once you’ve lived here for a time, the life in England seems terribly cramped. The British have so much more, but seem to enjoy things less. I felt a foreigner there.”
+Complexion: Dark.
 
-He put his glasses back on and shrugged. “Of course, I know that in the long run I need to be replaced. That’s part of my job-making myself unnecessary. The Malawian doctors I work with are excellent, really. Competent. Dedicated. If we could just build a training hospital, some decent facilities, we could triple their number in no time. And then...”
+Nose: Flat.
 
-“And then?”
+Mouth: Large.
 
-He turned toward the campfire, and I thought his voice began to waver. “Perhaps I can never call this place home,” he said. “Sins of the father, you know. I’ve learned to accept that.” He paused for a moment, then looked at me.
+Hair: Curly.
 
-“I do love this place, though,” he said before walking back to his tent.
+Teeth: Six Missing.
 
-Dawn. To the east, the sky lightens above a black grove of trees, deep blue, then orange, then creamy yellow. The clouds lose their purple tint slowly, then dissipate, leaving behind a single star. As we pull out of camp, we see a caravan of giraffe, their long necks at a common slant, seemingly black before the rising red sun, strange markings against an ancient sky.
+Scars, Tribal Marks, or Other Peculiarities: None.
 
-It was like that for the rest of the day, as if I were seeing as a child once again, the world a pop-up book, a fable, a painting by Rousseau. A pride of lions, yawning in the broken grass. Buffalo in the marshes, their horns like cheap wigs, tick birds scavenging off their mudcrusted backs. Hippos in the shallow riverbeds, pink eyes and nostrils like marbles bobbing on the water’s surface. Elephants fanning their vegetable ears.
+Toward the back of the book, we found the particulars of employment, signed and testified to by various employers. Capt. C. Harford of Nairobi’s Government House said that Onyango performed his duties as personal boy with admirable diligence. Mr. A. G. Dickson found his cooking excellent-he can read and write English and follows any recipes...apart from other things his pastries are excellent. He no longer needed Onyango’s services since I am no longer on Safari. Dr. H. H. Sherry suggested that Onyango is a capable cook but the job is not big enough for him. On the other hand, Mr. Arthur W. H. Cole of the East Africa Survey Group says that after a week on the job, Onyango was found to be unsuitable and certainly not worth 60 shillings per month.
 
-And most of all the stillness, a silence to match the elements. At twilight, not far from our camp, we came upon a tribe of hyenas feeding on the carcass of a wildebeest. In the dying orange light they looked like demon dogs, their eyes like clumps of black coal, their chins dripping with blood. Beside them, a row of vultures waited with stern, patient gazes, hopping away like hunchbacks whenever one of the hyenas got too close. It was a savage scene, and we stayed there for a long time, watching life feed on itself, the silence interrupted only by the crack of bone or the rush of wind, or the hard thump of a vulture’s wings as it strained to lift itself into the current, until it finally found the higher air and those long and graceful wings became motionless and still like the rest. And I thought to myself: This is what Creation looked like. The same stillness, the same crunching of bone. There in the dusk, over that hill, I imagined the first man stepping forward, naked and rough-skinned, grasping a chunk of flint in his clumsy hand, no words yet for the fear, the anticipation, the awe he feels at the sky, the glimmering knowledge of his own death. If only we could remember that first common step, that first common word-that time before Babel.
+We moved to the stack of letters. They were from our father, addressed to various universities in the States. There were more than thirty of them, to the presidents of Morgan State, Santa Barbara Junior College, San Francisco State.
 
-At night, after dinner, we spoke further with our Masai guardsmen. Wilson told us that both he and his friend had recently been moran, members of the bachelor class of young warriors who were at the center of the Masai legend. They had each killed a lion to prove their manhood, had participated in numerous cattle raids. But now there were no wars, and even cattle raids had become complicated-only last year, another friend had been shot by a Kikuyu rancher. Wilson had finally decided that being a moran was a waste of time. He had gone to Nairobi in search of work, but he had little schooling and had ended up as a security guard at a bank. The boredom drove him crazy, and eventually he had returned to the valley to marry and tend to his cattle. Recently one of the cattle had been killed by a lion, and although it was illegal now, he and four others had hunted the lion into the preserve.
+Dear President Calhoun, one letter began. I have heard of your college from Mrs. Helen Roberts of Palo Alto, California, who is now in Nairobi here. Mrs. Roberts, knowing how much desirous I am to further my studies in the United States of America, has asked me to apply to your esteemed college for admission. I shall therefore be very much pleased if you will kindly forward me your application form and information regarding the possibility of such scholarships as you may be aware of. Attached to several letters were recommendations from Miss Elizabeth Mooney, a literacy specialist from Maryland. It is not possible to obtain Mr. O’Bama’s school transcripts, she wrote, since he has been out of school for some years. However, she expressed confidence in our father’s talents, noting that she had observed him making use of algebra and geometry. She added that there was a great need in Kenya for capable and dedicated teachers and that, given Mr. O’Bama’s desire to be of service to his country, he should be given a chance, perhaps on a one-year basis.
 
-“How do you kill a lion?” I asked.
+This was it, I thought to myself. My inheritance. I rearranged the letters in a neat stack and set them under the registry book. Then I went out into the backyard. Standing before the two graves, I felt everything around me-the cornfields, the mango tree, the sky-closing in, until I was left with only a series of mental images, Granny’s stories come to life.
 
-“Five men surround it and throw their spears,” Wilson said. “The lion will choose one man to pounce. That man, he curls under his shield while the other four finish the job.”
+I see my grandfather, standing before his father’s hut, a wiry, grim-faced boy, almost ridiculous in his oversized trousers and his buttonless shirt. I watch his father turn away from him and hear his brothers laugh. I feel the heat pour down his brow, the knots forming in his limbs, the sudden jump in his heart. And as his figure turns and starts back down the road of red earth, I know that for him the path of his life is now altered irreversibly, completely.
 
-“It sounds dangerous,” I said stupidly.
+He will have to reinvent himself in this arid, solitary place. Through force of will, he will create a life out of the scraps of an unknown world, and the memories of a world rendered obsolete. And yet, as he sits alone in a freshly scrubbed hut, an old man now with milky eyes, I know that he still hears his father and brothers laughing behind him. He still hears the clipped voice of a British captain, explaining for the third and last time the correct proportion of tonic to gin. The nerves in the old man’s neck tighten, the rage builds-he grabs his stick to hit at something, anything. Until finally his grip weakens with the realization that for all the power in his hands and the force of his will, the laughter, the rebukes, will outlast him. His body goes slack in the chair. He knows that he will not outlive a mocking fate. He waits to die, alone.
 
-Wilson shrugged. “Usually there are only scratches. But sometimes only four will come back.”
+The picture fades, replaced by the image of a nine-year-old boy-my father. He’s hungry, tired, clinging to his sister’s hand, searching for the mother he’s lost. The hunger is too much for him, the exhaustion too great; until finally the slender line that holds him to his mother snaps, sending her image to float down, down into the emptiness. The boy starts to cry; he shakes off his sister’s hand. He wants to go home, he shouts, back to his father’s house. He will find a new mother. He will lose himself in games and learn the power of his mind.
 
-The man didn’t sound like he was boasting-more like a mechanic trying to explain a difficult repair. Perhaps it was
+But he won’t forget the desperation of that day. Twelve years later, at his narrow desk, he will glance up from a stack of forms toward the restless sky and feel that same panic return. He, too, will have to invent himself. His boss is out of the office; he sets the forms aside and from an old file cabinet pulls out a list of addresses. He yanks the typewriter toward him and begins to type, letter after letter after letter, typing the envelopes, sealing the letters like messages in bottles that will drop through a post office slot into a vast ocean and perhaps allow him to escape the island of his father’s shame.
 
-that nonchalance that caused Auma to ask him where the Masai thought a man went after he died. At first, Wilson didn’t seem to understand the question, but eventually he smiled and began shaking his head.
+How lucky he must have felt when his ship came sailing in! He must have known, when that letter came from Hawaii, that he had been chosen after all; that he possessed the grace of his name, the baraka, the blessings of God. With the degree, the ascot, the American wife, the car, the words, the figures, the wallet, the proper proportion of tonic to gin, the polish, the panache, the entire thing seamless and natural, without the cobbled-together, haphazard quality of an earlier time-what could stand in his way?
 
-“This is not a Masai belief,” he said, almost laughing, “this life after you die. After you die, you are nothing. You return to the soil. That is all.”
+He had almost succeeded, in a way his own father could never have hoped for. And then, after seeming to travel so far, to discover that he had not escaped after all! To discover that he remained trapped on his father’s island, with its fissures of anger and doubt and defeat, the emotions still visible beneath the surface, hot and molten and alive, like a wicked, yawning mouth, and his mother gone, gone, away....
 
-“What do you say, Francis?” Mauro asked.
+I dropped to the ground and swept my hand across the smooth yellow tile. Oh, Father, I cried. There was no shame in your confusion. Just as there had been no shame in your father’s before you. No shame in the fear, or in the fear of his father before him. There was only shame in the silence fear had produced. It was the silence that betrayed us. If it weren’t for that silence, your grandfather might have told your father that he could never escape himself, or re-create himself alone. Your father might have taught those same lessons to you. And you, the son, might have taught your father that this new world that was beckoning all of you involved more than just railroads and indoor toilets and irrigation ditches and gramophones, lifeless instruments that could be absorbed into the old ways. You might have told him that these instruments carried with them a dangerous power, that they demanded a different way of seeing the world. That this power could be absorbed only alongside a faith born out of hardship, a faith that wasn’t new, that wasn’t black or white or Christian or Muslim but that pulsed in the heart of the first African village and the first Kansas homestead-a faith in other people.
 
-For some time Francis had been reading a small, red-bound Bible. He looked up now and smiled. “These Masai are brave men,” he said.
-
-“Were you raised a Christian?” Auma asked Francis.
-
-Francis nodded. “My parents converted before I was born.”
-
-Mauro spoke, staring into the fire. “Me, I leave the Church. Too many rules. Don’t you think, Francis, that sometimes
-
-Christianity not so good? For Africa, the missionary changes everything, yes? He brings...how do you say?” “Colonialism,” I offered.
-
-“Yes-colonialism. White religion, no?”
-
-Francis placed the Bible in his lap. “Such things troubled me when I was young. The missionaries were men, and they
-
-erred as men. Now that I am older, I understand that I also can fail. That is not God’s failure. I also remember that some missionaries fed people during drought. Some taught children to read. In this, I believe they were doing God’s work. All we can do is aspire to live like God, though we will always fall short.”
-
-Mauro went to his tent and Francis returned to his Bible. Beside him, Auma began to read a story with Elizabeth. Dr. Wilkerson sat with his knees together, mending his pants while his wife stared at the fire beside him. I looked at the Masai, their faces silent and watchful, and wondered what they made of the rest of us. They might be amused, I decided. I knew that their courage, their hardness, made me question my own noisy spirit. And yet, as I looked around the fire, I thought I saw a courage no less admirable in Francis, and in Auma, and in the Wilkersons as well. Maybe it was that courage, I thought, that Africa most desperately needed. Honest, decent men and women with attainable ambitions, and the determination to see those ambitions through.
-
-The fire began to die, and one by one the others made their way to bed, until only Francis and I and the Masai remained. As I stood up, Francis began to sing a deep-voiced hymn in Kikuyu, with a melody that I vaguely recognized. I listened a while, lost in my own thoughts. Walking back to my tent, I felt I understood Francis’s plaintive song, imagining it transmitting upward, through the clear black night, directly to God.
-
-The day we got back from Mara, Auma and I received word that Roy had arrived, a week earlier than expected. He had suddenly appeared in Kariakor with a suitcase in hand, saying that he’d felt restless waiting around in D.C. and had managed to talk his way onto an earlier flight. The family was thrilled by his arrival and had held off on a big feast only until Auma and I returned. Bernard, who brought us the news, said that we were expected soon; he fidgeted as he spoke, as if every minute away from our eldest brother were a dereliction of duty. But Auma, still stiff from sleeping in tents for the past two days, insisted on taking the time for a bath.
+The silence killed your faith. And for lack of faith you clung to both too much and too little of your past. Too much of its rigidness, its suspicions, its male cruelties. Too little of the laughter in Granny’s voice, the pleasures of company while herding the goats, the murmur of the market, the stories around the fire. The loyalty that could make up for a lack of airplanes or rifles. Words of encouragement. An embrace. A strong, true love. For all your gifts-the quick mind, the powers of concentration, the charm-you could never forge yourself into a whole man by leaving those things behind....
 

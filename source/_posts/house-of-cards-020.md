@@ -1,89 +1,87 @@
 title: House of Cards 020
-date: 2015-01-24 15:44:14
+date: 2015-01-25 03:45:57
 tags: house-of-cards
 ---
 
-Five minutes later he was back in his own room and on the phone to Urquhart.
+He really is kind. Very considerate,' she explained. 'But sometimes it all seems to get too much for him and he goes a little crazy. It's so out of character.' She pleaded for him, and the tears flowed still faster.
 
-'Delivery made and dinner fixed.'
+'Penny. I'm so sorry, dear. Look, you need to get out of this party. My bungalow's next door. Let's go and dry you off there, OK?'
 
-'Splendid, Roger. You've been most helpful. I hope the Foreign Secretary will be grateful too.'
+She nodded in gratitude, and the couple squeezed their way through the crowd. No one seemed to notice as they eased their way out of the room, except Urquhart. His cold blue eyes followed them through the door where Landless and O'Neill had gone before. This was certainly going to be a party to remember, he told himself.
 
-'But I still don't see how you are going to get him to invite Penny to dinner. What's the point of all this?'
+￼THURSDAY 14th OCTOBER
 
-The point, dear Roger, is that he will not have to invite her to dinner at all. He is coming to my reception this evening. You will bring Penny, who you have established is more than willing to meet and spend some time with him. I shall introduce them over a glass of champagne or two, and see what develops. If I know Patrick Woolton - which as Chief Whip I do - it won't take more than twenty minutes before he's suggesting that they go to his room to discuss -how does Private Eye put it - Ugandan affairs?'
+‘You're not going to make a bloody habit of getting me out of bed every morning, are you?' Even down the telephone line, Preston made it clear that this was an instruction, not a question.
 
-'Or French lessons,' muttered O'Neill. 'But I still don't see where that gets us.'
+Mattie felt even worse than she had the previous morning after several hours of alcoholic flagellation with Charles Collingridge who was clearly determined to prove his doctor hopelessly wrong. Now she was having great difficulty grasping what on earth was going on.
 
-'Whatever happens, Roger, you and I will know about it. And knowledge is always useful.' ‘I still don't see how.'
+Hell, Grev. I go to bed thinking I want to kill you because you won't run the story, and I wake up this morning and find a bastardised version all over the front page with a by-line by someone called "Our Political Staff". Now I knowI want to kill you, but first I want to find out why you are screwing around with my story. Why did you change your mind? Who's rewritten my story, and who the hell is "Our Political Staff" if it's not me?'
 
-Trust me, Roger. You must trust me.'
+'Steady on, Mattie. Just take a breath and let me explain. If only you had been around when I tried to call you last night and not flashing your eyes at some eligible peer or whatever it is you were doing, then you would have known all about it before it happened.'
 
-‘I do. I have to: I don't really get much choice, do I?'
+Mattie began vaguely to recall the events of last night through the haze, and her pause to persuade her memory to catch up with itself gave Preston time to continue. He began to search for his words carefully.
 
-That's right, Roger. Now you are beginning to see. Knowledge is power’
+'As I think Krajewski may have told you, last night some of the editorial staff here didn't believe there was enough substantiation of your piece on the opinion polls for it to run today.'
 
-The phone went dead. O'Neill thought he understood but wasn't absolutely sure. He still often struggled to figure out whether he was Urquhart's partner or prisoner, but could never really decide. He rummaged in his bedside cabinet and took out a small carton. He swallowed a couple of sleeping pills and collapsed fully clothed on the bed.
+He heard Mattie snort at the clumsy twisting of the tale, but knew he must press on or he would never get the chance to finish the justification.
 
-‘Patrick. Thanks for the time’
+'Frankly, I liked the piece and wanted to make it work, but I thought we needed more corroboration before we tore the country's Prime Minister apart on the day of an important by-election. A single anonymous piece of paper wasn't enough.'
 
-‘You sounded quite serious on the phone. When Chief Whips say they want an urgent private word with you, they usually mean they've got the
+'I didn't tear the Prime Minister apart, you did!' Mattie wanted to interject, but Preston rode through her objections.
 
-photographs under lock and key but unfortunately the News of the World has got the negatives!’
+'So I had a chat with some of my senior contacts in the Party, and late last night we got the corroboration we wanted just before our deadline. The copy needed to be adapted to take account of the new material and I tried to reach you but couldn't, so I rewrote it myself. I refused to let anyone else touch it, your material is too good. So "Our Political Staff" in this instance is me.'
 
-Urquhart smiled and slipped through the open door into the Foreign Secretary's room. He had not come far, indeed only a few yards from his own
+'But that's not the story I sent in. I wrote a piece about a terrible opinion poll and the difficult days the Party was facing. You've turned it into the outright crucifixion of Collingridge. These quotes from "leading party sources", these criticisms and condemnations. Who else do you have working in Bournemouth apart from me?'
 
-bungalow next door in what the local constabulary had named 'Overtime Alley’ the row of luxury private bungalows in the grounds of the conference hotel which housed leading Ministers, all of whom had a 24-hour rota of police guards running up huge overtime bills for the hapless local ratepayers.
+'My sources are my own business,' snapped Preston.
 
-'Drink?' the genial Lancastrian offered.
+'Bullshit, Grev. I'm supposed to be your political correspondent at this bloody conference, you can't keep me in the dark like this. The paper's done a complete somersault over my story and another complete somersault over Collingridge. A few weeks ago he was the saviour of the nation as far as you were concerned, now he's - what does it say? - "a catastrophe threatening to engulf the Government at any moment". I shall be about as popular as a witch's armpit around the conference hall this morning. You've got to tell me what's going on!'
 
-Thanks, Patrick. Scotch.'
+Preston, his carefully prepared explanation already in tatters, retreated into aggression and pomposity.
 
-The Right Honourable Patrick Woolton, Her Majesty's Principal Secretary for Foreign and Commonwealth Affairs and one of Merseyside's many successful emigres, busied himself at a small drinks cabinet which quite obviously had already been used that afternoon, while Urquhart placed the Ministerial red box he was carrying in the corner of the room beside the four belonging to his overworked host. The brightly coloured leather-clad boxes are provided to all Ministers to house their official papers, speeches and other items which they require to keep secure. Red boxes go wherever Ministers go, even on holiday, and the Foreign Secretary was habitually followed around by a host of the small suitcase-sized containers carrying telexes and despatches, briefing papers and the other paraphernalia of diplomacy. The Chief Whip, with no conference speech to make and no foreign crises to handle, had arrived in Bournemouth with his box filled with three bottles of twelve-year-old malt whisky. Hotel drink prices are always staggering, he explained to his wife, even when you can find the brand you want.
+'As editor I am not in the dubious position of having to justify myself to every cub reporter stuck out in the provinces. You do as you're told, I do as I'm told, and we both get on with the job. All right?'
 
-He faced Woolton across a paper-strewn coffee table, and dispensed with the small talk.
+Mattie was just about to ask him who the hell it was who could tell the editor what to do when she heard the line go dead. She shook her head in amazement and fury. She couldn't and wouldn't take much more of this. Far from having new doors open up to her, she was finding her fingers getting caught as her editor kept slamming the doors shut. And who else had he got ferreting away at the conference?
 
-‘Patrick, I need to take your mind. In the strictest confidence. As far as I am concerned, this has to be one of those meetings which never took place.'
+It was a good thirty minutes later as she was trying to clear her thoughts and calm her temper with yet another cup of coffee in the breakfast room when she saw the vast bulk of Benjamin Landless lumbering across to a Window table for a chat with Lord Peterson, the party treasurer. As the proprietor settled his girth into a completely inadequate chair, Mattie wrinkled her nose. She didn't care for what she smelt.
 
-'Christ, you do have some photographs!' exclaimed Woolton, now only half joking. His eye for attractive young women was much discussed, but he was usually highly discreet, especially when he travelled abroad. Ten years earlier when he was just starting his Ministerial career, he had spent several painful hours answering questions from the Louisiana State Police about a weekend he had spent in a New Orleans motel with a young American girl who looked twenty, acted as if she were thirty and turned out to be just a few days over sixteen. The incident had been brushed over, but Woolton had never forgotten the tiny difference between a glittering political future and a charge of statutory rape.
+The Prime Minister's political secretary winced. For the third time the press secretary had thrust the morning newspaper across the table at him, for the third time he tried to thrust it away. He knew how St Peter must have felt.
 
-￼'Something which could be rather more serious. I've been picking up some unhealthy vibrations in the last few weeks about Henry. You've sensed some of the irritation with him around the Cabinet table, and the media seem to be falling out of love with him in a very big way. There was no reason to expect an extended honeymoon after the election, but it's in danger of getting out of hand. I have just been approached by two of the most influential grass-roots party members saying that feeling at local level is getting very bad. We lost two more important local council by-elections last week in what should have been very safe seats, and we are going to lose quite a few more in the weeks ahead. Our majority in the Dorset by- election tomorrow is likely to be hit badly. To put no finer point on it, Patrick, the PM's unpopularity is dragging the whole Party down and we would have trouble winning an election for local dogcatcher at the moment. We seem to have blown it rather badly’ Urquhart paused for a sip of whisky.
+'For God's sake, Grahame.' The press secretary was raising his voice now; the game of ping-pong with the newspaper was irritating him. 'We can't hide every damned copy of the Telegraph in Bournemouth. He's got to know, and you've got to show it to him. Now!'
 
-The problem is,' he continued, 'there's a view around that this is not just a passing phase. If we are to win yet another election, we will have to show plenty of vigour and life otherwise the electorate will want a change simply out of boredom. Quite a few of our backbenchers in marginal seats are already beginning to get nervous, and with a majority of just 24 we may not have as much time as we would like. A few lost by-elections and we
+'Why did it have to be today?' he groaned. 'A by-election just down the road, and we've been up all night finishing his speech for tomorrow. Now hell want to rewrite the whole thing and where are we going to find the time? He’ll blow a bloody gasket, and that won't help the by-election or the speech either.'
 
-could be forced into an early election.7
+He slammed his briefcase shut in uncharacteristic frustration. 'All the pressure of the last few weeks, and now this. There just, doesn't seem to be any break, does there?'
 
-He took another sip of whisky, cupping his hands around the tumbler as if to draw reassurance for his difficult task from the warm, peaty liquid.
+His companion chose not to answer, preferring to study the view out of the hotel window across the bay. It was raining again.
 
-I’ll come to the point, Patrick. I've been asked as Chief Whip...' - notice the formality, nothing personal in this, old chap - '... by one or two of our senior colleagues to take some gentle soundings about how deep the problem actually goes. In short, Patrick, and you will appreciate this is not easy...' - it never is, but it never seems to stop or even slow the inevitable thrust - '... I've been asked to find out how much trouble you personally
+￼The political secretary picked up the newspaper, rolled it up tight, and threw it across the room. It landed with a crash in the waste bin, overturning it and strewing the contents across the carpet. The discarded pages of speech draft mixed with cigarette ash and several empty cans of beer and tomato juice.
 
-think we are in. Is Henry any longer the right leader for us?’ He took a deep draught and settled back in his chair.
+I’ll tell him after breakfast.'
 
-The silence settled around the Foreign Secretary, impaling him on the point of the question. It took him more than a minute to respond. A pipe appeared out of his pocket, followed by a tobacco pouch and a box of Swan Vestas. He patiently filled the bowl, tamping down the fresh tobacco with his thumb, and took out a match. The striking of the match seemed very loud in the silence, and Urquhart shifted uneasily in his chair. Smoke began to rise from around Woolton as he drew on the pipe stem, until the sweet smelling tobacco was well alight and his face was almost hidden from view by a clinging blue fog. He waved his hand to disperse it and through the clearing air he looked directly at Urquhart, and chuckled. -
+It was not to be his best decision.
 
-'You'll have to forgive me, Francis. Four years in the Foreign Office has not prepared me particularly well for handling direct questions like that. Maybe I'm not used any more to people coming straight to the point. I hope you will forgive me if I struggle a little to match your bluntness.'
+Henry Collingridge was in a good mood and enjoying his eggs. He had finished his conference speech in the early hours of the morning, and had left his staff to tidy it up and have it typed while he went to bed. He had slept soundly if briefly for the first time during conference week.
 
-This was nonsense, of course. Woolton was renowned for his direct, often combative political style which had found an uneasy home in the Foreign Office. He was simply playing for time, collecting his thoughts.
+The end-of-conference speech always hung over his head like a dark cloud. He disliked conferences and the small talk, the week away from home, the over-indulgence around the dinner tables - and the speech. Most of all the speech. Long hours of anguished discussion in a smoke-filled hotel room, breaking off just when progress seemed in sight in order to attend some ball-breaking function or reception, resuming a considerable time later and trying to pick up where they had left off, only more tired and less inspired. If the speech was good, it was only what they expected and required. If it was poor, they still applauded but said the strain of office was beginning to show. Sod's Law.
 
-'Let's try to put aside any subjective views...' - he blew another enormous cloud of smoke to hide the patent insincerity of the remark-'... and analyse the problem like a civil service position paper.'
+But it was now almost over, bar the delivery. The Prime Minister was enjoying breakfast with his wife, watched carefully from surrounding tables by his personal Special
 
-Urquhart continued to look strained and nervous, but smiled inwardly. He knew Woolton's personal views, and so he already knew the conclusion at which their hypothetical civil servant was going to arrive.
+Branch detectives. He was discussing the merits of a winter holiday in Antigua or Sri Lanka.
 
-‘First, have we really got a problem? Yes, and it's a serious one. My lads, back in Lancashire are hopping mad, we have a couple of local by- elections coming up which we are going to lose, and the polls are looking awful. I think it's right that you should be taking soundings.
+‘I would recommend Sri Lanka this year’ he said. ‘You can stay on the beach if you want, Sarah, but I would rather like to take a couple of trips into the mountains. They have some ancient Buddhist monasteries and some nearby wildlife reserves which are supposed to be quite spectacular. The Sri Lankan President was describing them to me last year, and they sounded really... Darling, you're not listening!'
 
-'Second, is there a painless solution to the problem? Don't let us forget that Henry has led us successfully through our fourth election victory. He is the leader of the party which the voters supported. So it's not easy so soon after an election to contemplate a radical alteration to either the policies or the personalities with which we were elected.'
+'Sorry, Henry. I was... just looking at that gentleman's newspaper.' 'More interesting than me, is it? What's it got to say, then?'
 
-Woolton was by now obviously beginning to relish the analysis.
+He began to feel ill at ease, remembering that no one had yet given him his daily press cuttings. Someone would surely have told him had there been anything that important.
 
-'Think it through. If there were any move to replace him - which is essentially what we are discussing...' — Urquhart contrived to look pained at Woolton's bluntness and once more examined the drink in his glass — '... it would be highly unsettling for the Party, while the Opposition would be rampant. It would, look like a messy palace coup and an act of desperation. What do they say? "Greater love hath no politician than he lay down the life of his friends to save his own"! We could never make it look like the response of a mature and confident political party, no matter how we tried to dress it up. It would take a new leader at least a year to repair the damage and glue together the cracks. So we should not fool ourselves that replacing Henry represents an easy option.
+Come to think of it, he had never felt comfortable since his staff had persuaded him that he didn't need to spend his time reading the daily newspapers, that an edited summary of press clippings prepared by them would be more efficient. But were they? Civil servants had their own narrow views on what was important for a Prime Minister's day, and he found increasingly that their briefing on party political matters was scant. Particularly when there was bad news, the controversy and the in-fighting, he often had to find out from others, sometimes days or weeks after the event. He began to wonder if eventually he would never find out at all, and some great political crisis would burst upon the Party about which he was kept blissfully unaware. They were trying to protect him, of course, but the cocoon they spun around him would, he feared, eventually stifle him.
 
-'Third, when all is said and done, can Henry find the solution to the problem himself? Well, you know my views on that I stood against him for the leadership when Margaret retired, and I have not changed my mind that his selection was a mistake.'
+He remembered the first time he had stepped inside 10 Downing Street as Prime Minister. He had left the crowds and the television crews outside and, as the great black door closed behind him, he had discovered an extraordinary sight.
 
-Urquhart now knew that he had read his man well. While Woolton had never expressed any open dissatisfaction after the waves of the leadership election had settled, public loyalty is rarely more than a necessary cover for private ambition, and the Foreign Secretary had never done more than was strictly necessary to maintain that cover.
+On one side of the great hallway leading away from the door had gathered some 200 civil servants, his civil servants now, who were applauding him loudly - just as they had done Thatcher, Callaghan, Wilson and Heath, and just as they would his successor. On the other side of the hallway facing the host of civil servants stood his political staff, the team of loyal supporters he had hurriedly assembled around him as his campaign to succeed Margaret Thatcher had begun to take off, and whom he had invited to Downing Street to enjoy this historic moment. There were just seven of them, four assistants and three secretaries, dwarfed in their new surroundings.
 
-Woolton was now refilling their glasses while continuing his analysis. 'Margaret managed an extraordinary balance of personal toughness and sense of direction. She was ruthless when she had to be - and often when she didn't have to be as well. She always seemed to be in such a hurry to get where she was going that she had no time to take prisoners and .didn't mind trampling on a few friends either. It didn't matter so much because she led from in front. Yet Henry doesn't have any sense of direction, only a love of office. And without that sense of direction, when he tries to be tough it simply comes across as arrogance and harshness. He tries to mimic Margaret but he hasn't got the balls.
+He told his wife afterwards that it was rather like the Eton Wall Game, with two hugely unequal sides lined up to do battle, with no clear rules and with him cast as both the ball and the prize. He had felt almost relieved when three senior civil servants called an end to the proceedings by physically surrounding him and guiding him off to the Cabinet Room for his first Prime Ministerial briefing. One of the party officials present had described it more as an Assumption, with the Prime Minister disappearing into a different world surrounded by a band of guardian angels -Civil Service, Grade 1, Prime Ministers, for the Protection and Guidance Thereof: Exclusive. His party officials had scarcely seen him for the next six months as they were effectively squeezed out by the official machine, and none of the original band was still left.
 
-'So these we have it. If we try to get rid of him we're in deep trouble. If we keep him, to use an old Lancashire expression, we're stuffed.' He returned to his pipe, puffing furiously to rekindle its embers until he disappeared once more behind the haze.
-
-￼Urquhart hadn't spoken for nearly ten minutes, but now moved to the edge of his chair once again. 'Yes, I see. But I don't see. What is it you are saying, Patrick?'
+Collingridge's attention returned to the newspaper being read at the far-off breakfast table. At such a distance he had great difficulty in bringing it fully into focus, and he fumbled for his glasses, perching them on the end of his nose and trying not to stare too hard. He found his air of studied indifference difficult to maintain as the large headline print came into focus.
 

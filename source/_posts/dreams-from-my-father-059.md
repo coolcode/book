@@ -1,101 +1,41 @@
 title: Dreams from My Father 059
-date: 2015-01-24 15:43:36
+date: 2015-01-25 03:45:18
 tags: dreams-from-my-father
 ---
 
-But of course I wasn’t either of those things. Even in the States, wealth involved trade-offs for those who weren’t born to it, the same sorts of trade-offs that I could see Auma now making as she tried, in her own way, to fulfill the family’s expectations. She was working two jobs that summer, teaching German classes to Kenyan businessmen along with her job at the university. With the money she saved, she wanted not only to fix up Granny’s house in Alego but also to buy a bit of land around Nairobi, something that would appreciate in value, a base from which to build. She had plans, schedules, budgets, and deadlines-all the things she’d learned were required to negotiate a modern world. The problem was that her schedules also meant begging off from family affairs; her budgets meant saying no to the constant requests for money that came her way. And when this happened-when she insisted on going home before Jane served dinner because things had started two hours late, or when she refused to let eight people pile into her VW because it was designed for four and they would tear up the seats-the looks of unspoken hurt, barely distinguishable from resentment, would flash across the room. Her restlessness, her independence, her constant willingness to project into the future-all of this struck the family as unnatural somehow. Unnatural...and un-African.
+First there was Miwiru. It’s not known who came before. Miwiru sired Sigoma, Sigoma sired Owiny, Owiny sired Kisodhi, Kisodhi sired Ogelo, Ogelo sired Otondi, Otondi sired Obongo, Obongo sired Okoth, and Okoth sired Opiyo. The women who bore them, their names are forgotten, for that was the way of our people.
 
-It was the same dilemma that old Frank had posed to me the year I left Hawaii, the same tensions that certain children in Altgeld might suffer if they took too much pleasure in doing their schoolwork, the same perverse survivor’s guilt that I could expect to experience if I ever did try to make money and had to pass the throngs of young black men on the corner as I made my way to a downtown office. Without power for the group, a group larger, even, than an extended family, our success always threatened to leave others behind. And perhaps it was that fact that left me so unsettled-the fact that even here, in Africa, the same maddening patterns still held sway; that no one here could tell me what my blood ties demanded or how those demands could be reconciled with some larger idea of human association. It was as
+Okoth lived in Alego. Before that, it is known only that families traveled a great distance, from the direction of what is now Uganda, and that we were like the Masai, migrating in search of water and grazing land for great herds of cattle. In Alego, the people settled and began to grow crops. Other Luo settled by the lake and learned to fish. There were other tribes, who spoke Bantu, already living in Alego when the Luo came, and great wars were fought. Our ancestor Owiny
 
-if we-Auma, Roy, Bernard, and I-were all making it up as we went along. As if the map that might have once measured the direction and force of our love, the code that would unlock our blessings, had been lost long ago, buried with the ancestors beneath a silent earth.
+was known as a great warrior and leader of his people. He helped to defeat the Bantu armies, but the Bantu were allowed to stay on and marry Luo, and taught us many things about farming and the new land.
 
-Toward the end of my first week in Nairobi, Zeituni took me to visit our other aunt, Sarah. Auma had remained unwilling to go, but because it turned out that her mechanic lived near Sarah, she offered to give us a ride to her garage; from there, she said, we could travel by foot. On Saturday morning, Auma and I picked up Zeituni and headed east, past cinder-block apartments and dry, garbage-strewn lots, until we finally came to the rim of a wide valley known as Mathare. Auma pulled off to the shoulder and I looked out the window to see the shantytown below, miles and miles of corrugated rooftops shimmering under the sun like wet lily pads, buckling and dipping in an unbroken sequence across the valley floor.
+Once people began to settle and farm, the land in Alego became crowded. Opiyo, son of Okoth, was a younger brother, so perhaps that is why he decided to move to Kendu Bay. When he moved there, he was landless, but in the custom of our people, a man could use any unused land. What a man did not use reverted to the tribe. So there was no shame in Opiyo’s situation. He worked in the compounds of other men and cleared the land for his own farm. But before he could prosper, he died very young, leaving behind two wives and several children. One wife was taken in by Opiyo’s brother, as was the custom then-she became the brother’s wife, her children his children. But the other wife also died, and her oldest son, Obama, was orphaned when still a boy. He, too, lived with his uncle, but the resources of the family were strained, and so as Obama grew older, he began to work for other men as his father had done before him.
 
-“How many people live there?” I asked.
+The family he worked for was wealthy, with many cattle. But they came to admire Obama, for he was enterprising and a very good farmer. When he sought to marry their oldest daughter, they agreed, and the uncles in this family provided the necessary dowry. And when this eldest daughter died, they agreed that Obama could marry the younger daughter, whose name was Nyaoke. Eventually Obama had four wives, who bore him many children. He cleared his own land and became prosperous, with a large compound and many cattle and goats. And because of his politeness and responsible ways, he became an elder in Kendu, and many came to seek his advice.
 
-Auma shrugged and turned to our aunt. “What would you say, Auntie? Half a million, maybe?”
+Your grandfather, Onyango, was Nyaoke’s fifth son. Dorsila, who sits here, was the last child of Obama’s last wife.
 
-Zeituni shook her head. “That was last week. This week, it must be one million.”
+This is the time before the white man came. Each family had their own compound, but they all lived under the laws of the elders. Men had their own huts, and were responsible for clearing and cultivating their land, as well as protecting the cattle from wild animals and the raids of other tribes. Each wife had her own vegetable plot, which only she and her daughters would cultivate. She cooked the man’s food, drew water, and maintained the huts. The elders regulated all plantings and the harvests. They organized families to rotate their work, so that each family helped the other, in doing these things. The elders distributed food to widows or those who had fallen on hard times, provided cattle as dowry for those men who had no cattle themselves, and settled all conflicts. The words of the elders were law and strictly followed-those who disobeyed would have to leave and start anew in another village.
 
-Auma started the car back up. “Nobody knows for sure, Barack. The place is growing all the time. People come in
+The children did not go to school, but learned alongside their parents. The girls would accompany their mothers and learn how to grind the millet into porridge, how to grow vegetables and pack clay for the huts. The boys learned from their fathers how to herd and work pangas and throw spears. When a mother died, another would take the child in and suckle him as her own. At night, the daughters would eat with their mothers, while the sons would join their father in his hut, listening to stories and learning the ways of our people. Sometimes a harpist would come, and the entire village would come to listen to his songs. The harpists sang of great deeds of the past, the great warriors and wise elders. They would praise men who were good farmers, or women who were beautiful, and rebuke those who were lazy or cruel. All were recognized in these songs for their contributions to the village, good and bad, and in this way the traditions of the ancestors stayed alive in all who heard. When the children and women were gone, the men in the village would gather together and decide on the village affairs.
 
-from the countryside looking for work and end up staying permanently. For a while, the city council tried to tear the settlement down. They said it was a health hazard-an affront to Kenya’s image, you see. Bulldozers came, and people lost what little they had. But of course, they had nowhere else to go. As soon as the bulldozers left, people rebuilt just like before.”
+Even from the time that he was a boy, your grandfather Onyango was strange. It is said of him that he had ants up his anus, because he could not sit still. He would wander off on his own for many days, and when he returned he would not say where he had been. He was very serious always-he never laughed or played games with the other children, and never made jokes. He was always curious about other people’s business, which is how he learned to be a herbalist. You should know that a herbalist is different from a shaman-what the white man calls a witch doctor. A shaman casts spells and speaks to the spirit world. The herbalist knows various plants that will cure certain illnesses or wounds, how to pack a special mud so that a cut will heal. As a boy, your grandfather sat in the hut of the herbalist in his village, watching and listening carefully while the other boys played, and in this way he gained knowledge.
 
-We came to a stop in front of a slanting tin shed where a mechanic and several apprentices emerged to look Auma’s car over. Promising to be back in an hour, Zeituni and I left Auma at the garage and began our walk down a wide, unpaved road. It was already hot, the road bereft of shade; on either side were rows of small hovels, their walls a patchwork of wattle, mud, pieces of cardboard, and scavenged plywood. They were neat, though, the packed earth in front of each home cleanly swept, and everywhere we could see tailors and shoe repairers and furniture makers plying their trades out of roadside stalls, and women and children selling vegetables from wobbly wood tables.
+When your grandfather was still a boy, we began to hear that the white man had come to Kisumu town. It was said that these white men had skin as soft as a child’s, but that they rode on a ship that roared like thunder and had sticks that burst with fire. Before this time, no one in our village had seen white men-only Arab traders who sometimes came to sell us sugar and cloth. But even that was rare, for our people did not use much sugar, and we did not wear cloth, only a goatskin that covered our genitals. When the elders heard these stories, they discussed it among themselves and advised the men to stay away from Kisumu until this white man was better understood.
 
-Eventually we came to one edge of Mathare, where a series of concrete buildings stood along a paved road. The buildings were eight, maybe twelve stories tall, and yet curiously unfinished, the wood beams and rough cement exposed to the elements, like they’d suffered an aerial bombardment. We entered one of them, climbed a narrow flight of stairs, and emerged at the end of a long unlit hallway, at the other end of which we saw a teenage girl hanging out clothes to dry on a small cement patio. Zeituni went to talk to the girl, who led us wordlessly to a low, scuffed door. We knocked, and a dark, middle-aged woman appeared, short but sturdily built, with hard, glassy eyes set in a wide, rawboned face. She took my hand and said something in Luo.
+Despite this warning, Onyango became curious and decided that he must see these white men for himself. One day he disappeared, and no one knew where he had gone. Then, many months later, while Obama’s other sons were working the land, Onyango returned to the village. He was wearing the trousers of a white man, and a shirt like a white man, and shoes that covered his feet. The small children were frightened, and his brothers didn’t know what to make of this change. They called Obama, who came out of his hut, and the family gathered ’round to stare at Onyango’s strange appearance.
 
-“She says she is ashamed to have her brother’s son see her in such a miserable place,” Zeituni translated.
+“What has happened to you?” Obama asked. “Why do you wear these strange skins?” Onyango said nothing, and Obama decided that Onyango must be wearing trousers to hide the fact that he was circumcised, which was against Luo custom. He thought that Onyango’s shirt must be covering a rash, or sores. Obama turned to his other sons and said, “Don’t go near this brother of yours. He is unclean.” Then he returned to his hut, and the others laughed and shunned Onyango. Because of this, Onyango returned to Kisumu, and would remain estranged from his father for the rest of his life.
 
-We were shown into a small room, ten feet by twelve, large enough to fit a bed, a dresser, two chairs, and a sewing machine. Zeituni and I each took one of the chairs, and the young woman who had shown us Sarah’s room returned with two warm sodas. Sarah sat on the bed and leaned forward to study my face. Auma had said that Sarah knew some
+Nobody realized then that the white man intended to stay in the land. We thought that they had come only to trade their goods. Some of their customs we soon developed a taste for, like the drinking of tea. With tea, we found that we needed sugar, and teakettles, and cups. All these things we bought with skins and meat and vegetables. Later we learned to accept the white man’s coin. But these things did not affect us deeply. Like the Arabs, the white men remained small in number, and we assumed they would eventually return to their own land. In Kisumu, some white men stayed on and built a mission. These men spoke of their god, who they said was all-powerful. But most people ignored them and thought their talk silly. Even when white men appeared with rifles, no one resisted because our lives were not yet touched by the death such weapons could bring. Many of us thought the guns were just fancy ugali stirrers.
 
-English, but she spoke mostly in Luo now. Even without the benefit of Zeituni’s translation, I guessed that she wasn’t happy.
+Things began to change with the first of the white man’s wars. More guns arrived, along with a white man who called himself district commissioner. We called this man Bwana Ogalo, which meant “the Oppressor.” He imposed a hut tax
 
-“She wants to know why you have taken so long to visit her,” Zeituni explained. “She says that she is the eldest child of your grandfather, Hussein Onyango, and that you should have come to see her first.”
+that had to be paid in the white man’s money. This forced many men to work for wages. He conscripted outright many of our men into his army to carry provisions and build a road that would allow automobiles to pass. He surrounded himself with Luos who wore clothes like the white man to serve as his agents and tax collectors. We learned that we now had chiefs, men who were not even in the council of elders. All these things were resisted, and many men began to fight. But those who did so were beaten or shot. Those who failed to pay taxes saw their huts burned to the ground. Some families fled farther into the countryside to start new villages. But most people stayed and learned to live with this new situation, although we now all realized that it had been foolish to ignore the white man’s arrival.
 
-“Tell her I meant no disrespect,” I said, looking at Sarah but not sure what she understood. “Everything’s been so busy since my arrival-it was hard to come sooner.”
+During this time, your grandfather worked for the white man. Few people could speak English or Swahili in those days-men didn’t like to send their sons to the white man’s school, preferring that they work with them on the land. But Onyango had learned to read and write, and understood the white man’s system of paper records and land titles. This made him useful to the white man, and during the war he was put in charge of road crews. Eventually he was sent to Tanganyika, where he stayed for several years. When he finally returned, he cleared land for himself in Kendu, but it was away from his father’s compound and he rarely spoke to his brothers. He didn’t build a proper hut for himself, but instead lived in a tent. People had never seen such a thing and they thought he was crazy. After he had staked his claim, he traveled to Nairobi, where a white man had offered him a job.
 
-Sarah’s tone became sharp. “She says that the people you stay with must be telling you lies.”
+In those days, few Africans could ride the train, so Onyango walked all the way to Nairobi. The trip took him more than two weeks. Later he would tell us of the adventures he had during this journey. Many times he chased away leopards with his panga. Once he was chased into a tree by an angry buffalo and had to sleep in the tree for two days. Once he found a drum lying in the middle of the forest path and when he opened it, a snake appeared and slid between his feet into the bush. But no harm came to him, and he eventually arrived in Nairobi to begin his work in the white man’s house.
 
-“Tell her that I’ve heard nothing said against her. Tell her that the dispute about the Old Man’s estate has just made Auma uncomfortable about coming here.”
-
-Sarah snorted after the translation and started up again, her voice rumbling against the close walls. When she finally stopped, Zeituni remained quiet.
-
-“What’d she say, Zeituni?”
-
-Zeituni’s eyes stayed on Sarah as she answered my question. “She says the trial is not her fault. She says that it’s Kezia’s doing-Auma’s mum. She says that the children who claim to be Obama’s are not Obama’s. She says they have taken everything of his and left his true people living like beggars.”
-
-Sarah nodded, and her eyes began to smolder. “Yes, Barry,” she said suddenly in English. “It is me who looks after your father when he is a small boy. My mother, Akumu, is also your father’s mother. Akumu is your true grandmother, not this one you call Granny. Akumu, the woman who gives your father life-you should be helping her. And me, your brother’s sister. Look how I live. Why don’t you help us, instead of these others?”
-
-Before I could answer, Zeituni and Sarah began to argue with each other in Luo. Eventually, Zeituni stood up and straightened her skirt. “We should go now, Barry.”
-
-I began to rise out of my chair, but Sarah took my hand in both of hers, her voice softening.
-
-“Will you give me something? For your grandmother?”
-
-I reached for my wallet and felt the eyes of both aunts as I counted out the money I had on me-perhaps thirty dollars’
-
-worth of shillings. I pressed them into Sarah’s dry, chapped hands, and she quickly slipped the money down the front of her blouse before clutching my hand again.
-
-“Stay here, Barry,” Sarah said. “You must meet-”
-
-“You can come back later, Barry,” Zeituni said. “Let’s go.”
-
-Outside, a hazy yellow light bathed the road; my clothes hung limp against my body in the windless heat. Zeituni was
-
-quiet now, visibly upset. She was a proud woman, this aunt; the scene with Sarah must have embarrassed her. And then, that thirty dollars-Lord knows, she could have used it herself....
-
-We had walked for ten minutes before I asked Zeituni what she and Sarah had been arguing about.
-
-“Ah, it’s nothing, Barry. This is what happens to old women who have no husbands.” Zeituni tried to smile, but the tension creased the corners of her mouth.
-
-“Come on, Auntie. Tell me the truth.”
-
-Zeituni shook her head. “I don’t know the truth. At least not all of it. I know that even growing up, Sarah was always closer to her real mum, Akumu. Barack, he cared only for my mum, Granny, the one who raised them after Akumu left.”
-
-“Why did Akumu leave?”
-
-“I’m not sure. You will have to ask Granny about that.”
-
-Zeituni signaled for us to cross the street, then resumed talking. “You know, your father and Sarah were actually very
-
-similar, even though they did not always get along. She was smart like him. And independent. She used to tell me, when we were children, that she wanted to get an education so that she would not have to depend on any man. That’s why she ended up married to four different husbands. None of them lasted. The first one died, but the others she left, because they were lazy, or tried to abuse her. I admire her for this. Most women in Kenya put up with anything. I did, for a long time. But Sarah also paid a price for her independence.”
-
-Zeituni wiped the sweat on her forehead with the back of her hand. “Anyway, after Sarah’s first husband died, she decided that your father should support her and her child, since he had received all the education. That’s why she disliked Kezia and her children. She thought Kezia was just a pretty girl who wanted to take everything. You must understand, Barry-in Luo custom, the male child inherits everything. Sarah feared that once your grandfather died, everything would belong to Barack and his wives, and she would be left with nothing.”
-
-I shook my head. “That’s no excuse for lying about who the Old Man’s children are.”
-
-“You’re right. But...”
-
-“But what?”
-
-Zeituni stopped walking and turned to me. She said, “After your father went off to live with his American wife,
-
-Ruth...well, he would go to Kezia sometimes. You must understand that traditionally she was still his wife. It was during such a visit that Kezia became pregnant with Abo, the brother you haven’t met. The thing was, Kezia also lived with another man briefly during this time. So when she became pregnant again, with Bernard, no one was sure who-” Zeituni stopped, letting the thought finish itself.
-
-“Does Bernard know about this?”
-
-“Yes, he knows by now. You understand, such things made no difference to your father. He would say that they were all his children. He drove this other man away, and would give Kezia money for the children whenever he could. But once he died, there was nothing to prove that he’d accepted them in this way.”
-
-We turned a corner onto a busier road. In front of us, a pregnant goat bleated as it scuttered out of the path of an oncoming matatu. Across the way, two little girls in dusty red school uniforms, their round heads shaven almost clean, held hands and sang as they skipped across a gutter. An old woman with her head under a faded shawl motioned to us to look at her wares: two margarine tins of dried beans, a neat stack of tomatoes, dried fish hanging from a wire like a chain of silver coins. I looked into the old woman’s face, drawn beneath the shadows. Who was this woman? I wondered. My grandmother? A stranger? And what about Bernard-should my feelings for him somehow be different now? I looked over at a bus stop, where a crowd of young men were streaming out into the road, all of them tall and black and slender, their bones pressing against their shirts. I suddenly imagined Bernard’s face on all of them, multiplied across the landscape, across continents. Hungry, striving, desperate men, all of them my brothers....
+He was not the only one who moved to town. After the war, many Africans began working for wages, especially those who had been conscripted or lived near the cities or had joined the white missions. Many people had been displaced during and immediately following the war. The war had brought famine and disease in its wake, and it brought large numbers of white settlers, who were allowed to confiscate the best land.
 

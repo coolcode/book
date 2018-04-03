@@ -1,73 +1,103 @@
 title: The English Patient 031
-date: 2015-01-24 15:44:04
+date: 2015-01-25 03:45:46
 tags: the-english-patient
 ---
 
-At night, when she lets his hair free, he is once more an¬other constellation, the arms of a thousand equators against his pillow, waves of it between them in their embrace and in their turns of sleep. She holds an Indian goddess in her arms, she holds wheat and ribbons. As he bends over her it pours. She can tie it against her wrist. As he moves she keeps her eyes open to witness the gnats of electricity in his hair in the darkness of the tent.
+I thought he was alone. He was supposed to be alone. But when I got there to pull him out, she was beside him. He was dead. She was trying to move the lower part of her body, looking straight ahead. Sand had come in through the cockpit window and had filled her lap. There didn’t seem to be a mark on her. Her left hand had gone forward to cushion the collapse of their flight. I pulled her out of the plane Clifton had called Rupert and carried her up into the rock caves. Into the Cave of Swimmers, where the paintings were. Latitude 23°3o’ on the map, longitude 25°!5’. I buried Geoffrey Clifton that night.
 
-He moves always in relation to things, beside walls, raised terrace hedges. He scans the periphery. When he looks at Hana he sees a fragment of her lean cheek in relation to the landscape behind it. The way he watches the arc of a linnet in terms of the space it gathers away from the surface of the earth. He has walked up Italy with eyes that tried to see everything except what was temporary and human.
+Was I a curse upon them? For her? For Madox? For the desert raped by war, shelled as if it were just sand? The Bar¬barians versus the Barbarians. Both armies would come through the desert with no sense of what it was. The deserts of Libya. Remove politics, and it is the loveliest phrase I know. Libya. A sexual, drawn-out word, a coaxed well. The b and the y. Madox said it was one of the few words in which you heard the tongue turn a corner. Remember Dido in the deserts of Libya? A man shall be as rivers of water in a dry place....
 
-The one thing he will never consider is himself. Not his twilit shadow or his arm reaching for the back of a chair or the reflection of himself in a window or how they watch him. In the years of war he has learned that the only thing safe is himself.
+I do not believe I entered a cursed land, or that I was ensnared in a situation that was evil. Every place and person was a gift to me. Finding the rock paintings in the Cave of Swimmers. Singing “burdens” with Madox during expedi¬tions. Katharine’s appearance among us in the desert. The way I would walk towards her over the red polished concrete floor and sink to my knees, her belly against my head as if I were a boy. The gun tribe healing me. Even the four of us, Hana and you and the sapper.
 
-He spends hours with the Englishman, who reminds him of a fir tree he saw in England, its one sick branch, too weighted down with age, held up by a crutch made out of another tree. It stood in Lord Suffolk’s garden on the edge of the cliff, overlooking the Bristol Channel like a sentinel. In spite of such infirmity he sensed the creature within it was noble, with a memory whose power rainbowed beyond ailment.
+Everything I have loved or valued has been taken away from me.
 
-He himself has no mirrors He wraps his turban outside in his garden, looking about at the moss on trees. But he notices the swath scissors have made in Hana’s hair. He is familiar with her breath when he places his face against her body, at the clavicle, where the bone lightens her skin. But if she asked him what colour her eyes are, although he has come to adore her, he will not, she thinks, be able to say. He will laugh and guess, but if she, black-eyed, says with her eyes shut that they are green, he will believe her. He may look intently at eyes but not register what colour they are, the way food already in his throat or stomach is just texture more than taste or specific object.
+I stayed with her. I discovered three of her ribs were bro¬ken. I kept waiting for her wavering eye, for her broken wrist to bend, for her still mouth to speak.
 
-When someone speaks he looks at a mouth, not eyes and their colours, which, it seems to him, will always alter de¬pending on the light of a room, the minute of the day. Mouths reveal insecurity or smugness or any other point on the spec¬trum of character. For him they are the most intricate aspect effaces. He’s never sure what an eye reveals. But he can read how mouths darken into callousness, suggest tenderness. One can often misjudge an eye from its reaction to a simple beam of sunlight.
+How did you hate me? she whispered. You killed almost everything in me.
 
-Everything is gathered by him as part of an altering har¬mony. He sees her in differing hours and locations that alter her voice or nature, even her beauty, the way the background power of the sea cradles or governs the fate of
+Katharine... you didn’t—
 
-第116页共162页 http://www.en8848.com.cn/ 原版英语阅读网
+Hold me. Stop defending yourself. Nothing changes you.
 
-￼￼￼lifeboats.
+Her glare was permanent. I could not move out of the target of that gaze. I will be the last image she sees. The jackal in the cave who will guide and protect her, who will never de¬ceive her.
 
-They were in the habit of rising with daybreak and eating dinner in the last available light. Throughout the late evening there would be only one candle flaring into the darkness beside the English patient, or a lamp half filled with oil if Caravaggio had managed to forage any. But the corridors and other bed¬rooms hung in darkness, as if in a buried city. They became used to walking in darkness, hands out, touching the walls on either side with their fingertips.
+There are a hundred deities associated with animals, I tell her. There are the ones linked to jackals—Anubis, Duamutef, Wepwawet. These are creatures who guide you into the after¬life—as my early ghost accompanied you, those years before we met. All those parties in London and Oxford. Watching you. I sat across from you as you did schoolwork, holding a large pencil. I was there when you met Geoffrey Clifton at two a.m. in the Oxford
 
-“No more light. No more colour.” Hana would sing the phrase to herself again and again. Kip’s unnerving habit of leaping down the stairs one hand halfway down the rail had to be stopped. She imagined his feet travelling through air and hitting the returning Caravaggio in the stomach.
+第138页共162页 http://www.en8848.com.cn/ 原版英语阅读网
 
-She had blown out the candle in the Englishman’s room an hour earlier. She had removed her tennis shoes, her frock was unbuttoned at the neck because of summer heat, the sleeves unbuttoned as well and loose, high up at the arm. A sweet disorder.
+￼￼￼Union Library. Everybody’s coats were strewn on the floor and you in your bare feet like some heron picking your way among them. He is watching you but I am watching you too, though you miss my presence, ignore me. You are at an age when you see only good-looking men. You are not yet aware of those outside your sphere of grace. The jackal is not used much at Oxford as an escort. Whereas I am the man who fasts until I see what I want. The wall behind you is covered in books. Your left hand holds a long loop of pearls that hangs from your neck. Your bare feet picking their way through. You are looking for something. You were more plump in those days, though aptly beautiful for university life.
 
-On the main floor of the wing, apart from the kitchen, library and deserted chapel, was a glassed-in indoor courtyard. Four walls of glass with a glass door that let you into where there was a covered well and shelves of dead plants that at one time must have flourished in the heated room. This indoor courtyard reminded her more and more of a book opened to reveal pressed flowers, something to be glanced at during pass¬ing, never entered.
+There are three of us in the Oxford Union Library, but you find only Geoffrey Clifton. It will be a whirlwind romance. He has some job with archaeologists in North Africa, of all places. “A strange old coot I’m working with.” Your mother is quite delighted at your adventure.
 
-It was two a.m.
+But the spirit of the jackal, who was the “opener of the ways,” whose name was Wepwawet or Almasy, stood in the room with the two of you. My arms folded, watching your attempts at enthusiastic small talk, a problem as you both were drunk. But what was wonderful was that even within the drunkenness of two a.m., each of you somehow recognized the more permanent worth and pleasure of the other. You may have arrived with others, will perhaps cohabit this night with others, but both of you have found your fates.
 
-Each of them entered the villa from a different doorway, Hana at the chapel entrance by the thirty-six steps and he at the north courtyard. As he stepped into the house he removed his watch and slid it into an alcove at chest level where a small saint rested. The patron of this villa hospital. She would not catch a glance of phosphorus. He had already removed his shoes and wore just trousers. The lamp strapped to his arm was switched off. He carried nothing else and just stood there for a while in darkness, a lean boy, a dark turban, the kara loose on his wrist against the skin. He leaned against the corner of the vestibule like a spear.
+At three a.m. you feel you must leave, but you are unable to find one shoe. You hold the other in your hand, a rose-coloured slipper. I see one half buried near me and pick it up. The sheen of it. They are obviously favourite shoes, with the indentation of your toes. Thank you, you say accepting it, as you leave, not even looking at my face.
 
-Then he was gliding through the indoor courtyard. He came into the kitchen and immediately sensed the dog in the dark, caught it and tied it with a rope to the table. He picked up the condensed milk from the kitchen shelf and returned to the glass room in the indoor courtyard. He ran his hands along the base of the door and found the small sticks leaning against it. He entered and closed the door behind him, at the last moment snaking his hand out to prop the sticks up against the door again. In case she had seen them. Then he climbed down into the well. There was a cross-plank three feet down he knew was firm. He closed the lid over himself and crouched there, imagining her searching for him or hiding herself. He began to suck at the can of condensed milk.
+I believe this. When we meet those we fall in love with, there is an aspect of our spirit that is historian, a bit of a pedant, who imagines or remembers a meeting when the other had passed by innocently, just as Clifton might have opened a car door for you a year earlier and ignored the fate of his life. But all parts of the body must be ready for the other, all atoms must jump in one direction for desire to occur.
 
-She suspected something like this from him. Having made her way to the library, she turned on the light on her arm and walked beside the bookcases that stretched from her ankles to unseen heights above her. The door was
+I have lived in the desert for years and I have come to believe in such things. It is a place of pockets. The trompe 1’oeil of time and water. The jackal with one eye that looks back and one that regards the path you consider taking. In his jaws are pieces of the past he delivers to you, and when all of that time is fully discovered it will prove to have been already known.
 
-第117页共162页 http://www.en8848.com.cn/ 原版英语阅读网
+Her eyes looked at me, tired of everything. A terrible wea¬riness. When I pulled her from the plane her stare had tried to receive all things around her. Now the eyes were guarded, as if protecting something inside. I moved closer, and sat on my heels. I leaned forward and put my tongue against the right blue eye, a taste of salt. Pollen. I carried that taste to
 
-￼￼￼closed, so no light could reveal itself to anyone in the halls. He would be able to see the glow on the other side of the French doors only if he was outside. She paused every few feet, searching once again through the predominantly Italian books for the odd English one that she could present to the English patient. She had come to love these books dressed in their Italian spines, the frontispieces, the tipped-in colour illustrations with a covering of tissue, the smell of them, even the sound of the crack if you opened them too fast, as if breaking some minute unseen series of bones. She paused again. The Charterhouse of Parma.
+her mouth. Then the other eye. My tongue against the fine porousness of the eyeball, wiping off the blue; when I moved back there was a sweep of white across her gaze. I parted the lips on her mouth, this time I let the fingers go in deeper and prised the teeth apart, the tongue was “withdrawn,” and I had to pull it forward, there was a
 
-“If I ever get out of my difficulties,” he said to Clelia, “I shall pay a visit to the beautiful pictures at Parma, and then will you deign to remember the name: Fabrizio del Dongo.”
+第139页共162页 http://www.en8848.com.cn/ 原版英语阅读网
 
-Caravaggio lay on the carpet at the far end of the library. From his darkness it seemed that Hana’s left arm was raw phosphorus, lighting the books, reflecting redness onto her dark hair, burning against the cotton of her frock and its puffed sleeve at her shoulder.
+￼￼￼thread, a breath of death in her. It was almost too late. I leaned forward and with my tongue carried the blue pollen to her tongue. We touched this way once. Nothing happened. I pulled back, took a breath and then went forward again. As I met the tongue there was a twitch within it.
 
-He came out of the well.
+Then the terrible snarl, violent and intimate, came out of her upon me. A shudder through her whole body like a path of electricity. She was flung from the propped position against the painted wall. The creature had entered her and it leapt and fell against me. There seemed to be less and less light in the cave. Her neck flipping this way and that.
 
-The three-foot diameter of light spread from her arm and then was absorbed into blackness, so it felt to Caravaggio that there was a valley of darkness between them. She tucked the book with the brown cover under her right arm. As she moved, new books emerged and others disappeared.
+I know the devices of a demon. I was taught as a child about the demon lover. I was told about a beautiful temptress who came to a young man’s room. And he, if he were wise, would demand that she turn around, because demons and witches have no back, only what they wish to present to you. What had I done? What animal had I delivered into her? I had been speaking to her I think for over an hour. Had I been her demon lover? Had I been Madox’s demon friend? This country—had I charted it and turned it into a place of war?
 
-She had grown older. And he loved her more now than he loved her when he had understood her better, when she was the product of her parents. What she was now was what she herself had decided to become. He knew that if he had passed Hana on a street in Europe she would have had a familiar air but he wouldn’t have recognized her. The night he had first come to the villa he had disguised his shock. Her ascetic face, which at first seemed cold, had a sharpness. He realized that during the last two months he had grown towards who she now was. He could hardly believe his pleasure at her transla¬tion. Years before, he had tried to imagine her as an adult but had invented someone with qualities moulded out of her community. Not this wonderful stranger he could love more deeply because she was made up of nothing he had provided.
+It is important to die in holy places. That was one of the secrets of the desert. So Madox walked into a church in Somerset, a place he felt had lost its holiness, and he commit¬ted what he believed was a holy act.
 
-She was lying on the sofa, had twisted the lamp inward so she could read, and had already fallen deep into the book. At some point later she looked up, listening, and quickly switched off the light.
+When I turned her around, her whole body was covered in bright pigment. Herbs and stones and light and the ash of acacia to make her eternal. The body pressed against sacred colour. Only the eye blue removed, made anonymous, a naked map where nothing is depicted, no signature of lake, no dark cluster of mountain as there is north of the Borkou-Ennedi-Tibesti, no lime-green fan where the Nile rivers enter the open palm of Alexandria, the edge of Africa.
 
-Was she conscious of him in the room? Caravaggio was aware of the noisiness of his breath and the difficulty he was having breathing in an ordered, demure way. The light went on for a moment and then was quickly shut off again.
+And all the names of the tribes, the nomads of faith who walked in the monotone of the desert and saw brightness and faith and colour. The way a stone or found metal box or bone can become loved and turn eternal in a prayer. Such glory of this country she enters now and becomes part of. We die containing a richness of lovers and tribes, tastes we have swal¬lowed, bodies we have plunged into and swum up as if rivers of wisdom, characters we have climbed into as if trees, fears we have hidden in as if caves. I wish for all this to be marked on my body when I am dead. I believe in such cartography— to be marked by nature, not just to label ourselves on a map like the names of rich men and women on buildings. We are communal histories, communal books. We are not owned or monogamous in our taste or experience. All I desired was to walk upon such an earth that had no maps.
 
-Then everything in the room seemed to be in movement but Caravaggio. He could hear it all around him, surprised he wasn’t touched. The boy was in the room. Caravaggio walked over to the sofa and placed his hand down towards Hana. She was not there. As he straightened up, an arm went around his neck and pulled him down backwards in a grip. A light glared harshly into his face, and there was a gasp from them both as they fell towards the floor. The arm with the light still holding him at the neck. Then a naked foot emerged into the light,
+I carried Katharine Clifton into the desert, where there is the communal book of moonlight. We were among the rumour of wells. In the palace of winds.
 
-第118页共162页 http://www.en8848.com.cn/ 原版英语阅读网
+Almasy’s face fell to the left, staring at nothing—Caravag-gio’s knees perhaps. “Do you want some morphine now?”
 
-￼￼￼moved past Caravaggio’s face and stepped onto the boy’s neck beside him. Another light went on. “Got you. Got you.”
+第140页共162页 http://www.en8848.com.cn/ 原版英语阅读网
 
-The two bodies on the floor looked up at the dark outline of Hana above the light. She was singing it, “I got you, 1 got you. I used Caravaggio—who really does have a bad wheeze! I knew he would be here. He was the trick.”
+￼￼￼“No.”
 
-Her foot pressed down harder onto the boy’s neck. “Give up. Confess.”
+“Can I get you something?” “Nothing.”
 
-Caravaggio began to shake within the boy’s grip, sweat al¬ready all over him, unable to struggle out. The glare of light from both lamps now on him. He somehow had to climb and crawl out of this terror. Confess. The girl was laughing. He needed to calm his voice before he spoke, but they were hardly listening, excited at their adventure. He worked his way out of the boy’s loosening grip and, not saying a word, left the room.
+X August
 
-They were in darkness again. “Where are you?” she asks. Then moves quickly. He positions himself so she bangs into his chest, and in this way slips her into his arms. She puts her hand to his neck, then her mouth to his mouth. “Condensed milk! During our contest? Condensed milk?” She puts her mouth at his neck, the sweat of it, tasting him where her bare foot had been. “I want to see you.” His light goes on and he sees her, her face streaked with dirt, her hair spiked up in a swirl from perspiration. Her grin towards him.
+CARAVAGGIO CAME DOWN the stairs through darkness and into the kitchen. Some celery on the table, some turnips whose roots were still muddy. The only light came from a fire Hana had recently started. She had her back to him and had not heard his steps into the room. His days at the villa had loosened his body and freed his tenseness, so he seemed big¬ger, more sprawled out in his gestures. Only his silence of movement remained. Otherwise there was an easy inefficiency to him now, a sleepiness to his gestures.
 
-He puts his thin hands up into the loose sleeves of her dress and cups her shoulders with his hands. If she swerves now, his hands go with her. She begins to lean, puts all her weight into her fall backwards, trusting him to come with her, trust¬ing his hands to break the fall. Then he will curl himself up, his feet in the air, just his hands and arms and his mouth on her, the rest of his body the tail of a mantis. The lamp is still strapped against the muscle and sweat of his left arm. Her face slips into the light to kiss and lick and taste. His forehead towelling itself in the wetness of her hair.
+He dragged out the chair so she would turn, realize he was in the room. “Hello, David.”
+
+He raised his arm. He felt that he had been in deserts for too long. “How is he?”
+
+“Asleep. Talked himself out.”
+
+“Is he what you thought he was?”
+
+“He’s fine. We can let him be.”
+
+“I thought so. Kip and I are both sure he is English. Kip thinks the best people are eccentrics, he worked with one.”
+
+“I think Kip is the eccentric myself. Where is he, anyway?”
+
+“He’s plotting something on the terrace, doesn’t want me out there. Something for my birthday.” Hana stood up from her crouch at the grate, wiping her hand on the opposite forearm.
+
+“For your birthday I’m going to tell you a small story,” he said. She looked at him.
+
+“Not about Patrick, okay?”
+
+第141页共162页 http://www.en8848.com.cn/ 原版英语阅读网
+
+￼￼￼“A little about Patrick, mostly about you.”
+
+“I still can’t listen to those stories, David.”
+
+“Fathers die. You keep on loving them in any way you can. You can’t hide him away in your heart.” “Talk to me when the morphia wears off.”
+
+She came up to him and put her arms around him, reached up and kissed his cheek. His embrace tightened around her, his stubble like sand against her skin. She loved that about him now; in the past he had always been meticulous. The parting in his hair like Yonge Street at midnight, Patrick had said. Caravaggio had in the past moved like a god in her pres¬ence. Now, with his face and his trunk filled out and this greyness in him, he was a friendlier human.
+
+Tonight dinner was being prepared by the sapper. Caravag¬gio was not looking forward to it. One meal in three was a loss as far as he was concerned. Kip found vegetables and pre¬sented them barely cooked, just briefly boiled into a soup. It was to be another purist meal, not what Caravaggio wished for after a day such as this when he had been listening to the man upstairs. He opened the cupboard beneath the sink. There, wrapped in damp cloth, was some dried meat, which Caravag¬gio cut and put into his pocket.
 

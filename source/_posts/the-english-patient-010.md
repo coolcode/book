@@ -1,63 +1,119 @@
 title: The English Patient 010
-date: 2015-01-24 15:44:24
+date: 2015-01-25 03:46:06
 tags: the-english-patient
 ---
 
-It was always raining and cold, and there was no order but for the great maps of art that showed judgement, piety and sacrifice. The Eighth Army came upon river after river of destroyed bridges, and their sapper units clambered down banks on ladders of rope within enemy gunfire and swam or waded across. Food and tents were washed away. Men who were tied to equipment disappeared. Once across the river they tried to ascend out of the water. They sank their hands and wrists into the mud wall of the cliff face and hung there. They wanted the mud to harden and hold them.
+第39页共162页 http://www.en8848.com.cn/ 原版英语阅读网
 
-The young Sikh sapper put his cheek against the mud and thought of the Queen of Sheba’s face, the texture of her skin. There was no comfort in this river except for his desire for her, which somehow kept him warm. He would pull the veil off her hair. He would put his right hand between her neck and olive blouse. He too was tired and sad, as the wise king and guilty queen he had seen in Arezzo two weeks earlier.
+￼￼￼that he thinks might be interesting to them. Oi\e afternoon he announces that the bandleader Glenn Miller has died, his plane having crashed somewhere between Eng¬land and France.
 
-He hung over the water, his hands locked into the mud-bank. Character, that subtle art, disappeared among them during those days and nights, existed only in a book or on a painted wall. Who was sadder in that dome’s mural? He leaned forward to rest on the skin of her frail neck. He fell in love with her downcast eye. This woman who would someday know the sacredness of bridges.
+So he moves among them. She sees him in the distance of a defunct garden with the diviner or, if he has found something, unravelling that knot of wires and fuzes someone has left him like a terrible letter.
 
-第36页共162页 http://www.en8848.com.cn/ 原版英语阅读网
+He is always washing his hands. Caravaggio at first thinks he is too fussy. “How did you get through a war?” Caravaggio laughs.
 
-￼￼￼At night in the camp bed, his arms stretched out into dis¬tance like two armies. There was no promise of solution or victory except for the temporary pact between him and that painted fresco’s royalty who would forget him, never acknowl¬edge his existence or be aware of him, a Sikh, halfway up a sapper’s ladder in the rain, erecting a Bailey bridge for the army behind him. But he remembered the painting of their story. And when a month later the battalions reached the sea, after they had survived everything and entered the coastal town of Cattolica and the engineers had cleared the beach of mines in a twenty-yard stretch so the men could go down naked into the sea, he approached one of the mediaevalists who had befriended him—who had once simply talked with him and shared some Spam—and promised to show him some¬thing in return for his kindness.
+“I grew up in India, Uncle. You wash your hands all the time. Before all meals. A habit. I was born in the Punjab.”
 
-The sapper signed out a Triumph motorbike, strapped a crimson emergency light onto his arm, and they rode back the way they had come—back into and through the now innocent towns like Urbino and Anghiari, along the winding crest of the mountain ridge that was a spine down Italy, the old man bundled up behind him hugging him, and down the western slope towards Arezzo. The piazza at night was empty of troops, and the sapper parked in front of the church. He helped the mediaevalist off, collected his equipment and walked into the church. A colder darkness. A greater emptiness, the sound of his boots filling the area. Once more he smelled the old stone and wood. He lit three flares. He slung block and tackle across the columns above the nave, then fired a rivet already threaded with rope into a high wooden beam. The professor was watch¬ing him bemused, now and then peering up into the high darkness. The young sapper circled him and knotted a sling across his waist and shoulders, taped a small lit flare to the old man’s chest.
+“I’m from Upper America,” she says.
 
-He left him there by the communion rail and noisily climbed the stairs to the upper level, where the other end of the rope was. Holding onto it, he stepped off the balcony into the dark¬ness, and the old man was simultaneously swung up, hoisted up fast until, when the sapper touched ground, he swung idly in midair within three feet of the frescoed walls, the flare brightening a halo around him. Still holding the rope the sap¬per walked forward until the man swung to the right to hover in front of The Flight of Emperor Maxentius.
+He sleeps half in and half out of the tent. She sees his hands remove the earphone and drop it onto his lap. Then Hana puts down the glasses and turns away.
 
-Five minutes later he let the man down. He lit a flare for himself and hoisted his body up into the dome within the deep blue of the artificial sky. He remembered its gold stars from the time he had gazed on it with binoculars. Looking down he saw the mediaevalist sitting on a bench, exhausted. He was now aware of the depth of this church, not its height. The liquid sense of it. The hollowness and darkness of a well. The flare sprayed out of his hand like a wand. He pulleyed himself across to her face, his Queen of Sadness, and his brown hand reached out small against the giant neck.
+They were under the huge vault. The sergeant lit a flare, and the sapper lay on the floor and looked up through the rifle’s telescope, looked at the ochre faces as if he were search¬ing for a brother in the crowd. The cross hairs shook along the biblical figures, the light dousing the coloured vestments and flesh darkened by hundreds of years of oil and candle smoke. And now this yellow gas smoke, which they knew was outra¬geous in this sanctuary, so the soldiers would be thrown out, would be remembered for abusing the permission they re¬ceived to see the Great Hall, which they had come to, wading up beachheads and the one thousand skirmishes of small wars and the bombing of Monte Cassino and then walking in hushed politeness through the Raphael Stanze till they were here, finally, seventeen men who had landed in Sicily and fought their way up the ankle of the country to be here— where they were offered just a mostly dark hall. As if being in the presence of the place was enough.
 
-The Sikh sets up a tent in the far reaches of the garden, where Hana thinks lavender was once grown. She has found dry leaves in that area which she has rolled in her fingers and identified. Now and then after a rain she recognizes the per¬fume of it.
+And one of them had said, “Damn. Maybe more light, Sergeant Shand?” And the sergeant released the catch of the flare and held it up in his outstretched arm, the niagara of its light pouring off his fist, and stood there for the length of its burn like that. The rest of them stood looking up at the figures and faces crowded onto the ceiling that emerged in the light. But the young sapper was already on his back, the rifle aimed, his eye almost brushing the beards of Noah and Abraham and the variety of demons until he reached the great face and was stilled by it, the face like a spear, wise, unforgiving.
 
-At first he will not come into the house at all. He walks past on some duty or other to do with the dismantling of mines. Always courteous. A little nod of his head. Hana sees him wash at a basin of collected rainwater, placed formally on top of a sundial. The garden tap, used in previous times for the seedbeds, is now dry. She sees his
+The guards were yelling at the entrance and he could hear the running steps, just another thirty seconds left on the flare. He rolled over and handed the rifle to the padre. “That one. Who is he? At three o’clock northwest, who is he? Quick, the flare is almost out.”
 
-第37页共162页 http://www.en8848.com.cn/ 原版英语阅读网
+The padre cradled the rifle and swept it over to the corner, and the flare died.
 
-￼￼￼shirtless brown body as he tosses water over himself like a bird using its wing. During the day she notices mostly his arms in the short-sleeved army shirt and the rifle which is always with him, even though battles seem now to be over for them.
+第40页共162页 http://www.en8848.com.cn/ 原版英语阅读网
 
-He has various postures with the gun—half-staff, half a crook for his elbows when it is over his shoulders. He will turn, suddenly realizing she is watching him. He is a survivor of his fears, will step around anything suspicious, acknowledg¬ing her look in this panorama as if claiming he can deal with it all.
+￼￼￼He returned the rifle to the young Sikh.
 
-He is a relief to her in his self-sufficiency, to all of them in the house, though Caravaggio grumbles at the sapper’s contin¬uous humming of Western songs he has learned for himself in the last three years of the war. The other sapper, who had arrived with him in the rainstorm, Hardy he was called, is billeted elsewhere, nearer the town, though she has seen them working together, entering a garden with their wands of gad-getry to clear mines.
+“You know we shall all be in serious trouble over this light¬ing of weapons in the Sistine Chapel. I should not have come here. But I also must thank Sergeant Shand, he was heroic to do it. No real damage has been done, I suppose.”
 
-The dog has stuck by Caravaggio. The young soldier, who will run and leap with the dog along the path, refuses to give it food of any kind, feeling it should survive on its own. If he finds food he eats it himself. His courtesy goes only so far. Some nights he sleeps on the parapet that overlooks the valley, crawling into his tent only if it rains.
+“Did you see it? The face. Who was it?” “Ah yes, it is a great face.”
 
-He, for his part, witnesses Caravaggio’s wanderings at night. On two occasions the sapper trails Caravaggio at a dis¬tance. But two days later Caravaggio stops him and says, Don’t follow me again. He begins to deny it, but the older man puts his hand across his lying face and quiets him. So the soldier knows Caravaggio was aware of him two nights before. In any case, the trailing was simply a remnant of a habit he had been taught during the war. Just as even now he desires to aim his rifle and fire and hit some target precisely. Again and again he aims at a nose on a statue or one of the brown hawks veering across the sky of the valley.
+“You saw it.”
 
-He is still very much a youth. He wolfs down food, jumps up to clear away his plate, allowing himself half an hour for lunch.
+“Yes. Isaiah.”
 
-She has watched him at work, careful and timeless as a cat, in the orchard and within the overgrown garden that rises behind the house. She notices the darker brown skin of his wrist, which slides freely within the bangle that clinks some¬times when he drinks a cup of tea in front of her.
+When the Eighth Army got to Gabicce on the east coast, the sapper was head of night patrol. On the second night he re¬ceived a signal over the shortwave that there was enemy move¬ment in the water. The patrol sent out a shell and the water erupted, a rough warning shot. They did not hit anything, but in the white spray of the explosion he picked up a darker outline of movement. He raised the rifle and held the drifting shadow in his sights for a full minute, deciding not to shoot in order to see if there would be other movement nearby. The enemy was still camped up north, in Rimini, on the edge of the city. He had the shadow in his sights when the halo was suddenly illuminated around the head of the Virgin Mary. She was coming out of the sea.
 
-He never speaks about the danger that comes with his kind of searching. Now and then an explosion brings her and Ca-ravaggio quickly out of the house, her heart taut from the muffled blast. She runs out or runs to a window seeing Cara-vaggio too in the corner of her vision, and they will see the sapper waving lazily towards the house, not even turning around from the herb terrace.
+She was standing in a boat. Two men rowed. Two other men held her upright, and as they touched the beach the people of the town began to applaud from their dark and opened windows.
 
-Once Caravaggio entered the library and saw the sapper up by the ceiling, against the trompe 1’oeil—only Caravaggio would walk into a room and look up into the high corners to see if he was alone—and the young soldier, his eyes not leav¬ing their focus, put out his palm and snapped his fingers, halting Caravaggio in his
+The sapper could see the cream-coloured face and the halo of small battery lights. He was lying on the concrete pillbox, between the town and the sea, watching her as the four men climbed out of the boat and lifted the five- foot-tall plaster statue into their arms. They walked up the beach, without pausing, no hesitation for the mines. Perhaps they had watched them being buried and charted them when the Ger¬mans had been there. Their feet sank into the sand. This was Gabicce Mare on May 29, 1944. Marine Festival of the Virgin Mary.
 
-第38页共162页 http://www.en8848.com.cn/ 原版英语阅读网
+Adults and children were on the streets. Men in band uni¬forms had also emerged. The band would not play and break the rules of curfew, but the instruments were still part of the ceremony, immaculately polished.
 
-￼￼￼entrance, a warning to leave the room for safety as he unthreaded and cut a fuze wire he had traced to that corner, hidden above the valance.
+He slid from the darkness, the mortar tube strapped to his back, carrying the rifle in his hands. In his turban and with the weapons he was a shock to them. They had not expected him to emerge too out of the no-man’s-land of the beach.
 
-He is always humming or whistling. “Who is whistling?” asks the English patient one night, having not met or even seen the newcomer. Always singing to himself as he lies upon the parapet looking up at a shift of clouds.
+He raised his rifle and picked up her face in the gun sight —ageless, without sexuality, the foreground of the men’s dark hands reaching into her light, the gracious nod of the twenty small light bulbs. The figure wore a pale
 
-When he steps into the seemingly empty villa he is noisy. He is the only one of them who has remained in uniform. Immaculate, buckles shined, the sapper appears out of his tent, his turban symmetrically layered, the boots clean and banging into the wood or stone floors of the house. On a dime he turns from a problem he is working on and breaks into laughter. He seems unconsciously in love with his body, with his physicalness, bending over to pick up a slice of bread, his knuckles brushing the grass, even twirling the rifle absent-mindedly like a huge mace as he walks along the path of cy¬presses to meet the other sappers in the village.
+第41页共162页 http://www.en8848.com.cn/ 原版英语阅读网
 
-He seems casually content with this small group in the villa, some kind of loose star on the edge of their system. This is like a holiday for him after the war of mud and rivers and bridges. He enters the house only when invited in, just a tentative visitor, the way he had done that first night when he had followed the faltering sound of Hana’s piano and come up the cypress-lined path and stepped into the library.
+￼￼￼blue cloak, her left knee raised slightly to suggest drapery.
 
-He had approached the villa on that night of the storm not out of curiosity about the music but because of a danger to the piano player. The retreating army often left pencil mines within musical instruments. Returning owners opened up pi¬anos and lost their hands. People would revive the swing on a grandfather clock, and a glass bomb would blow out half a wall and whoever was nearby.
+They were not romantic people. They had survived the Fas¬cists, the English, Gauls, Goths and Germans. They had been owned so often it meant nothing. But this blue and cream plaster figure had come out of the sea, was placed in a grape truck full of flowers, while the band marched ahead of her in silence. Whatever protection he was supposed to provide for this town was meaningless. He couldn’t walk among their children in white dresses with these guns.
 
-He followed the noise of the piano, rushing up the hill with Hardy, climbed over the stone wall and entered the villa As long as there was no pause it meant the player would not lean forward and pull out the thin metal band to set the metronome going. Most pencil bombs were hidden in these—the easiest place to solder the thin layer of wire upright. Bombs were attached to taps, to the spines of books, they were drilled into fruit trees so an apple falling onto a lower branch would deto¬nate the tree, just as a hand gripping that branch would. He was unable to look at a room or field without seeing the possi¬bilities of weapons there.
+He moved one street south of them and walked at the speed of the statue’s movement, so they reached the joining streets at the same time. He raised his rifle to pick up her face once again in his sights. It all ended on a promontory overlooking the sea, where they left her and returned to their homes. None of them was aware of his continued presence on the periphery.
 
-He had paused by the French doors, leaned his head against the frame, then slid into the room and except for moments of lightning remained within the darkness. There was a girl standing, as if waiting for him, looking down at the keys she was playing. His eyes took in the room before they took her in, swept across it like a spray of radar. The metronome was ticking already, swaying innocently back and forth. There was no danger, no tiny wire. He stood there in his wet uniform, the young woman at first unaware of his entrance.
+Her face was still lit. The four men who had brought her by boat sat in a square around her like sentries. The battery attached to her back began to fade; it died at about four-thirty in the morning. He glanced at his watch then. He picked up the men with the rifle telescope. Two were asleep. He swung the sights up to her face and studied her again. A different look in the fading light around her. A face which in the dark¬ness looked more like someone he knew. A sister. Someday a daughter. If he could have parted with it, the sapper would have left something there as his gesture. But he had his own faith after all.
 
-Beside his tent the antenna of a crystal set is strung up into the trees. She can see the phosphorus green from the radio dial if she looks over there at night with Caravaggio’s field glasses, the sapper’s shifting body covering it up suddenly if he moves across the path of vision. He wears the portable contraption during the day, just one earphone attached to his head, the other loose under his chin, so he can hear sounds from the rest of the world that might be important to him. He will come into the house to pass on whatever information he has picked up
+Caravaggio enters the library. He has been spending most afternoons there. As always, books are mystical creatures to him. He plucks one out and opens it to the title page. He is in the room about five minutes before he hears a slight groan.
+
+He turns and sees Hana asleep on the sofa. He closes the book and leans back against the thigh-high ledge under the shelves. She is curled up, her left cheek on the dusty brocade and her right arm up towards her face, a fist against her jaw. Her eyebrows shift, the face concentrating within sleep.
+
+When he had first seen her after all this time she had looked taut, boiled down to just body enough to get her through this efficiently. Her body had been in a war and, as in love, it had used every part of itself.
+
+He sneezed out loud, and when he looked up from the movement of his tossed-down head she was awake, the eyes open staring ahead at him. “Guess what time it is.”
+
+“About four-oh-five. No, four-oh-seven,” she said. It was an old game between a man and a child. He slipped out of the room to look for the clock, and by his movement and assuredness she could tell he had recently taken morphine, was refreshed and precise, with his familiar confidence. She sat up and smiled when he came back shaking his head with wonder at her accuracy.
+
+“I was born with a sundial in my head, right?” “And at night?”
+
+第42页共162页 http://www.en8848.com.cn/ 原版英语阅读网
+
+￼￼￼“Do they have moondials? Has anyone invented one? Per¬haps every architect preparing a villa hides a moondial for thieves, like a necessary tithe.”
+
+“A good worry for the rich.”
+
+“Meet me at the moondial, David. A place where the weak can enter the strong.” “Like the English patient and you?”
+
+“I was almost going to have a baby a year ago.”
+
+Now that his mind is light and exact with the drug, she can whip around and he will be with her, thinking alongside her. And she is being open, not quite realizing she is awake and conversing, as if still speaking in a dream, as if his sneeze had been the sneeze in a dream.
+
+Caravaggio is familiar with this state. He has often met people at the moondial. Disturbing them at two a.m. as a whole bedroom cupboard came crashing down by mistake. Such shocks, he discovered, kept them away from fear and violence. Disturbed by owners of houses he was robbing, he would clap his hands and converse frantically, flinging an ex¬pensive clock into the air and catching it in his hands, quickly asking them questions, about where things were.
+
+“I lost the child. I mean, I had to lose it. The father was already dead. There was a war.”
+
+“Were you in Italy?”
+
+“In Sicily, about the time this happened. All through the time we came up the Adriatic behind the troops I thought of it. I had continued conversations with the child. I worked very hard in the hospitals and retreated from everybody around me. Except the child, who I shared everything with. In my head. I was talking to him while I bathed and nursed patients. I was a little crazy.”
+
+“And then your father died.”
+
+“Yes. Then Patrick died. I was in Pisa when I heard.”
+
+She was awake. Sitting up.
+
+“You knew, huh?”
+
+“I got a letter from home.”
+
+“Is that why you came here, because you knew?”
+
+第43页共162页 http://www.en8848.com.cn/ 原版英语阅读网
+
+￼￼￼“No.”
+
+“Good. I don’t think that he believed in wakes and such things. Patrick used to say he wanted a duet by two women on musical instruments when he died. Squeeze-box and violin. That’s all. He was so damn sentimental.”
+
+“Yes. You could really make him do anything. Find him a woman in distress and he was lost.”
+
+The wind rose up out of the valley to their hill so the cypress trees that lined the thirty-six steps outside the chapel wrestled with it. Drops of earlier rain nudged off, falling with a ticking sound upon the two of them sitting on the balustrade by the steps. It was long after midnight. She was lying on the con¬crete ledge, and he paced or leaned out looking down into the valley. Only the sound of the dislodged rain.
+
+“When did you stop talking to the baby?”
+
+“It all got too busy, suddenly. Troops were going into battles at the Moro Bridge and then into Urbino. Maybe in Urbino I stopped. You felt you could be shot anytime there, not just if you were a soldier, but a priest or nurse. It was a rabbit warren, those narrow tilted streets. Soldiers were coming in with just bits of their bodies, falling in love with me for an hour and then dying. It was important to remember their names. But I kept seeing the child whenever they died. Being washed away. Some would sit up and rip all their dressings off trying to breathe better. Some would be worried about tiny scratches on their arms when they died. Then the bubble in the mouth. That little pop. I leaned forward to close a dead soldier’s eyes, and he opened them and sneered, “Can’t wait to have me dead? You bitchl” He sat up and swept everything on my tray to the floor. So furious. Who would want to die like that? To die with that kind of anger. You bitchl After that I always waited for the bubble in their mouths. I know death now, David. I know all the smells, I know how to divert them from agony. When to give the quick jolt of morphine in a major vein. The saline solution. To make them empty their bowels before they die. Every damn general should have had my job. Every damn general. It should have been a prerequisite for any river crossing. Who the hell were we to be given this responsibility, expected to be wise as old priests, to know how to lead people towards something no one wanted and somehow make them feel comfortable. I could never believe in all those services they gave for the dead. Their vulgar rhetoric. How dare they! How dare they talk like that about a human being dying.”
 

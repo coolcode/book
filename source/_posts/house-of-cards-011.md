@@ -1,93 +1,89 @@
 title: House of Cards 011
-date: 2015-01-24 15:44:23
+date: 2015-01-25 03:46:06
 tags: house-of-cards
 ---
 
-'And let me assure you, Roger, that I know precisely what you have been spending the money on,' he said quietly.
+￼The Prime Minister rose ponderously to his feet and glanced at the red briefing folder already open on the Despatch Box in front of him. He read in a monotone.
 
-He took a sip from his cognac as his victim remained motionless, transfixed. 'Roger, as Chief Whip I have to become familiar with every problem known to man. Do you know, in the last two years I have had to deal with cases of wife beating, adultery, fraud, mental illness. I've even had a case of incest. We didn't let him stand for re-election, of course, but there was nothing to be gained by making a public fuss about such things. That's why you almost never hear about them, incest I draw the line at but in general we don't moralise, Roger. Every man is allowed one weakness or indulgence - so long as it remains a private one’
+‘I refer the Honourable Member to the reply I gave some moments ago to Questions One, Two and Four’ Since his earlier reply had said no more than that he would spend the day holding meetings with ministerial colleagues and hosting a dinner for the visiting Belgian Prime Minister, no one had yet learned anything of interest about the Prime Minister's activities - which was precisely his intention.
 
-He paused. In fact, one of my Junior Whips is a doctor who was appointed specifically to help me spot the signs of strain, and we get quite practised at it After all, we have well over 300 MPs to look after, all of whom are living on the edge and under immense pressure. You'd be surprised, too, how many cases of drug abuse we get at Westminster. The specialists say there is something like 10 per cent of the population, including MPs, who are physiologically or psychologically vulnerable to chemical addiction of one sort or another. Not their fault, it's something in their makeup, and they have much more trouble than the rest of us in resisting drink, pills and the rest. There's a charming and utterly private drying- out farm just outside Dover where we send them, sometimes for a couple of months. Most of them recover completely and return to a full political life.'
+Collingridge resumed his seat, and the Speaker summoned Kendrick once more to place his supplementary question. The gladiatorial courtesies were now over, and battle was about to commence. Kendrick rose to his feet from the rear row of the Opposition benches.
 
-He paused yet again to swill the cognac around his glass and sip it gently, but continued to watch O'Neill closely. The other man did not stir. He sat there as if petrified.
+Kendrick was a gambler, a man who had found professional success in an industry which emphasised ostentatious reward, yet who had decided to risk his expense account and sports car by fighting a marginal parliamentary seat. Not that he had really expected or indeed wanted to win; after all, the Government had been sitting on a pretty reasonable majority. Fighting the seat, he reasoned, would give him a platform and a prominence which would help him both socially and professionally, and would certainly give him a higher profile in the public relations trade magazines. The man with the social conscience' always made good copy in an aggressively commercial industry, and the ability to be able to drop a name or two usually helped.
 
-'But it helps to catch them early,' Urquhart continued, 'which is why we are so sensitive to the signs of drug abuse. Like cocaine. It's become a real problem recently. They tell me it's fashionable - whatever that means - and too damned easy to obtain. Do you know it can rot your nasal membranes clean away if you let it? Funny drug. Gives people an instant high and persuades them that their brain and senses can complete five hours' work in just five minutes. Makes a good man brilliant, so they say. Pity it's so addictive’
+His majority of 76, after three recounts, at first had come as an unpleasant shock as suddenly he was forced to contemplate the reduced income and additional hours of a parliamentary career. It would not be much of a career at that, either, since he knew the odds were that after the next election he would probably be looking for a new seat or a new job. In either case he knew that the plodding progress of a loyal and patient backbencher was not for him. He would have to make his mark, and make it quickly.
 
-There was another pause. 'And expensive’
+Kendrick had spent all of the previous evening and much of that morning turning over O'Neill's remarks in his mind. Why cancel a publicity campaign promoting a vote-winning policy which had been sold heavily during the election, when the campaign was all set to go? Whichever way he looked at it, the pieces would only fit together into a pattern suggesting that it was the policy rather than the publicity campaign which was in trouble. But should he enquire or accuse? To question or condemn? Or simply take the course expected of new Members and be completely anodyne? He knew that if he got it wrong, the first and lasting impression he made would be that of the House fool.
 
-Urquhart had not taken his eyes off O'Neill for a second during his narrative, and had witnessed the exquisite agony which had racked O'Neill inside. Any doubt about his diagnosis that he had started with had been brushed aside with the whimpering which began slowly to emerge from the other man. Now his words were tortured and pleading.
+His momentary uncertainty caused the general commotion of the House to die away as MPs sensed indecision and surprise. Had the new Member frozen? But Kendrick felt calm and at ease. He remembered his small majority, and he knew he must gamble. What had he got to lose, except his dignity, which in any event was a commodity of little practical value in the modem House of Commons? He took a deep breath.
 
-'What are you saying? I am not a drug addict. I don't do drugs!'
+'Will the Prime Minister explain to the House why he is not implementing the promised hospital expansion programme?'
 
-'No, of course not, Roger.' Urquhart adopted his most reassuring tone. 'But I think you must accept that there are some people who could jump to the most unfortunate conclusions about you. And the Prime Minister, you know, is not a man to take chances. It's not a matter of condemning a man without trial, simply opting for a quiet life without unnecessary risks.'
+No criticism. No elaboration. No added phrase or rambling comment which would allow the Prime Minister to dodge or divert the question. Kendrick had thrown his grenade and he knew that if his gamble were wrong the grenade would be picked up by a grateful Prime Minister and thrown directly back to explode in his own lap.
 
-The Prime Minister can't believe this!' O'Neill gasped as if he had been butted by a charging bull.
+A murmur went up as he resumed his seat. The sport had taken an interesting new turn, and the 300-odd spectators turned as one to look towards Collingridge. He rose aware that there was nothing in his red briefing folder from which to draw inspiration. The whole House could see the broad smile with which Collingridge accepted the challenge; only those sitting very close to him could see the whites of his knuckles as he gripped the Despatch Box.
 
-I'm afraid that the Chairman was a little less than helpful with the PM the other day - he knows nothing, of course, but I don't think the dear Lord Williams is one of your greatest fans. Don't worry, I reassured the Prime Minister about you, and you have nothing to fear. As long as you have my support.'
+‘I hope that the Honourable Gentleman will be careful to avoid being carried away by the summer silly season, at least before August arrives. As he is a new Member, may I remind him that in the last four years under this Government the health service has enjoyed a substantial real increase in spending of some 6 to 8 per cent?' Collingridge knew he was being inexcusably patronising, but he could not find the right words. 'The health service has gained more than any Government service from our success and continuing determination in defeating inflation, which compares...'
 
-Urquhart knew full well of the paranoia which dominates the minds of cocaine addicts, and the impact which his totally invented story about the Chairman's disaffection would leave on O'Neill's helter-skelter emotions. He also knew that the paranoia was matched by a lust for notoriety, which O'Neill could only achieve through his political connections and the continued patronage of the Prime Minister, and this he could not bear to lose. 'As long as you have my support’ rang in O'Neill's ears. 'One slip and you are dead’ it was saying. The web around O'Neill was complete, and now Urquhart offered him the way out.
+'Answer the bloody question,' came the irreverent growl from below the gangway on the Opposition benches, which was immediately echoed by several Members around the interrupter. Kendrick was no longer alone.
 
-'You see, Roger, I have seen gossip destroy so many men. Gossip founded on no more than circumstantial evidence or even naked jealousy, perhaps, but you know that the corridors around Westminster have been killing fields for less fortunate people than you or me. It would be a tragedy if you were pilloried either because of Lord Williams' hostility towards you or because people misunderstood your arrangement about expenses
+‘I shall answer the question in my own way and in my own time,' snapped the Prime Minister. It is a pathetic sham for the Opposition to whine on about such matters when they know that electors have reached their own conclusions and only recently voted with their feet for this Government. They support us and I can repeat our determination to protect them and their hospital service’
 
-and your - hay fever.’
+Increasingly rude shouts of disapproval began to rise from the Opposition benches, most of which would go unrecorded by Hansard but which were clearly audible to the Prime Minister. His own backbenchers began to shift uneasily, uncertain as to why Collingridge did not simply reaffirm often stated party policy.
 
-'What should I do?' The voice was plaintive.
+The House will be aware that it is not the custom of Governments to discuss the specifics of new spending plans in advance, and we shall make an announcement about our intentions at the appropriate time’
 
-'Your position is a delicate one, particularly at a time when the political currents within the Government are ebbing and flowing. I would suggest that you trust me. You need a strong supporter in the inner circles of the Party, particularly as the Prime Minister appears to be getting into more difficult waters and will be concentrating on rescuing himself rather than spending his time rescuing others.'
+You have. You've bloody dropped it, haven't you?' the Honourable and usually disrespectful Member for Newcastle West shouted, so loudly that even Hansard could not claim to have missed it.
 
-He paused to watch O'Neill writhe in his chair. ‘I would suggest the following. I shall tell the agency I have fully established that your expenses are legitimate. I shall ask them to continue with the arrangement, on the basis that we are doing it this way to avoid unhelpful jealousy from some of your colleagues within party headquarters who do not support extensive advertising budgets and who might use your high but perfectly legitimate
+The Opposition Front Bench smiled and chuckled, beginning to appreciate that the Prime Minister's increasingly taut smile hid inner turmoil. The Leader of the Opposition, not six feet from where Collingridge stood, turned to his nearest colleague and whispered loudly. T)o you know I think he's fluffed it. He's running away!' Opposition Members began taunting him from all around, slapping their thighs and chortling like old hags around a guillotine.
 
-￼expenses to attack the whole communications set-up. The agency can regard it as a sensible insurance policy. Also, I shall ensure that the Prime Minister continues to be fully informed of the good work you are doing for the Party. I shall certainly try to persuade him of the need to continue a high level publicity campaign to get him through the difficult months ahead, so that your budget is not cut to shreds by the Chairman.'
+The tension and pain of a thousand such encounters in the House welled up inside Collingridge. He was unprepared for this. He could not bring
 
-'You know I would be most grateful...' O'Neill mumbled.
+￼himself to admit the truth, yet neither could he lie to the House, and he could find no form of words which would tread that delicate line between honesty and outright deceit. As he observed the sneers and smugness on the faces in front of him and listened to their jeers, he remembered all the many lies they had told about him in the past, the cruelty they had shown and the tears they had caused his wife to shed. As he gazed at the sea of waving Order Papers and contorted faces just a few feet in front of him, his patience vanished. He had to bring it to an end, and he no longer cared how. He threw his hands in the air.
 
-In return, you will keep me informed of eveiything that is going on at party headquarters and in particular what the Chairman is up to. He's a very ambitious and dangerous man, you know. Playing his own game while professing loyalty to the Prime Minister. Between us, though, I think we can ensure that no harm is done to the Prime Minister's - or to your - interests. You must be my eyes and ears, Roger, and you will have to let me know immediately of anything you hear of the Chairman's plans. Your future could depend upon it.' He punched home the words to let O'Neill be in no doubt that he meant it.
+‘I don't have to take comments like that from a pack of dogs’ he snarled, and sat down.
 
-‘We must work together on this. You will have to help me. I know how much you love politics and the Party, and I think the two of us together can help steer the Party through some difficult times ahead.'
+Even before the shout of triumph and rage had a chance to rise from the Opposition benches, Kendrick was back on his feet.
 
-'Thank you,' O'Neill whispered.
+'On a point of order, Mr Speaker. The Prime Minister's remarks are an absolute disgrace. I asked a perfectly straightforward question about why the Prime Minister had reneged on his election promise to patients and nurses, and all I have got are insults and evasion. While I understand the Prime Minister's reluctance to admit to the House that he has perpetrated a gigantic and disgraceful fraud, is there nothing you can do to protect the right of Members of this House to get a straight answer to a straight question?'
 
-￼WEDNESDAY 30th JUNE
+A roar of approval grew from Opposition members as the Speaker struggled to be heard above the commotion. "The Honourable Member, although he is new, seems already to have developed a sharp eye for parliamentary procedure, in which case he will know that I am no more responsible for the content or tone of the Prime Minister's replies than I am for the questions which are put to him. Next business!'
 
-The Strangers Bar in the House of Commons is a small, dark room overlooking the Thames where Members of Parliament may take their 'Stranger' or non-Member guests. As a result it is usually crowded and noisy with rumour and gossip. Tonight was no exception as O'Neill propped up the bar with one elbow and struggled valiantly with the other to avoid knocking the drink out of his host's hand.
+As the Speaker tried to move matters on, a red-faced Collingridge rose and strode angrily out of the Chamber, gesticulating for the Chief Whip to follow him. The very unparliamentary taunt of 'Coward!' rang after him across the floor. From the Government benches there was an uncertain silence.
 
-'Another one, Steve?' he asked of his immaculately dressed companion.
+'How in Christ's name did he know? How did that son-of-a-bitch know?'
 
-Stephen Kendrick looked somewhat out of place in his light grey Armani mohair suit, pearl white cuffs and immaculately manicured hands clasped around a glass of Federation bitter, a draught beer for which the bars of the Palace of Westminster afford a warm home.
+The door had barely closed upon the Prime Minister's .office just off the rear of the Chamber when the screaming began. The normally suave exterior of Her Majesty's First Minister had been drawn back to reveal a wild Warwickshire ferret.
 
-'Now you know better than me that Strangers can't buy drinks here. And anyway, I've only been here two weeks and I wouldn't want to ruin my career by having anyone see the Prime Minister's pet Irish wolfhound forcing drinks down the Opposition's newest and fastest rising backbencher. Some of my more dogmatic colleagues would treat that as treachery!'
+'Francis, it's simply not good enough. It's not bloody good enough I tell you. We get the Chancellor's report in Cabinet Committee yesterday, the full Cabinet discusses it for the first time today, and by this afternoon it's known to every snivelling creep in the Opposition. Less than two dozen Cabinet Ministers knew, only a handful of civil servants knew, but now every single Member of the Opposition knows. Who leaked it, Francis, who? I'm damned if I know, but you're Chief Whip and I want you to find out who the hell it was.'
 
-He grinned and winked at the barmaid to attract her attention. Another pint of dark bitter and a double vodka-tonic were quick in coming.
+Urquhart breathed a huge sigh of relief. Until the Prime Minister's outburst he had no idea if the finger of blame was already pointing at him, and the last couple of minutes had been distinctly uncomfortable.
 
-‘You know, Rog, I'm still pinching myself. I never really expected to get here, and I still can't decide whether it's a dream or just a bloody awful nightmare. When we worked together at the same little PR shop seven years ago, who would have guessed you would now be the chief grunter for the Prime Minister and I would be a humble if wonderfully talented Opposition MP?'
+It simply astonishes me that one of our Cabinet colleagues would want deliberately to leak something like this,' Urquhart began, implicitly ruling out the possibility of a civil service leak and narrowing the circle of suspicion to include each and every one of his Cabinet colleagues.
 
-'Certainly not that little blonde telephonist we used to take turns with’ ribbed O'Neill. They both chuckled at the memory of younger and more frivolous days.
+They've got us by the balls now, and it's going to hurt. Whoever is responsible had humiliated me, and I want him out, Francis. I want-I insist- that you find the worm. And men I want him fed to the crows.'
 
-'Dear little Annie’ mused Kendrick.
+I'm afraid there's been too much bickering amongst our colleagues since the election. Too many of them seem to want someone else's job.'
 
-‘I thought her name was Jennie’ protested O'Neill.
+‘I know they all want my job, damn them, but who would be so - cretinous...' — the words were spat out — 'as to deliberately leak something like that?'
 
-'Rog, in those days I never remember you being fussy about what they were called.'
+‘I can't say for sure, Prime Minister.'
 
-The banter finally broke the ice between the two men which had been slowly thawing with the drink. When O'Neill had telephoned the new MP to suggest a drink for old times' sake, they had both found it difficult to revive the easy familiarity which they had known in earlier years. They had been careful, perhaps too careful, to avoid the subject of politics which now dominated both their lives and it had forced their conversation along artificial lines. Now O'Neill decided to take the plunge.
+'Can't you even give me an educated guess, for Chris-sake?'
 
-'Steve, I don't mind you buying the drinks all night as far as I'm concerned. The way my masters are going at the moment, I think a saint would be driven to drink.'
+That would not be fair.'
 
-Kendrick accepted the opening. Tour lot do seem to be getting their robes of office in something of a twist. There are all sorts of weird rumours going round this place about how Samuel is furious with Williams for putting his head on the block with the PM, Williams is furious with Collingridge for screwing up the election campaign, and Collingridge is furious with just about everyone.'
+'Life's not fair, Francis. Tell me about it.'
 
-'Maybe it's simply that they are all tired after the election and can't wait to get away on holiday’ O'Neill responded. 'Like an irritable family squabbling about how the car is packed before taking a long trip.'
+'But...'
 
-If you don't mind me saying, old chum, I think your leader is going to have to put an end to all the bickering very quickly, or else hell go into the Summer Recess with the family looking more like a pack of Westminster alley cats. No Prime Minister can afford to let those sort of rumours run away from him, otherwise they begin to gain a life of their own. They become reality. Still, that's where you and your vast publicity budgets come to the rescue, like the Seventh Cavalry over the hill.'
+‘No "buts", Francis. If it's happened once it can and almost certainly will happen again. Accuse, imply, whatever you damned well like. There are no minutes being taken here. But I want some names!' Collingridge kicked a chair in frustration.
 
-'More like Custer's last bloody stand’ O'Neill said with some bitterness.
+If you insist, I'll speculate. But I hope I’ll not live to regret anything I'm going to say. I know nothing for sure, you understand... let's work from deduction. Given die time scale involved, it seems more likely to have leaked from yesterday's Cabinet Committee rather than from today's full Cabinet. Agreed?'
 
-'What's the matter, Rog, Uncle Teddy run off with all your toy soldiers or something?' Kendrick asked with genuine curiosity.
+Collingridge nodded his assent.
 
-O'Neill emptied his glass and Kendrick ordered another round.
+'And apart from you and me, who is on that Committee?'
 
-'Between you and me, just as old chums, Steve, he's run off with almost all of them. Hell, we need to find new friends more than ever, but instead of going onto the offensive the Chairman seems content to retreat behind the barricades’
-
-'Ah, do I detect the cries of a frustrated Publicity Director who has been told to shut up shop for a while?'
-
-O'Neill banged the bar in exasperation. 'I shouldn't tell you this, I suppose, but as it's not going to happen there's no harm. The new hospital expansion programme which we promised at the election giving matching Government funds for any money raised locally. We had a wonderful promotional campaign, all ready to go throughout the summer while all you bastards were off on the Costa del Cuba or wherever it is you go’
+'Chancellor of the Exchequer, Financial Secretary, Health, Education, Environment, Trade and Industry.' The Prime Minister reeled off those Cabinet Ministers who had attended.
 

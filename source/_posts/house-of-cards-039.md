@@ -1,141 +1,105 @@
 title: House of Cards 039
-date: 2015-01-24 15:43:56
+date: 2015-01-25 03:45:38
 tags: house-of-cards
 ---
 
-And she was also lonely. Her bed was once more an Arctic outpost fit only for penguins, and gave her no comfort from her other problems.
+The Right Honourable Patrick Woolton - 91 votes’
 
-Yet the story kept taking over and pushing to one side
+There was general commotion as the tension ebbed, congratulations and condolences were exchanged, and one Member leaned around the door to give the highlights to the anxious press.
 
-any thoughts of dismay in her mind, while the Telegraph's editorial intervention had given it a totally new twist. Throughout the early evening she had watched the various television news programmes, all of which were dominated by speculation as to whether Urquhart would stand, and informing a generally unaware audience about what a
+'Accordingly’ Sir Humphrey continued, 'no candidate has been elected and there-will be a second round of balloting a week today. I would remind everyone that those wishing to offer themselves as candidates for the second ballot must resubmit their nominations to me by Thursday. I declare this meeting closed!'
 
-￼Chief Whip actually does and who Urquhart was.
+Urquhart was giving some celebratory drinks to colleagues in his room. It was one of the finest offices available to a Member, located on the premises rather than in one of the various annexes spotted around the periphery of the Palace of Westminster, large and airy with a gracious bow window offering a fine view across the river to the Archbishop of Canterbury's ancient Gothic home at Lambeth Palace. The room was now crowded with several dozen Members, all offering their best wishes for the Chief Whip's success. Wryly he noted that it was the first time during the campaign that he had seen some of these faces, but he did not mind. Votes were votes, wherever they came from.
 
-She needed to talk, and without wishing to question too deeply the conflicting emotions which were tangling in her
+'Quite splendid, Francis. Absolutely excellent result. Do you think you can go on to win?' enquired one of his senior parliamentary colleagues.
 
-mind she found herself waiting on a wooden platform which bobbed in the Thames tide alongside Charing Cross
+￼‘I believe so,' Urquhart responded with quiet confidence. ‘I suspect I have as good a chance as anyone.'
 
-pier. Just a few minutes later she could see the approach of
+‘I think you're right, you know,' his colleague said. 'Young Samuel may be ahead, but his campaign is going backwards. It's between the
 
-the Telegraph's private river taxi which shuttled employees between the newspaper's dockland plant downstream and the rather more central and civilised reaches of the capital.
+experienced heads of you and Patrick now. And, Francis, I want you to know that you have my wholehearted support.'
 
-As she had hoped, Krajewski was on board. He said nothing as he found her standing on the pier, but accepted her silent invitation to walk.
+Which, of course, you will want me to remember when I have my hands on all that Prime Ministerial patronage, he thought to himself while he offered his gratitude and a fresh drink to his guest.
 
-It was a dry and clear November night, so they wrapped
+New faces were still pouring into the room as word spread that the Chief Whip was entertaining. Urquhart's secretary was pouring a large whisky for Stephen Dunway, the most ambitious of the new intake of MPs who had already that evening made brief but prominent appearances at both Samuel's and Woolton's receptions on the basis that you can never be too sure. The secretary excused herself to answer the telephone, which had been ringing all evening with calls of congratulations and press enquiries.
 
-up warm and without speaking strolled along the Embankment, tracing the sharp curves of the river bank and with it the floodlit vistas of the Festival Hall and the Houses of Parliament beyond, with the tower of Big Ben looking
+It's for you’ she whispered gently into Urquhart's ear. 'Roger O'Neill.'
 
-down from high above. It was some time before he broke the silence. No questions about the other night, he decided. He knew what was foremost in her mind.
+Tell him I'm busy and that I will call him later’ he instructed.
 
-'So what do you make of it all?'
+He called earlier and sounds very anxious. Asked me to tell you it was "very bloody hot", to quote his exact words,' she said primly.
 
-She smiled shyly in gratitude for the lifeline, for not demanding an explanation of her motives which she would not - or was it could not? - give.
+With an impatient curse he withdrew from his guests and sought shelter in the comer of the bay window from the noise of celebration.
 
-It's extraordinary. They're building him up like a Messiah on a white charger galloping to the rescue. Why did Grev do it?'
+'Roger’ he spoke sharply into the phone. Is this really necessary? I've got a room full of people.'
 
-‘I don't know. He just came in late yesterday, not a word to anyone, turned the paper inside out and produced his
+'She's on to us, Francis. That bloody bitch - she knows, I'm sure. She knows it's me and shell be on to you next, the cow. I haven't told her a thing but she's got hold of it and God knows how but...'
 
-front page editorial from out of his pocket. No warning; no explanation. Still, seems to have caused quite a story. Perhaps he got it right after all.'
+'Roger! Pull yourself together!' snapped Urquhart. O'Neill was gabbling and the conversation was running away like a driverless express. It was clear he had been unable to stick to Urquhart's orders, and was not fully in control.
 
-Mattie shook her head. It wasn't Grev. He's not capable of making a decision like that. It took balls to position' - she almost used the word 'commit' but stopped herself just in time - 'to position the paper in that way, and it could only have come from one place: the desk of our – your beloved proprietor, Mr Landless. Last time he interfered he was dethroning Collingridge, now he's trying to hand the crown to someone else.'
+There was a moment of silence and Urquhart tried to re-establish his authority. Tell me slowly and clearly what all this is about.'
 
-As they traced their way along the winding river bank, they kicked through the windswept piles of leaves and passed by the pale, massive bulk of the Ministry of Defence.
+Immediately the gabbling began again, and Urquhart was forced to listen, trying to make some sort of sense of the garbled mixture of words, splutters and sneezes.
 
-'But why? Why Urquhart?'
+'She came over to see me, the cow from the press lobby. I don't know how, Francis, it's not me and I told her nothing. I fobbed her off- think she went away happy. But somehow she had got onto it. Everything, Francis. The Paddington address; the computer,- she even suspects that someone from headquarters leaked the opinion poll I put under her door. And that bastard Kendrick must have told her about the hospital campaign you told me to concoct. Jesus,
 
-'No idea,' Mattie responded. 'Urquhart is very low profile, although he's been in the House for many years. He
+Francis. I mean, what if she doesn't believe me and decides to print something?'
 
-comes across as being vaguely aristocratic, patrician, old school tie. He's something of a loner, certainly not one of the boys, which means he's got no great fan club but also no one hates him enough to campaign against him as they are doing with Samuel. Nobody knows what his views really are, he's never had to express them as Chief Whip.'
+'Hold your tongue for a second’ he seethed down the phone, anxious that none of his guests should overhear him. just tell me this. Who came to see you from the lobby?'
 
-She turned to face him. You know, he might just slip through the middle as the man the others dislike least. Landless could have picked a winner.' 'You think hell stand, then?'
+'Storin. Mattie Storin. And she said...'
 
-'Certain of it. He told me way back in June that there was going to be a leadership race, and he flatly refused then to rule himself out. He wants it all right, and he'll stand.'
+‘Did she have any firm evidence?' Urquhart interrupted. 'Or is she just guessing?'
 
-That sounds like a great feature - 'The Man Who Saw It Coming''.' If only I had a paper to write it for,' she said with a wistful smile.
+O'Neill paused for the briefest of moments to consider the question.
 
-He stopped and looked at Mattie, her fair hair glowing in the lights which bounced back from the soft yellow stone of the Houses of Parliament behind her, wondering if he detected a hint of regret in her voice.
+'Nothing firm, I think. Just guesswork. Except...'
 
-'Grev refuses to print your story and then announces the paper's support for Urquhart Defusing one bomb and then launching another. Isn't that a bit of a coincidence?'
+'Except what?'
 
-I've been thinking about that all day,' she said. 'The simple explanations are always the easiest to accept, and
+'She's been told I opened the Paddington address.'
 
-the simple fact is that Grev Preston is a pathetic excuse for
+'How on earth did she find that out?' Urquhart's fury poured like molten lava down the phone.
 
-an editor who is terrified of getting anything wrong. Knowing that Landless was going to throw Urquhart's hat into
+'My secretary told her, but there is no need to worry because she thinks I did it for Collingridge.'
 
-the ring, he didn't have the nerve to upset his proprietor's plans and I suspect he found my story simply too hot to handle.'
+'Your secretary knew?'
 
-'So you think Landless may be at the bottom of it all?'
+‘I... took her with me. I thought she would be more inconspicuous and she's utterly trustworthy. You know that.' 'Roger I could happily...'
 
-It's possible. He certainly welcomed the leadership contest, but then so did many others. Urquhart told me the weekend after the election of all the internal rivalry and bitterness inside the Government. Whoever is stirring it behind the scenes, we have the entire Cabinet to choose from, as well as Landless. And I am going to find out who.'
+‘Look, it's me who's done all your dirty jobs for you, taken all the risks. You've got nothing to worry about while I'm in it up to my neck if this breaks. I need help, Francis. I'm scared! I've done too many things for you which I shouldn't have touched, but I didn't ask questions and just did what you said. You've got to get me out of this, I can't take much more and I won't take much more. You've got to protect me, Francis. Do you hear? You've got to help me!' O'Neill broke down into uncontrollable sobbing.
 
-‘But how, without a newspaper?'
+'Roger, calm yourself,' he said quietly into the receiver. , 'She has absolutely no proof and you have nothing to fear. We are in this together,you understand? And we shall get through it together, to Downing Street. I shan't let you down. Look, I want you to do two things. I want you to keep
 
-'Preston has been stupid enough to insist that I shall remain employed by the Telegraph for another three months. OK. They may not print it, but I'm still a journalist and I can still ask questions. If the truth is half as devious as I suspect it is, the story will still he worth printing in three months' or even three years' time. They can't lock up the truth for ever. I may have lost my job, Johnnie, but I haven't lost my curiosity.'
+￼remembering that knighthood. It's just a few days away now, Roger.'
 
-And what about your commitment? he asked silently.
+A stumbling expression of gratitude came spluttering down the phone.
 
-'And will you be my spy on the inside, keeping an eye on what that bastard Landless is up to?' He nodded, wondering just how much she was using him.
+'And in the meantime, Roger - for God's sake keep well away from Mattie Storin!'
 
-Thanks, Johnnie,' she whispered. She squeezed his hand, and disappeared into the night.
+After he had put the phone down Urquhart sat there for a moment, letting his emotions wash over him. From behind him came the hubbub of the powerful men who would project him into 10 Downing Street, fulfilling the dream which had burned inside him all these years. To the front he gazed across the centuries old view of the river which had inspired generations of great national leaders whose ranks he was now surely to join. And he had just put the phone down on the only man who could ruin it all for him.
 
-TUESDAY 16th NOVEMBER
+Trying to sort out the implications of the leadership ballot had left Mattie feeling drained. She needed to assess opinions as they were being formed and while the excitement of the race still gripped the participants, rather than waiting until the morning by which time they would simply be reiterating the noncommittal party line. Even the powerful elder statesmen of the Party would be caught up with the passion of the moment and find themselves offering delphic but expressive signs. Around Westminster a raised eyebrow or a knowing wink can speak as loudly to some ears as a sentence of political death, and it was vital that she knew in which direction the tumbrils were headed.
 
-The following day's news was still being dominated by intense speculation as to whether Urquhart would run. It was clear that the media had excited itself to the point where they would feel badly let down if he didn't, yet at
+There was also the complicated election procedure to fathom. The Party's balloting rules made sense to nobody other than those who had devised them; they prescribed that the first ballot should now be set aside and new nominations made. It was even permissible, although not likely, that individuals who had not even stood in the original ballot could now enter the race for the first time. If from the confusion no victor emerged with more than half the votes, a third and final round of voting would be held between the leading three candidates, with the winner being selected by a system of proportional representation which the Government would rather die than allow to be used at a general election. It was clearly a case of one rule for the Party, an entirely different rule for the public. It was all enough to make for furrowed brows and wearied pens amongst the parliamentary correspondents that evening.
 
-3 p.m. he was still keeping his own counsel. By this time, Mattie was feeling irked, not by Urquhart but by O'Neill. She had been waiting in his office with growing impatience for a full half hour.
+She had called Krajewski. It had been more than a week since they had seen or talked to each other, and in spite of herself she felt an inner desire to be with him. She seemed to be surrounded on all sides by doubts and unresolved questions, and she was finding it difficult on her own to pierce through the confusion. She hated to admit it, but she needed to share.
 
-When she had telephoned party headquarters the previous day wanting to get an official view about computers,
+Krajewski was unsure how to respond to the call. He had spent the week debating whether she was important to him or simply using him, or both. When she had asked to see him he had offered a lavish dinner at the Ritz, which he instantly knew was a mistake. She wasn't in a mood for romance, with or without violins. Instead they had settled for a drink at the Reform Club in Pall Mall, where Johnnie was a member. She had walked the half mile from the press gallery in the House of Commons, only to discover that he was exercising the privileges of a deputy editor and was late. Or was this simply his way of expressing frustration with her? She waited in the club's vaulted reception area with its magnificent columns and smoke-laden atmosphere. It was a time capsule, which Gladstone could have re-entered to find scarcely a single significant change since he had enjoyed its hospitality a century earlier. She always felt it was ironic that this great bastion of Liberalism and Reform had taken 150 years to accept women and she had often twisted the noses of its members about their sexual chauvinism until one had reminded her that there never had been a female editor of the Telegraph.
 
-literature sales, accounting procedures, Charles Collingridge and all the other things which were bothering her, she
+When Johnnie arrived they took their drinks and sat amongst the shadows of the upper gallery in the deep, cracked leather chairs which were so easy to relax in and so difficult to leave. As Mattie drank in the cloistered atmosphere and thick veneer of generations long departed, she desperately wanted to give herself over to the tired will of the flesh and float gently into oblivion. In those chairs, she felt as if she could sleep for a year and wake to find herself transported back several lifetimes. Yet the nagging in her head allowed her no relief.
 
-discovered that Spence had been absolutely right about the ban on staff contact with the media for the duration of the
+'What is it?' he asked, although he didn't need to. One glance had been enough to reveal that she was tired, anxious, quite lacking in her usual spark.
 
-campaign. She could only deal with the press office, and no press officer seemed capable or willing to talk to her about computers or accounts.
+The usual,' she responded grimly, lots of questions, too few answers, and the pieces I do have don't make sense. Somehow I know it has to be tied in with the leadership election, but I simply don't know how.'
 
-'Sounds as if you are investigating our expenses,' a voice only half-jokingly had said down the telephone.
+Tell me about it.'
 
-So she had asked for the Director of Publicity's office, and had been put through to Penny Guy. Mattie asked to come and talk the following morning with O'Neill, whom she had met a couple of times at receptions.
+She brought him up to date, how she could with more or less certainty hang most of the identifiable bits of the puzzle around O'Neill's neck.
 
-'I'm sorry, Miss Storin, but Mr O'Neill likes to keep his mornings free to clear his paper work and for internal
+‘He almost certainly leaked the poll to me, he as good as admits he opened the accommodation address in Paddington, he caused the hospitals fiasco by leaking the promotional plans to Kendrick, and I'm sure he altered the headquarters' computer file to incrirninate Charles Collingridge. Which means he's mixed up in some way with the share purchase and the bank account as well. But why ?'
 
-meetings.' It was a lie, and one she was increasingly forced to use as O'Neill's time keeping had become spectacularly
+To get rid of Collingridge,' prompted Krajewski.
 
-erratic. He rarely came into the office before ‘I p.m. nowadays. 'How about 2.30 in the afternoon?' she had suggested, playing safe.
-
-She did not comprehend the mind-pulverising effects of cocaine, which kept O'Neill hyperactive and awake well into the small hours, unable to sleep until a cascade of depressant drugs had gradually overwhelmed the cocaine and forced him into an oblivion from which he did not return before midday or later. She did not comprehend this, but she suffered deeply from it nonetheless.
-
-Now she was getting increasingly embarrassed as Mattie sat waiting for O'Neill. He had promised his secretary faithfully he would be on time, but as the wall clock ticked remorselessly on, her ability to invent new excuses disappeared completely. Her faith in O'Neill, with his public bravado and his private remorse, his inexplicable behaviour and his irrational outbursts, was slowly and painfully fading.
-
-She brought Mattie yet another cup of coffee.
-
-‘let me give him a call at home. Perhaps he's had to go back there. Something he forgot, or not feeling too well...'
-
-She sat on the corner of his desk, picked up the direct line and punched the numbers. With some embarrassment she greeted Roger on the phone, explaining that Mattie had been waiting for more than half an hour and ... Her face became gradually more concerned, then anguished and finally horrified before she dropped the phone and fled from the office as if pursued by demons.
-
-Mattie watched these happenings with complete astonishment, rooted to her chair, clutching her saucer, unable to speak or move. As the door banged shut behind the fleeing secretary she rose and moved over to the phone, picking the dangling receiver up from where it was swinging beside the desk and putting it to her ear.
-
-The voice coming out of the phone was unrecognisable as that of O'Neill, or indeed anyone. The words were incoherent, indecipherable, slowed and slurred to the point where it sounded like a doll with the batteries almost dead. There were gasps, moans, long pauses, the sound of tears.
-
-falling, and of a man falling apart She replaced the receiver gently in the cradle.
-
-Mattie went in search of the secretary, and found her washing her face in the cloakroom. Her eyes were red and swollen. Mattie put a consoling arm around her shoulders.
-
-'How long has he been like that, Penny?'
-
-‘I can't say anything!' she blurted, and started weeping once more.
-
-'Look, Penny, he's obviously in a very bad way. I'm not going to print any of this, for goodness sake. I would like to help.'
-
-The other girl turned towards Mattie, fell into her arms, let the pain and worry of the last few months gush out, and sobbed until there were no more tears left.
-
-When she had recovered sufficiently to escape from the cloakroom, Mattie took her gently by the arm and they went for a walk in nearby Victoria Gardens, where they could refresh themselves in the cold, vigorous air blowing off the Thames and talk without interruption. Penny told her how the Prime Minister's resignation had deeply upset O'Neill, how he had always been a little 'emotionally extravagant', as she put it, and the recent internal party turmoil and Prime Minister's resignation had really brought him close to a breakdown.
-
-'But why, Penny? Surely they weren't that close?'
-
-'He liked to think he was close to the whole Collingridge family. He was always arranging for flowers and special photographs to be sent to Mrs Collingridge, doing little favours whenever he could. He loved it all.'
-
-Mattie shrugged her shoulders, as if she were shrugging off O'Neill's reputation once and for all. It's a great pity, of course, that he should be so weak and go to pieces just when the Party needs him most. But we both heard him this afternoon, Penny. Something has really got to Roger, something which is eating away at him from the inside.'
-
-Mattie threw down the challenge. It wasn't fair, of course, but she gambled that Penny would not stand by and see O'Neill accused of weakness. She would loyally try to defend her boss - and would not lie in order to do so.
+'But what good does that do him? He's not going to take over the Party. What motive does he have for undermining Collingridge?'
 
